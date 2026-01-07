@@ -157,3 +157,13 @@ boss都是激活就发狂 经典宿舍楼有人激活了男团没打掉这个时
 打了几十年游戏，我就没见过运行效率比塔科夫还差的</blockquote>
 cpu和内存瓶颈太严重了，显卡倒是没啥压力。我的新电脑跑塔科夫的时候显卡温度能比跑战地6低十几度，老的笔记本0.16的时候跑pve本地战局也就50帧左右，经常掉到30帧上下，但进在线战局跑scav帧数有时能翻倍。
 
+*****
+
+####  银月术士329  
+##### 156#         楼主| 发表于 2026-1-4 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68950839&amp;ptid=2267122" target="_blank">kassne 发表于 2025-12-30 14:48</a>
+
+远距离镜内准星对准他就激活</blockquote>
+档初有一局我们蓝铁皮落地没看过气象站直奔终点站门口做任务，摁完对话器刚准备走蹬蹬蹬鸟眼自己跑我们连脸上了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
