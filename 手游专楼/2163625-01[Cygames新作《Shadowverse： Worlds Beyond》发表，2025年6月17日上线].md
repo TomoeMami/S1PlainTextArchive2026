@@ -66,3 +66,10 @@
 
 除开首冲和月卡的话国际服充值应该是比国服便宜点吧，用epic氪金，欧斯前辈礼包446块钱，充1w2日元<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  千千千千鸟  
+##### 729#       发表于 2026-1-10 20:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
