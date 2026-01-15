@@ -114,3 +114,28 @@
 卧槽逆天啊大龟裂又有新无敌套路，还是小丑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 [[卡厄斯梦境]大龟裂理论1回合无上限实战](https://www.bilibili.com/video/BV11aiPBCEwg/?share_source=copy_web&amp;vd_source=65367d8064cf3e28664e031406b963f5)
 
+*****
+
+####  绝对小白  
+##### 686#       发表于 2026-1-11 22:08
+
+这游戏现在和开服比改进大吗？推荐入坑吗？
+
+
+*****
+
+####  绝对小白  
+##### 687#       发表于 2026-1-11 22:08
+
+这游戏现在和开服比改进大吗？推荐入坑吗？
+
+*****
+
+####  windaria  
+##### 688#       发表于 2026-1-12 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69011900&amp;ptid=2256125" target="_blank">绝对小白 发表于 2026-1-11 22:08</a>
+
+这游戏现在和开服比改进大吗？推荐入坑吗？</blockquote>
+当期活动快结束了，一大堆改动都还是大饼没落实，再等几个月吧，当然你会错过目前断档强度的超强角色，不过强度这种东西以后会怎么样也不好说
+
