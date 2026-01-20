@@ -481,3 +481,42 @@ ls说那么多其实就是轨迹型npc</blockquote>
 
 清全成就的时候发现个问题，一些剧情的疯狂敌人之前打了不跳成就是什么情况，目前发现有 终局的庭孔 的 讨伐转盾 和干涸溪谷的 怪舞，现在也没地方打了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  kyyytu  
+##### 224#       发表于 2026-1-16 19:43
+
+看完后日谈了，也全成就了，怎么图鉴上闭眼之兽后还有三十多图鉴没开呢
+
+
+*****
+
+####  Sannapolis  
+##### 225#       发表于 2026-1-16 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69038342&amp;ptid=2263973" target="_blank">kyyytu 发表于 2026-1-16 19:43</a>
+看完后日谈了，也全成就了，怎么图鉴上闭眼之兽后还有三十多图鉴没开呢</blockquote>
+全成就后在奥尔大教堂那里还有隐藏boss可以打<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kyyytu  
+##### 226#       发表于 2026-1-17 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69038435&amp;ptid=2263973" target="_blank">Sannapolis 发表于 2026-1-16 19:55</a>
+全成就后在奥尔大教堂那里还有隐藏boss可以打</blockquote>
+奥尔大教堂在哪里，找不到啊<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  正田崇  
+##### 227#       发表于 2026-1-17 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69041262&amp;ptid=2263973" target="_blank">kyyytu 发表于 2026-1-17 11:52</a>
+奥尔大教堂在哪里，找不到啊</blockquote>
+直接去打古神的地方对话
+
+—— 来自 OnePlus PJA110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
