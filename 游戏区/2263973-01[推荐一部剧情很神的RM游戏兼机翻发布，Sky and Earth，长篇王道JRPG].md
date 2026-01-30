@@ -520,3 +520,22 @@ ls说那么多其实就是轨迹型npc</blockquote>
 
 —— 来自 OnePlus PJA110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+*****
+
+####  みそら  
+##### 228#       发表于 2026-1-25 21:05
+
+玩完这个游戏后我恰好去看视频刷了一遍P5r，主要是实在不想打p5r那个宫殿练级部分只想看看剧情。
+
+看到第三学期蚌埠住了，老师你也是马尔多吗。
+
+
+*****
+
+####  wornixxoo  
+##### 229#       发表于 2026-1-27 13:17
+
+打完了，优点大家都说完了，本来想说几个不满意的地方
+
+但是看完后日谈一切都释怀了，温柔的世界喜欢<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
