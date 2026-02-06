@@ -83,3 +83,18 @@
 <img src="https://p.sda1.dev/30/c1a8de2faceeed41e9aa3ffdd49d7ed5/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/ea84721eb3978548e58428518729ede5/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  ViyViy  
+##### 1790#       发表于 2026-2-2 12:23
+
+壁姐算法25年TV动画BD销冠是星三，没想到啊。不过以播出自然年算是第五。
+
+
+*****
+
+####  evestart  
+##### 1791#       发表于 2026-2-3 09:57
+
+第三季的BD均卷不算高，在有王之力的加成下也没到1万有点可惜，不过看壁吧统计，25年的BD销量好像都不高。
+
