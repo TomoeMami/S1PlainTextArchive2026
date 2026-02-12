@@ -1156,3 +1156,32 @@ https://www.gamersky.com/handbook/202507/1963876.shtml</blockquote>
 
 什么三年又三年和西海岸鬣狗和哈草智障羊驼的battle，爪帮和脚帮的脸都被你们丢完了。
 
+*****
+
+####  折中旗帜鲜明  
+##### 118#       发表于 2026-2-9 15:24
+
+[https://www.bilibili.com/opus/11 ... d_from=333.1387.0.0](https://www.bilibili.com/opus/1167217492234338306?spm_id_from=333.1387.0.0)
+
+传奇调查员灰猫·班姆~喵喵喵喵<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  水边井  
+##### 119#       发表于 2026-2-9 17:05
+
+50w玩家？看来他们至少没亏钱，还能支持出dlc
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  落油Я  
+##### 120#       发表于 2026-2-9 17:13
+
+玩了几天，玩得贼难受，晚上没被子盖血量一直在掉，掉到一定程度睡觉还有debuff
+
+虽然想在NS上玩，但这售价也太高了，接近steam的三倍了
+
