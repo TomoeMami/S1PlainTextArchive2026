@@ -1728,3 +1728,129 @@ Game Freak在过去几年因其部分3D开放世界游戏的性能和画面表�
 
 会是我曾经幻想过的带VATS的半即时宝可梦吗，不过这套设计只能单机用就是了
 
+*****
+
+####  Piano-Forest  
+##### 169#         楼主| 发表于 2026-2-13 06:27
+
+8月4日发售
+
+
+*****
+
+####  jockeyjoestar  
+##### 170#       发表于 2026-2-13 06:29
+
+建模也太剑星了  虚幻5神力啊 
+
+
+*****
+
+####  纯夏  
+##### 171#       发表于 2026-2-13 08:01
+
+不管好不好玩 冲着建模我也买了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/13/080042bk5jwg17v8xvvvog.png" referrerpolicy="no-referrer">
+
+<strong>Beast of Reincarnation.PNG</strong> (1.59 MB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 08:00 上传
+
+
+*****
+
+####  otakun  
+##### 172#       发表于 2026-2-13 08:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69181398&amp;ptid=2253295" target="_blank">纯夏 发表于 2026-2-13 08:01</a>
+不管好不好玩 冲着建模我也买了</blockquote>
+看成了小霞
+
+
+*****
+
+####  卢迪克  
+##### 173#       发表于 2026-2-13 10:26
+
+ 本帖最后由 卢迪克 于 2026-2-13 10:27 编辑 
+
+4Gamer：
+
+本作于2023年5月以“Project Bloom”的名义公布，请问这个项目是何时、以怎样的形式启动的呢？
+
+古岛康太氏：
+
+我很久以前就有想要制作新游戏的想法。
+
+我们公司内部有一个名为“齿轮计划”※的制度，而那年特别举办了一场由田尻智社长（代表取缔役田尻智先生）亲自筛选企划的比赛，这就是契机。
+
+※Game Freak公司内部推行的、自下而上的新游戏开发制度。
+
+4Gamer：
+
+那大概是什么时候的事情？
+
+古岛康太氏：
+
+齿轮计划的事情大概是2020年左右，企划通过并开始试作是2021年前后。
+
+不过话说回来，最开始时是我一个人构思试作、推敲世界观设定和剧情大纲的阶段。开发人员开始增加是从2022年左右开始的。
+
+
+*****
+
+####  LLLLLuB  
+##### 174#       发表于 2026-2-13 10:40
+
+所以说朱紫之后就是三线交替并行开发了，za，轮回兽和10代，效率惊人啊<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  u2deack  
+##### 175#       发表于 2026-2-13 11:08
+
+这游戏一出，等今年宝可梦新作出了，到时候gf黑和孝子吵架又多了很多点可以吵
+或者说等月底宝可梦直面会之后就要开始了
+
+
+*****
+
+####  卢迪克  
+##### 176#       发表于 2026-2-13 13:43
+
+ 本帖最后由 卢迪克 于 2026-2-13 13:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69182348&amp;ptid=2253295" target="_blank">u2deack 发表于 2026-2-13 11:08</a>
+
+这游戏一出，等今年宝可梦新作出了，到时候gf黑和孝子吵架又多了很多点可以吵
+
+或者说等月底宝可梦直面会之 ...</blockquote>
+时机选的不好，和宝太接近了，不过也没办法，索尼和微软什么时候开发布会也不是gf能干预的
+
+
+*****
+
+####  卢迪克  
+##### 177#       发表于 2026-2-13 20:38
+
+十张以上地图，通关时间40小说
+
+<img src="https://img.stage1st.com/forum/202602/13/203728mb6bznh3nydruuq6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 20:37 上传
+
+<img src="https://img.stage1st.com/forum/202602/13/203812x01zj9sjssz9xrfl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 20:38 上传
+
