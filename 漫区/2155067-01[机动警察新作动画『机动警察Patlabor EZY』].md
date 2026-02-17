@@ -1466,3 +1466,66 @@ CG制作：GAZEN・J.C.STAFF CG部
 我更关心万代会出新的hg品种模型吗？老款hg可动太差，价格还上天，完全没有性价比 ...</blockquote>
 我觉得 没法对机动条子的可动有梦想的  毕竟 这个垃圾套实在太影响可动了
 
+*****
+
+####  RhmBWT_Wu  
+##### 128#       发表于 2026-2-13 20:46
+
+<img src="https://img.stage1st.com/forum/202602/13/204611u27ypalmx8hrrxpx.png" referrerpolicy="no-referrer">
+
+<strong>02.png</strong> (191.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 20:46 上传
+
+<img src="https://img.stage1st.com/forum/202602/13/204611ij8l3y977y90j699.png" referrerpolicy="no-referrer">
+
+<strong>01.png</strong> (372.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 20:46 上传
+
+<img src="https://img.stage1st.com/forum/202602/13/204611dd99xnjxzvjvvaf9.png" referrerpolicy="no-referrer">
+
+<strong>03.png</strong> (385.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 20:46 上传
+
+<img src="https://img.stage1st.com/forum/202602/13/204612dh24qgj1umhhh8ba.png" referrerpolicy="no-referrer">
+
+<strong>04.png</strong> (363.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 20:46 上传
+
+<img src="https://img.stage1st.com/forum/202602/13/204612g05meh40fffirmfe.png" referrerpolicy="no-referrer">
+
+<strong>05.png</strong> (388.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 20:46 上传
+
+
+*****
+
+####  Siran_China  
+##### 129#       发表于 2026-2-14 17:34
+
+这个人设……
+
+
+*****
+
+####  滴虫研究学家  
+##### 130#       发表于 2026-2-14 23:41
+
+女主人设图也很丑，但pv里又还可以
+
+哦草，林原怎么配这么个玩意
+
