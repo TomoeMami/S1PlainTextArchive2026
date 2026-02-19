@@ -2337,3 +2337,107 @@ LoveLive!Days 2025年7月号
 蓝鸟1stday1免费直播，包括B站**。
 <img src="https://p.sda1.dev/30/cff4872256321b7b5dbe92b42a7d7086/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  仟音一心  
+##### 210#       发表于 2026-2-14 16:53
+
+花篮
+<img src="https://p.sda1.dev/30/a0197277d0071bf28a7db6b01c53f8e1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/411dad42585234355eaf2df8e5dd9418/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/1f3f2996e9e0a4e416997f0eed8f2eca/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/904e726db8bd044e5635439bf075c249/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/86e605d55ba2d07d56a31cd4f26837de/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 211#       发表于 2026-2-14 18:56
+
+找出这么多L开头的负面词汇也是辛苦了。
+
+
+*****
+
+####  离心  
+##### 212#       发表于 2026-2-14 19:05
+
+这制作就是正规动画mv制作啊<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/30/c89aa53f02256c851b8865a07271ed0d/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  仟音一心  
+##### 213#       发表于 2026-2-14 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69189077&amp;ptid=2244986" target="_blank">离心 发表于 2026-2-14 19:05</a>
+这制作就是正规动画mv制作啊
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, 鹅球 v3.5.99</blockquote>
+新打歌服新歌新的高质量动画MV
+隔壁莲之空馋哭😭了要
+
+
+*****
+
+####  Piano-Forest  
+##### 214#         楼主| 发表于 2026-2-15 00:06
+
+[https://www.lovelive-anime.jp/lovehigh/activity_plan/](https://www.lovelive-anime.jp/lovehigh/activity_plan/)
+<img src="https://p.sda1.dev/30/0c79086d0f1df4e2fd31dd073dc37770/1000160792.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/b8ab40b3d7ff6b9ad0708988cd1b1a2d/1000160791.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 215#       发表于 2026-2-15 00:11
+
+官网公布的5个新闻，有两个是day1已经宣布的，还剩下三个应该是day2宣布：
+ 1.第2回组合分组企划。
+ 投票时间：2026年2月14日（周六）至2月27日（周五）23:59。
+ 2.《Dou-Da? DOING!》动画MV公开 &amp; CD发售。
+ 3.2nd LIVE举办决定。
+ 4.《生如百戏难！LOVELIVE! BLUEBIRD》书籍化决定。
+ 5.《生如百戏难！》官方漫画制作决定。
+
+
+*****
+
+####  仟音一心  
+##### 216#       发表于 2026-2-15 22:18
+
+2nd LIVE 决定
+日程：2026年9月19日（周六）、20日（周日）
+ 会场：京王Arena TOKYO ​​​
+<img src="https://p.sda1.dev/30/44404beb8a8d29cfcedfc202027e3c56/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 217#         楼主| 发表于 2026-2-15 22:43
+
+【【动画MV】人生不易部！「Dou-Da? DOING!」（生如百戏难！LOVELIVE! 青鸟）】 
+[https://b23.tv/ALuAZp5](https://b23.tv/ALuAZp5)
+
+
+*****
+
+####  1096beam  
+##### 218#       发表于 2026-2-16 09:25
+
+能比星团MV多就是成功
+
+
+*****
+
+####  仟音一心  
+##### 219#       发表于 2026-2-16 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193887&amp;ptid=2244986" target="_blank">1096beam 发表于 2026-2-16 09:25</a>
+能比星团MV多就是成功</blockquote>
+是说动画MV吧。
+
