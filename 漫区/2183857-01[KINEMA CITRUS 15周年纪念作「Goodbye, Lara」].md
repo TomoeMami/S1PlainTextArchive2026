@@ -763,3 +763,35 @@ https://x.com/Goodbye_Lara/status/1971890266786422862
 明けましておめでとうございます。
 <[img src="https://s2.loli.net/2026/01/01/Zpk43mNjqAruDMn.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  JELEEちゃん  
+##### 49#       发表于 2026-2-18 19:27
+
+[https://x.com/Goodbye_Lara/status/2024046231358513305](https://x.com/Goodbye_Lara/status/2024046231358513305)
+
+˚⊹⁺‧┈┈┈┈┈┈┈┈┈┈┈┈┈‧⁺ ⊹˚
+
+　　　AnimeJapan2026にて
+
+　#さよならララ 特別ステージ実施！
+
+˚⊹⁺‧┈┈┈┈┈┈┈┈┈┈┈┈┈‧⁺ ⊹˚
+
+📅日時：3月28日(土) 15:20～15:50
+
+📍場所：KADOKAWAブース(東6ホール J-52)内 KADOKAWA LIVE STATION
+
+🧜‍♀️出演：#菱川花菜(ララ役)、#川石奈奈(大津茉里役)、#小出卓史(監督)、#松井佐祐⾥(司会)、他
+
+当日はご参加・ご視聴お待ちしております✨
+
+※生配信の詳細は後日お知らせいたします。
+
+※当日現地にて電子整理券の配布を予定しております。配布方法などは後日お知らせいたします。
+
+#AJ2026 #アニメジャパン
+<img src="https://p.sda1.dev/30/e02488186baf0e57724b9d33946278a9/HBaQ904aAAA5uiL.jpg" referrerpolicy="no-referrer">
+
+大概是定档+正式PV？定档应该是7月吧，kinema经典档期
+
