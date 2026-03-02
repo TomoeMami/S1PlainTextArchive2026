@@ -4184,3 +4184,118 @@ Bs1的战斗部分就是纯rm那套，没啥意思。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/30/417fb131c9ca1680f38e7b898bd3111a/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  三月的老虎  
+##### 358#       发表于 2026-2-25 00:46
+
+blacksouls2启动，完了三个小时后的一系列想法和体验
+
+1.开局选择了母亲爱丽丝，我估计要三种爱丽丝都通关一遍才能触发真结局吧
+
+2.职业选择了战士，就爱当莽夫
+
+3.这一代感觉难度也上升了不少，比一代更像是殊死游戏了。路途随便都会碰到特别强的怪，外加上掉落死以及作者的一些小巧思，基本上稍微不慎直接就噶了
+
+4.各种迷路到处瞎转悠，然后遇到各种离谱的怪噶掉，前期在精神病院痛不欲生。
+
+5.掉san值掉到负数以后会被眼球怪追杀，不过马上发现一个眼球值10000魂，瞬间觉得不恐怖了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，一口气刷到了60级
+
+6.发现这游戏等级高根本没啥用，怪给你上了各种debuff后吊打你轻轻松松，必须得跟boss见招拆招，选取合适的武器跟他斗，所以多样化的武器和装备很重要，单靠一根强化等级高的木棒很难走下去
+
+7.求问楔形石小碎片在哪里刷，赶紧把斩首大斧头升到+3再推图了
+
+
+*****
+
+####  检索者  
+##### 359#         楼主| 发表于 2026-2-25 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69228940&amp;ptid=1812121" target="_blank">三月的老虎 发表于 2026-2-25 00:46</a>
+
+blacksouls2启动，完了三个小时后的一系列想法和体验
+
+1.开局选择了母亲爱丽丝，我估计要三种爱丽丝都通关一 ...</blockquote>
+三爱丽丝选谁不影响真结局，按XP选就行，后面有地方可以随时重选方便刷不同结局
+
+战斗中可以换装备，所以多收集和强化武器还是挺有用的，强化石除了最高级的圆盘之外都能在鱼市找NPC买
+
+
+*****
+
+####  红魔馆的糖  
+##### 360#       发表于 2026-2-25 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69228940&amp;ptid=1812121" target="_blank">三月的老虎 发表于 2026-2-25 00:46</a>
+
+blacksouls2启动，完了三个小时后的一系列想法和体验
+
+1.开局选择了母亲爱丽丝，我估计要三种爱丽丝都通关一 ...</blockquote>
+其实这游戏只要在开局的城镇买一堆黄金酒就随便打了，狂化副作用基本为0，换来巨额攻击力。强化石在鱼市那边随便买
+
+
+*****
+
+####  妄想中毒  
+##### 361#       发表于 2026-2-25 18:03
+
+这游戏给我带来的体验就是一直处于不是秒就是被秒的状态，根本不存在和boss打的有来有回的情况<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pf67  
+##### 362#       发表于 2026-2-25 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69232488&amp;ptid=1812121" target="_blank">妄想中毒 发表于 2026-2-25 18:03</a>
+这游戏给我带来的体验就是一直处于不是秒就是被秒的状态，根本不存在和boss打的有来有回的情况 ...</blockquote>
+看怎么玩，比如本篇你不刻意刷魂，只是把骑士剑升满就可以和大多数boss打的有来有回了
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  三月的老虎  
+##### 363#       发表于 2026-2-27 01:17
+
+玩了差不多十个小时左右了，感觉还有一半地图没探索到，这一代内容量太大了，恐怖氛围渲染也比一代要厉害的多
+
+1.原本觉得这游戏要求你武器选择多样化，结果我错了，我只是没找到合适的轮椅罢了，自从拿到汉斯的机关枪并升级到+4后打哪个boss都是薄砂
+
+2.公爵夫人之馆的boss我之前打不过就先搁置了，但之后再去发现这boss似乎已经没了，不知道为啥
+
+3.把san值回复了上来才意识到这游戏原来每个场景都有bgm，然而我一开始把san值搞到负数啥也听不到，不过这游戏只有san值上来才能跟npc对话这个设计也着实有点讨厌。
+
+4.走了个结局c，这个柴郡猫实在有点难打
+
+5.这游戏的谏言系统真是太棒了，强烈建议所有玩家开着谏言玩，真的有意思
+
+“你没资格啊你没资格因为你没资格所以你没资格反正你没资格<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">”
+
+<img src="https://img.stage1st.com/forum/202602/27/011444c91sjku69gw14h9d.png" referrerpolicy="no-referrer">
+
+<strong>BLACK SOULS II Full Ver. 2026_2_27 1_04_28.png</strong> (62.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 01:14 上传
+
+
+*****
+
+####  红魔馆的糖  
+##### 364#       发表于 2026-2-27 03:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69239442&amp;ptid=1812121" target="_blank">三月的老虎 发表于 2026-2-27 01:17</a>
+玩了差不多十个小时左右了，感觉还有一半地图没探索到，这一代内容量太大了，恐怖氛围渲染也比一代要厉害的 ...</blockquote>
+最好玩的还是多周目后进dlc2，dlc2相当于血源诅咒的老猎人，超越本体很多。而且到了dlc2，多动的装备就搜集的七七八八了，一个回合多动不断换刀才是这游戏最好玩的地方<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  虚无缥缈的分身  
+##### 365#       发表于 2026-2-27 09:08
+
+最近无聊到找了噩梦摇篮和亡灵之都这两个国产bs代餐来玩，寿司快点把红死给出了吧，不然后面四魔姬外传＋bs3起码要等到10年后了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
