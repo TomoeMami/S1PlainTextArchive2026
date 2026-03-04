@@ -364,3 +364,39 @@ AiScReam组合成员 黑泽露比 役 降幡爱 将从AiScReam组合毕业，AiS
 x：koaranin9981
 <img src="https://p.sda1.dev/30/7a01975132c3d678826a5e63bead79df/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  仟音一心  
+##### 1814#       发表于 2026-3-1 17:47
+
+1. JAXA × LoveLive! Superstar!! 合作决定！
+ 2026年度，JAXA宇宙科学研究所的项目将由Liella!的成员应援！
+<img src="https://p.sda1.dev/31/6acaaf596eefd545f579602c40b1aacc/image.jpg" referrerpolicy="no-referrer">
+
+ 2. 与Liella!相连的企划启动！～连接Liella!、结女和大家！～
+1）迷你专辑MiniAlbum发行决定！
+ 专辑名：《与Liella!相连的企划》迷你专辑
+ 发售日：2026年7月8日（周三）
+ 收录曲数：4曲（共5种版本）多半是团曲+小组曲了。
+
+ 2）FanDisc第2弹 发行决定！
+ 详细信息将在日后公开！
+
+ 3. 结女体育祭 举办决定！
+ 会场：东京体育馆 主竞技场
+ 日程：2026年9月5日（周六）、6日（周日）
+ 出演：Liella!全员
+
+<img src="https://p.sda1.dev/31/26913c12f8d75d11422715a00d279465/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/97fc23d91dd40db24ccb9a6926eb9d89/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/6acaaf596eefd545f579602c40b1aacc/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/29cede6d341b425e33e047c987eea849/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  奥柏伦亲王  
+##### 1815#       发表于 2026-3-1 20:21
+
+动画结束后真的是越来越正常了
+
