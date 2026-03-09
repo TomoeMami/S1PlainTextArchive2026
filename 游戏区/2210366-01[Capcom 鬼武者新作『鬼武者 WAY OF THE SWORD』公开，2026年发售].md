@@ -3181,3 +3181,63 @@ pmm的vlog也发了，这作鬼武者线下demo目前清一色好评，而且动
 
 连太空萝莉这种原创IP都给试玩了鬼武者也该给吧
 
+*****
+
+####  Piano-Forest  
+##### 342#         楼主| 发表于 2026-3-6 11:10
+
+【《鬼武者 Way of the Sword》 本篇介绍视频】 
+[https://b23.tv/lgwARF4](https://b23.tv/lgwARF4)
+
+
+*****
+
+####  病態極端  
+##### 343#       发表于 2026-3-6 12:02
+
+<img src="https://p.sda1.dev/31/96a4a0f8924e910d16363dfd9486c015/《鬼武者 Way of the Sword》 本篇介绍视频 @01-51.27 1772769646617.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  水边井  
+##### 344#       发表于 2026-3-6 13:39
+
+怎么这里也有土屋太凤啊，一眼串戏到卑弥呼<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  siro1987  
+##### 345#       发表于 2026-3-6 13:45
+
+卡婊还是舍不得公布发售日<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  乔迪奥  
+##### 346#       发表于 2026-3-6 14:00
+
+真的会给demo吗，感觉小次郎可能就是整部游戏最好的boss了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得留着防止玩家退款
+
+带有卡表特色精准成本控制的影之刃
+
+
+*****
+
+####  手铐君  
+##### 347#       发表于 2026-3-6 14:11
+
+不公布发售日是为了等gta吗？上半年塞满了，想塞下半年，但是想先等gta？
+
+
+*****
+
+####  kalavinka  
+##### 348#       发表于 2026-3-6 14:51
+
+全是老画面<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
