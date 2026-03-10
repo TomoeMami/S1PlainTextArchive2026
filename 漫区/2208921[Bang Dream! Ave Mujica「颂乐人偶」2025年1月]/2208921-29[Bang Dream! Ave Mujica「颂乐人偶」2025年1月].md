@@ -3067,3 +3067,1562 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 <img src="https://p.sda1.dev/30/3df8db9704a36fdd252e84a8cad4136f/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/ca9221becf3025e26b0c6a4fecb5ef07/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  堀内爱里衣  
+##### 41727#       发表于 2026-2-25 19:01
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/25/190124i0q2pqrmlphmqsrz.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-25_18-55-19.jpg</strong> (224.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-25 19:01 上传
+
+       [https://x.com/bang_dream_info/status/2026575884661203040](https://x.com/bang_dream_info/status/2026575884661203040)
+
+       <strong>First Love covered by 佐々木李子・高尾奏音 from Ave Mujica</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202602/25/190124u824by7zyzxp38g8.jpg" referrerpolicy="no-referrer">
+
+<strong>a01811284ee72fa67dc59160820bb2b7ae4e67a3.jpg</strong> (200.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-25 19:01 上传
+
+       跨越昭和，平成，令和三个时代的众多经典名曲，与豪华艺人及人气创作者联动合作，持续推出独家内容的「Re:Re:Re:TUNE」！
+
+       第27弹，由Ave Mujica成员佐佐木李子（Doloris/三角初华 役）、高尾奏音（Oblivionis/丰川祥子 役）翻唱演奏宇多田ヒカル的《First Love》！
+
+       本期在位于东京原宿的环球音乐集团概念商店「UNIVERSAL MUSIC STORE HARAJUKU」为大家呈现。</blockquote>
+       [https://www.bilibili.com/video/BV1Wpf4BbEWR](https://www.bilibili.com/video/BV1Wpf4BbEWR)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41728#       发表于 2026-2-25 19:24
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/25/192448uyjjyleyiypphwyy.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-25_19-05-17.jpg</strong> (84.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-25 19:24 上传
+
+       [https://t.bilibili.com/1173170319072952320](https://t.bilibili.com/1173170319072952320)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/25/192447px90yl8zrwsxsanr.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-25_19-22-02.jpg</strong> (773.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-25 19:24 上传
+
+
+*****
+
+####  堀内爱里衣  
+##### 41729#       发表于 2026-2-25 19:52
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/25/195206b7ixcdouqpx67q99.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-25_19-49-29.jpg</strong> (228.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-25 19:52 上传
+
+       [https://x.com/anipluscafesg/status/2026552749639479350](https://x.com/anipluscafesg/status/2026552749639479350)
+
+       [https://www.anipluscafe.com/bangdream4/merchandise/](https://www.anipluscafe.com/bangdream4/merchandise/)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/25/195206ne34zznxm877vs7w.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-25_19-50-11.jpg</strong> (122.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-25 19:52 上传
+
+       [https://x.com/anipluscafesg/status/2026554002717159643](https://x.com/anipluscafesg/status/2026554002717159643)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/25/195205qpfoxopxygwxwzoo.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-25_19-50-37.jpg</strong> (243.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-25 19:52 上传
+
+       [https://x.com/anipluscafesg/status/2026582950691876991](https://x.com/anipluscafesg/status/2026582950691876991)
+
+       [https://www.anipluscafe.com/bangdream4/](https://www.anipluscafe.com/bangdream4/)
+
+
+*****
+
+####  yone0000  
+##### 41730#       发表于 2026-2-25 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69232731&amp;ptid=2208921" target="_blank">堀内爱里衣 发表于 2026-2-25 19:01</a>
+
+https://x.com/bang_dream_info/status/2026575884661203040
+
+       First Love covered b ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卖太大了，已经不知天地为何物了
+
+
+*****
+
+####  lawsherman  
+##### 41731#       发表于 2026-2-26 00:08
+
+官方卖药，最为致命
+
+
+*****
+
+####  堀内爱里衣  
+##### 41732#       发表于 2026-2-26 18:31
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/26/183130wl8ij53ujjq337i8.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-26_18-26-34.jpg</strong> (541.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-26 18:31 上传
+
+       [https://x.com/onkyodav/status/2026839732626624919](https://x.com/onkyodav/status/2026839732626624919)
+
+       [https://onkyodirect.jp/shop/pages/BD_HEADPHONES.aspx](https://onkyodirect.jp/shop/pages/BD_HEADPHONES.aspx)
+
+*****
+
+####  堀内爱里衣  
+##### 41733#       发表于 2026-2-26 18:32
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/26/183211bjf344e3qy443ajj.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-26_18-28-05.jpg</strong> (257.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-26 18:32 上传
+
+       [https://x.com/yofukashipj/status/2026950244735582500](https://x.com/yofukashipj/status/2026950244735582500)
+
+       [https://yofukashiproject.com/analog_game_fes_2026/](https://yofukashiproject.com/analog_game_fes_2026/)
+
+*****
+
+####  堀内爱里衣  
+##### 41734#       发表于 2026-2-26 18:32
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/26/183233l0vd7sv55qx4zh0q.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-26_18-28-43.jpg</strong> (250.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-26 18:32 上传
+
+       [https://x.com/bang_dream_info/status/2026960430367731787](https://x.com/bang_dream_info/status/2026960430367731787)
+
+       [https://www.youtube.com/watch?v=QwRuEzcuBoE](https://www.youtube.com/watch?v=QwRuEzcuBoE)
+
+       <strong>にゃむちチャンネル（Nyamuchi channel）第12回</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202602/26/183233ngwj1vxmwxdnlnwv.jpg" referrerpolicy="no-referrer">
+
+<strong>38b3efabb93cb0b51cd08614d425a94d4d0a3b77.jpg</strong> (169.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-26 18:32 上传
+
+       期待本周末能跟大家见面哦~
+
+       先提前给大家看看横滨的风景吧♥
+
+       以及本期一定要看到最后哦</blockquote>
+       [https://www.bilibili.com/video/BV1EUfvBCEHa](https://www.bilibili.com/video/BV1EUfvBCEHa)
+
+
+*****
+
+####  仟音一心  
+##### 41735#       发表于 2026-2-26 21:28
+
+元祖邦多利21 丰川祥子兼职米歇尔，与弦卷心的史诗级会晤。
+<img src="https://p.sda1.dev/31/25ac0f316832db5e8aff99754e4732e3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/18d9412b63ed835ca0edf69d650df986/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/c693e19cb3a3015badb36946b01dadc7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/78dbc4bf815587ed4d61fef1c6d4c714/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/28349e4092a8208116d6a788f205cde6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/4bdb738febd5f0b12703ce3367f9a652/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/3dcb1b42ebaf88400ef25731869dd6d3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/56110046a9f35e94c7f5e60825e65846/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/b3fc345d597cef354d2c919bc211d6c8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/5eeab907cbb0b49e4550f45b6620d940/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/38f3ea03dffa8cacd1531ff56711f69f/image.jpg" referrerpolicy="no-referrer">
+心「我准备了米歇尔专用的键盘哦!!」
+ 「下次LIVE真让人期待呀!!」
+ 米歇尔「哇…哇~……真开心……」
+<img src="https://p.sda1.dev/31/01319706a7016b55d200a1581f01812c/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哈曼的YY  
+##### 41736#       发表于 2026-2-27 00:43
+
+两次出场都在吃 隐隐有了吃货属性吗
+
+查询初音手艺
+
+<img src="https://img.stage1st.com/forum/202602/27/004353zz8z8akxra878ezi.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (250.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 00:43 上传
+
+
+*****
+
+####  堀内爱里衣  
+##### 41737#       发表于 2026-2-27 14:17
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/27/141658bsyhkqssjzsgkssq.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-27_14-12-57.jpg</strong> (236.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 14:16 上传
+
+       [https://x.com/bang_dream_info/status/2027224672459223524](https://x.com/bang_dream_info/status/2027224672459223524)
+
+       [https://t.co/g2AIphzxAv](https://t.co/g2AIphzxAv)
+
+       [https://t.co/bQJ8OPNgX9](https://t.co/bQJ8OPNgX9)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/27/141659azajojlrzkvzz3mo.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-27_14-08-34.jpg</strong> (86.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 14:16 上传
+
+       [https://t.bilibili.com/1173944166987595801](https://t.bilibili.com/1173944166987595801)
+
+       [https://www.bilibili.com/opus/1168810068296073232](https://www.bilibili.com/opus/1168810068296073232)
+
+       <strong>MyGO!!!!!×Ave Mujica 对邦LIVE「“moment / memory”」（2026/3/1开演）</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202602/27/141659ceq7r8ymhiqxtgqg.jpg" referrerpolicy="no-referrer">
+
+<strong>d4b53764439e4f43800cff54649cf861a826bc57.jpg</strong> (160.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 14:16 上传
+
+MyGO!!!!!×Ave Mujica 对邦LIVE「“moment / memory”」
+
+【日程】
+
+2026年3月1日(日)　开场 14:30／开演 16:00（预定）
+
+【会场】
+
+K-Arena 横滨
+
+【出演】
+
+MyGO!!!!!, Ave Mujica
+
+特别暖场演出（※16:00～预定）
+
+・millsage
+
+Key.＆Vo. 汐見蛍役 薬師寺李有 (Vocal)
+
+・一家Dumb Rock!
+
+Gt.＆Vo. 須賀蕾叶役 橘めい (Vocal)
+
+Gt.＆Vo. 馬橋心玖役 涼泉桜花 (Vocal)
+
+※开场演出的演奏部分，将全部由支援乐手组成的伴奏乐队进行演出。
+
+【充电直播・充电回放】
+
+▼充电档位①
+
+　・价格：连续包月198元(238元档位)
+
+　・内容：《充电回放视频》
+
+　・充电回放视频播出期间：2026年3月1日(日)LIVE结束后～2026年3月8日(日)22:59
+
+▼充电档位②
+
+　・价格：连续包月238元(288元档位)
+
+　・内容：《充电直播》+《充电回放视频》
+
+　・充电直播：2026年3月1日(日)开场14:30／开演16:00（预定）
+
+　　　　　　　※具体开始时间可能因现场情况有所调整。
+
+　・充电回放视频播出期间：2026年3月1日(日)LIVE结束后～2026年3月8日(日)22:59
+
+※以上为北京时间。
+
+※ 连续包月价格为安卓端或网页端扫码支付价格。
+
+※视频上传时间可能因现场网络状况有所延迟。
+
+※仅回放直播提供字幕版，字幕完成后将进行换源，歌曲部分将提供双语字幕。</blockquote>
+       [https://www.bilibili.com/video/BV1G9A2zCEgU](https://www.bilibili.com/video/BV1G9A2zCEgU)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41738#       发表于 2026-2-27 23:17
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/27/231739i695cdx1llrx9363.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-27_23-16-27.jpg</strong> (194.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 23:17 上传
+
+       [https://x.com/AkaneY_banu/status/2027276476681539891](https://x.com/AkaneY_banu/status/2027276476681539891)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/27/231739b6ttas3aaunoosmh.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-27_23-17-02.jpg</strong> (205.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 23:17 上传
+
+       [https://x.com/sasakirico/status/2027288971907338653](https://x.com/sasakirico/status/2027288971907338653)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41739#       发表于 2026-2-28 10:06
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/28/100625cybnra01w7rwknbw.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-28_10-03-33.jpg</strong> (372.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 10:06 上传
+
+       [https://x.com/Watase_Yuzuki/status/2027534619936231764](https://x.com/Watase_Yuzuki/status/2027534619936231764)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/28/100625jr4envn894c84eap.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-28_10-04-15.jpg</strong> (220.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 10:06 上传
+
+       [https://x.com/AkaneY_banu/status/2027535440933490905](https://x.com/AkaneY_banu/status/2027535440933490905)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/28/100624xwn0ygfswd2ggpef.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-28_10-04-41.jpg</strong> (306.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 10:06 上传
+
+       [https://x.com/Kanon_Takao/status/2027544467964891216](https://x.com/Kanon_Takao/status/2027544467964891216)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/28/100624o7hldloblfo4zmu3.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-28_10-05-11.jpg</strong> (229.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 10:06 上传
+
+       [https://x.com/sasakirico/status/2027558007354364116](https://x.com/sasakirico/status/2027558007354364116)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41740#       发表于 2026-2-28 15:00
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/28/145950b3quu9spppox9pls.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-28_14-59-23.jpg</strong> (262.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 14:59 上传
+
+       [https://x.com/bang_dream_info/status/2027566398428660009](https://x.com/bang_dream_info/status/2027566398428660009)
+
+
+*****
+
+####  哈曼的YY  
+##### 41741#       发表于 2026-2-28 15:16
+
+梦限大和hhw合唱 难道会有十人春日影
+
+
+*****
+
+####  6030sylar  
+##### 41742#       发表于 2026-2-28 19:59
+
+<img src="https://img.stage1st.com/forum/202602/28/195908y5kol0l5b9xvl2vv.jpg" referrerpolicy="no-referrer">
+
+<strong>8c973223720e0cf3b43da9e74c46f21fbf09aa2f.jpg</strong> (212.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 19:59 上传
+
+兄弟啊兄弟
+
+
+*****
+
+####  堀内爱里衣  
+##### 41743#       发表于 2026-2-28 22:11
+
+ 本帖最后由 堀内爱里衣 于 2026-2-28 22:12 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/28/221044zhmy3j0u8exus55w.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-28_22-06-10.jpg</strong> (260.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 22:10 上传
+
+       [https://x.com/Kanon_Takao/status/2027716832279597149](https://x.com/Kanon_Takao/status/2027716832279597149)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/28/221044qlh2dj2srzlrpq6s.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-28_22-06-45.jpg</strong> (238.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 22:10 上传
+
+       [https://x.com/sasakirico/status/2027717264494178789](https://x.com/sasakirico/status/2027717264494178789)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/28/221043qx9x55n0fhx0tttt.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-28_22-07-21.jpg</strong> (177.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 22:10 上传
+
+       [https://x.com/AkaneY_banu/status/2027717732872163454](https://x.com/AkaneY_banu/status/2027717732872163454)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/28/221043w7is3i3fhionlhlk.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-28_22-07-45.jpg</strong> (221.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 22:10 上传
+
+       [https://x.com/tanda_hazuki/status/2027718462152560647](https://x.com/tanda_hazuki/status/2027718462152560647)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/28/221042ue18xvn9p825adty.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-28_22-08-01.jpg</strong> (240.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 22:10 上传
+
+       [https://x.com/Watase_Yuzuki/status/2027721944205037754](https://x.com/Watase_Yuzuki/status/2027721944205037754)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/28/221041xybmbzkbmkeby3my.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-28_22-08-24.jpg</strong> (265.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 22:10 上传
+
+       [https://x.com/okada_mei0519/status/2027735693540397343](https://x.com/okada_mei0519/status/2027735693540397343)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/28/221042mdssxx75154p17p4.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-28_22-08-54.jpg</strong> (212.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 22:10 上传
+
+       [https://x.com/Kanon_Takao/status/2027735135500767302](https://x.com/Kanon_Takao/status/2027735135500767302)
+
+       <img src="https://img.stage1st.com/forum/202602/28/215120vn4bvnwnnbdvdmb4.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/bang_dream_info/status/2027736065185141180](https://x.com/bang_dream_info/status/2027736065185141180)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41744#       发表于 2026-3-1 09:51
+
+ 本帖最后由 堀内爱里衣 于 2026-3-1 09:53 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/095127iwxl3ylul8837xop.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_09-48-39.jpg</strong> (584.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 09:51 上传
+
+       [https://weibo.com/6595441160/QtZ8bexUR](https://weibo.com/6595441160/QtZ8bexUR)
+
+新浪微博视频的链接直接贴出来会吞贴，感兴趣的坛友可去原址点击视频链接。
+
+
+*****
+
+####  半年  
+##### 41745#       发表于 2026-3-1 11:25
+
+<img src="https://p.sda1.dev/31/f5a533a09b5ab54942e7cb7f9da17591/mygo.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/3b9f01fe01e19fb7e16bc89cc349211c/mujica.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  堀内爱里衣  
+##### 41746#       发表于 2026-3-1 12:54
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/125425rkiqhi2259u0qo21.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_12-49-33.jpg</strong> (222.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:54 上传
+
+       [https://x.com/AkaneY_banu/status/2027879437161931055](https://x.com/AkaneY_banu/status/2027879437161931055)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/125424v7kq515uvk5g7y55.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_12-49-59.jpg</strong> (162.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:54 上传
+
+       [https://x.com/Watase_Yuzuki/status/2027915320158261456](https://x.com/Watase_Yuzuki/status/2027915320158261456)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/125424u5yuue59ye96xj0x.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_12-50-33.jpg</strong> (222.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:54 上传
+
+       [https://x.com/sasakirico/status/2027916847199490155](https://x.com/sasakirico/status/2027916847199490155)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/125423cir1ekinr3rxmegj.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_12-50-57.jpg</strong> (129.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:54 上传
+
+       [https://x.com/okada_mei0519/status/2027932911627091975](https://x.com/okada_mei0519/status/2027932911627091975)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/125423aj8g5z6agurrt9z6.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_12-52-53.jpg</strong> (184.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:54 上传
+
+       [https://x.com/Kanon_Takao/status/2027966881483919549](https://x.com/Kanon_Takao/status/2027966881483919549)
+
+*****
+
+####  堀内爱里衣  
+##### 41747#       发表于 2026-3-1 12:57
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/125701gt44cz2jb2xct2fb.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_12-55-02.jpg</strong> (305.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:57 上传
+
+       [https://x.com/bang_dream_info/status/2027926801146913207](https://x.com/bang_dream_info/status/2027926801146913207)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/125700rmvk7ai8bzkbvqek.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_12-55-27.jpg</strong> (110.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:57 上传
+
+       [https://x.com/bang_dream_info/status/2027929391460978946](https://x.com/bang_dream_info/status/2027929391460978946)
+
+*****
+
+####  丰川祥  
+##### 41748#       发表于 2026-3-1 12:57
+
+大概是打算对邦后发布的消息，草台
+
+<img src="https://img.stage1st.com/forum/202603/01/125702qszlndsnl7phse7x.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4927.jpeg</strong> (543.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:57 上传
+
+<img src="https://img.stage1st.com/forum/202603/01/125702gazynoj9ktc6ssy9.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4928.jpeg</strong> (393.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:57 上传
+
+<img src="https://img.stage1st.com/forum/202603/01/125702mdv2bdeilvpiaw00.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4929.jpeg</strong> (458.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:57 上传
+
+<img src="https://img.stage1st.com/forum/202603/01/125703nj3ry5j555v3jm50.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4930.jpeg</strong> (404.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:57 上传
+
+
+*****
+
+####  堀内爱里衣  
+##### 41749#       发表于 2026-3-1 13:00
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/130026ul5yppj8g7579rly.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_12-57-46.jpg</strong> (248.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 13:00 上传
+
+       [https://x.com/bang_dream_info/status/2027899546337165698](https://x.com/bang_dream_info/status/2027899546337165698)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/130026snvogmmn9mgay948.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_12-58-20.jpg</strong> (257.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 13:00 上传
+
+       [https://x.com/bang_dream_info/status/2027926760902524956](https://x.com/bang_dream_info/status/2027926760902524956)
+
+       [https://bang-dream.com/bangdream-10th-specialarea/](https://bang-dream.com/bangdream-10th-specialarea/)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/130025f1p3fiu3f8h71g59.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_12-59-06.jpg</strong> (242.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 13:00 上传
+
+       [https://x.com/bang_dream_info/status/2027934109096714587](https://x.com/bang_dream_info/status/2027934109096714587)
+
+       [https://bang-dream.com/bangdream-10th-specialarea/](https://bang-dream.com/bangdream-10th-specialarea/)
+
+*****
+
+####  堀内爱里衣  
+##### 41750#       发表于 2026-3-1 13:02
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/130204tzru13xz6l1uollx.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_13-01-21.jpg</strong> (258.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 13:02 上传
+
+       [https://x.com/BushiProtein/status/2027897857391411467](https://x.com/BushiProtein/status/2027897857391411467)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41751#       发表于 2026-3-1 14:37
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/143719z1cts7oqys18qsrd.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_14-35-58.jpg</strong> (210.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 14:37 上传
+
+       [https://x.com/bang_dream_on/status/2027761501524926767](https://x.com/bang_dream_on/status/2027761501524926767)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/143718vkskx8a91xahxhf3.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_14-36-21.jpg</strong> (103.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 14:37 上传
+
+       [https://x.com/bang_dream_on/status/2027761504431575554](https://x.com/bang_dream_on/status/2027761504431575554)
+
+
+*****
+
+####  哈曼的YY  
+##### 41752#       发表于 2026-3-1 16:43
+
+起死开战是虚拟团吗
+
+
+*****
+
+####  堀内爱里衣  
+##### 41753#       发表于 2026-3-1 18:32
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/183257a16416fz43y61yrf.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_18-30-54.jpg</strong> (154.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 18:32 上传
+
+       [https://x.com/bang_dream_info/status/2028055144114319419](https://x.com/bang_dream_info/status/2028055144114319419)
+
+       [https://t.co/uEQhKOAaKA](https://t.co/uEQhKOAaKA)
+
+
+*****
+
+####  FanKiE  
+##### 41754#       发表于 2026-3-1 18:37
+
+明年1月又能享受了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  RPG-7  
+##### 41755#       发表于 2026-3-1 18:45
+
+明年1月一起再赤一次
+
+*****
+
+####  Piano-Forest  
+##### 41756#       发表于 2026-3-1 18:51
+
+「BanG Dream! It's MyGO!!!!!」
+
+「BanG Dream! Ave Mujica」
+
+続編TVアニメが2027年1月より
+
+日本テレビ系全国30局ネットで地上波放送決定🎉✨
+[https://anime.bang-dream.com/mygo-avemujica/](https://anime.bang-dream.com/mygo-avemujica/)
+
+「BanG Dream! It's MyGO!!!!! / Ave Mujica」続編TVアニメ 2027年1月より放送開始！
+[https://youtu.be/fROu-xdvWhM](https://youtu.be/fROu-xdvWhM)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41757#       发表于 2026-3-1 18:59
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/185926nxftk4v6etpucce4.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_18-57-54.jpg</strong> (271.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 18:59 上传
+
+       [https://x.com/bang_dream_info/status/2028061403287011826](https://x.com/bang_dream_info/status/2028061403287011826)
+
+       [https://t.co/wqxO48SJWI](https://t.co/wqxO48SJWI)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41758#       发表于 2026-3-1 19:03
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/190319nd3tl7neo7jf6zzt.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_19-02-31.jpg</strong> (306.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 19:03 上传
+
+       [https://x.com/bang_dream_info/status/2028062441117282538](https://x.com/bang_dream_info/status/2028062441117282538)
+
+       [https://t.co/SqHxIoHCOs](https://t.co/SqHxIoHCOs)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41759#       发表于 2026-3-1 19:06
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/190618uf3prt7nz7fyzryr.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_19-04-12.jpg</strong> (162.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 19:06 上传
+
+       [https://x.com/bang_dream_on/status/2028062701289984342](https://x.com/bang_dream_on/status/2028062701289984342)
+
+       <strong>【BanG Dream! Our Notes】PV第二弹</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202603/01/190607h3ltfzxkrf1qjlh3.jpg" referrerpolicy="no-referrer">
+
+<strong>be022a8f007a9369845477261fe937dced87fc5b.jpg</strong> (339.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 19:06 上传
+
+来自BanG Dream企划的新手游「BanG Dream! Our Notes」的PV第二弹现已公开。
+
+更多资讯将于日后公开，敬请期待。</blockquote>
+       [https://www.bilibili.com/video/BV1VjAzzdE6B/](https://www.bilibili.com/video/BV1VjAzzdE6B/)
+
+*****
+
+####  堀内爱里衣  
+##### 41760#       发表于 2026-3-1 19:11
+
+       <img src="https://img.stage1st.com/forum/202603/01/191032qshusr7scew8cm6d.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/bang_dream_on/status/2028063196616048921](https://x.com/bang_dream_on/status/2028063196616048921)
+
+       [https://t.co/gBG7tgErxI](https://t.co/gBG7tgErxI)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41761#       发表于 2026-3-1 19:12
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/191219jxmxljtwjjtlpuzt.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_19-07-37.jpg</strong> (253.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 19:12 上传
+
+       [https://x.com/bang_dream_info/status/2028062734726951095](https://x.com/bang_dream_info/status/2028062734726951095)
+
+       [https://t.co/ZTuFfkcd5C](https://t.co/ZTuFfkcd5C)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41762#       发表于 2026-3-1 19:16
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/191617qvmm2mpgfl7lvg7b.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_19-14-21.jpg</strong> (266.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 19:16 上传
+
+       [https://x.com/bang_dream_info/status/2028064193052815747](https://x.com/bang_dream_info/status/2028064193052815747)
+
+       [https://t.co/ED9oC9w2GK](https://t.co/ED9oC9w2GK)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/191617v806yhq6dyr6a688.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_19-14-53.jpg</strong> (246.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 19:16 上传
+
+       [https://x.com/bang_dream_info/status/2028064196462784898](https://x.com/bang_dream_info/status/2028064196462784898)
+
+       [https://t.co/ED9oC9w2GK](https://t.co/ED9oC9w2GK)
+
+*****
+
+####  堀内爱里衣  
+##### 41763#       发表于 2026-3-1 19:18
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/191839wz33xbycxe22fb6y.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_19-17-30.jpg</strong> (216.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 19:18 上传
+
+       [https://x.com/bang_dream_info/status/2028065794706600010](https://x.com/bang_dream_info/status/2028065794706600010)
+
+       [https://anime.bang-dream.com/mygo-avemujica/](https://anime.bang-dream.com/mygo-avemujica/)
+
+
+*****
+
+####  刑部姬真可爱  
+##### 41764#       发表于 2026-3-1 19:23
+
+必须要活到2027的理由<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+单从这两张图来说是不是要恭喜祥子又要被sb广大抽陀螺了<img src="https://static.stage1st.com/image/smiley/carton2017/483.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX5062, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  堀内爱里衣  
+##### 41765#       发表于 2026-3-1 19:31
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/193146o4x8a4stog28q4g8.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_19-30-52.jpg</strong> (210.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 19:31 上传
+
+       [https://x.com/bang_dream_on/status/2028070245286777243](https://x.com/bang_dream_on/status/2028070245286777243)
+
+*****
+
+####  堀内爱里衣  
+##### 41766#       发表于 2026-3-1 19:34
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/193419cfbtbttta4rt4tbo.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_19-33-22.jpg</strong> (174.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 19:34 上传
+
+       [https://x.com/bang_dream_on/status/2028070746241527844](https://x.com/bang_dream_on/status/2028070746241527844)
+
+       [https://bang-dream.com/bdp-guideline/](https://bang-dream.com/bdp-guideline/)
+
+
+*****
+
+####  魔天使  
+##### 41767#       发表于 2026-3-1 19:46
+
+居然还有新的TV续作，也是好起来了
+
+*****
+
+####  无动于衷  
+##### 41768#       发表于 2026-3-1 19:47
+
+不是深井冰动画我不看
+
+
+*****
+
+####  聊nsy专用号  
+##### 41769#       发表于 2026-3-1 20:01
+
+无良黑企业武士道为了卖新动画新游戏让羊姐带病唱11首歌
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 41770#       发表于 2026-3-1 20:05
+
+家石笨和millsage歌好好听
+
+
+*****
+
+####  堀内爱里衣  
+##### 41771#       发表于 2026-3-1 21:41
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/214119q0d2whzf8lm4mm27.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_21-38-25.jpg</strong> (243.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 21:41 上传
+
+       [https://x.com/Kanon_Takao/status/2028056583746502944](https://x.com/Kanon_Takao/status/2028056583746502944)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/214119za81qjb67wqabfsa.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_21-38-58.jpg</strong> (220.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 21:41 上传
+
+       [https://x.com/sasakirico/status/2028057534670721292](https://x.com/sasakirico/status/2028057534670721292)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/214118urnnh10n6pt0515f.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_21-39-25.jpg</strong> (234.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 21:41 上传
+
+       [https://x.com/AkaneY_banu/status/2028059448779108714](https://x.com/AkaneY_banu/status/2028059448779108714)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/214118oa4ukcmkyykokcua.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_21-39-51.jpg</strong> (156.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 21:41 上传
+
+       [https://x.com/Watase_Yuzuki/status/2028059919455555898](https://x.com/Watase_Yuzuki/status/2028059919455555898)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/214117vao9faz8avazawp8.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_21-40-17.jpg</strong> (228.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 21:41 上传
+
+       [https://x.com/okada_mei0519/status/2028085003712954611](https://x.com/okada_mei0519/status/2028085003712954611)
+
+
+*****
+
+####  Rosefinch  
+##### 41772#       发表于 2026-3-1 21:55
+
+大翔老师都成神了，还能怎么续作，真的复活苦来兮苦吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无动于衷  
+##### 41773#       发表于 2026-3-1 22:39
+
+<blockquote>Rosefinch 发表于 2026-3-1 21:55
+大翔老师都成神了，还能怎么续作，真的复活苦来兮苦吗</blockquote>
+不是还有真初华的坑吗
+
+
+*****
+
+####  仟音一心  
+##### 41774#       发表于 2026-3-1 22:52
+
+符合人设。
+<img src="https://p.sda1.dev/31/f50fe4b2ae0b78af1ee801f04cff65d6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/c41caf0a5d2e62f7dacff07a31834732/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 41775#       发表于 2026-3-1 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69257257&amp;ptid=2208921" target="_blank">无动于衷 发表于 2026-3-1 22:39</a>
+
+不是还有真初华的坑吗</blockquote>
+这人真会有戏份吗<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  堀内爱里衣  
+##### 41776#       发表于 2026-3-2 01:07
+
+       <strong>猴子也能看懂的邦多利Our Notes贝塔测试申请教程</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202603/02/010659wm8e4aok804a44no.jpg" referrerpolicy="no-referrer">
+
+<strong>f9da92712a1345d4c587abc25f3bbb8e2ebc2b1f.jpg</strong> (192.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-2 01:06 上传
+
+申请地址[https://bang-dream-on.bushimo.jp/cbt/](https://bang-dream-on.bushimo.jp/cbt/)
+
+苹果日本官网[https://www.apple.com/jp/](https://www.apple.com/jp/)</blockquote>
+       [https://www.bilibili.com/video/BV1AYPuz4EQc](https://www.bilibili.com/video/BV1AYPuz4EQc)
+
+
+*****
+
+####  哈曼的YY  
+##### 41777#       发表于 2026-3-2 01:19
+
+你能在全力十本面前幸存吗
+
+
+*****
+
+####  mono  
+##### 41778#       发表于 2026-3-2 12:37
+
+杮本的思考领域be like: 整个大活再继续大力宣传，观众就会好奇来看下一部 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  堀内爱里衣  
+##### 41779#       发表于 2026-3-2 17:53
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/02/175335i0nex0tske7k0eze.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-02_17-47-42.jpg</strong> (451.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-2 17:53 上传
+
+       [https://x.com/bang_dream_info/status/2028304584578662420](https://x.com/bang_dream_info/status/2028304584578662420)
+
+       [https://x.com/CENTRAL___ofc/status/2028304294588637274](https://x.com/CENTRAL___ofc/status/2028304294588637274)
+
+       [https://central-fest.com/s/central/page/ticketlist2026?ima=4916](https://central-fest.com/s/central/page/ticketlist2026?ima=4916)
+
+*****
+
+####  堀内爱里衣  
+##### 41780#       发表于 2026-3-2 17:54
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/02/175413f6lj6bbyrn8sqljj.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-02_17-51-22.jpg</strong> (255.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-2 17:54 上传
+
+       [https://x.com/BUSHIM_ongaku/status/2028369918782320971](https://x.com/BUSHIM_ongaku/status/2028369918782320971)
+
+       [https://bushiroad-music.com/topics/21243/](https://bushiroad-music.com/topics/21243/)
+
+*****
+
+####  堀内爱里衣  
+##### 41781#       发表于 2026-3-2 17:54
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/02/175437xlhzhc4lv1aoc9ta.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-02_17-52-00.jpg</strong> (410.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-2 17:54 上传
+
+       [https://x.com/drumsmagazinejp/status/2028395871537451220](https://x.com/drumsmagazinejp/status/2028395871537451220)
+
+       [https://t.co/k4S2EyXmBm](https://t.co/k4S2EyXmBm)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41782#       发表于 2026-3-3 19:47
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/03/194751yx5ppnax774baha7.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-03_19-44-35.jpg</strong> (248.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-3 19:47 上传
+
+       [https://x.com/ReReRe_TUNE/status/2028749722077241449](https://x.com/ReReRe_TUNE/status/2028749722077241449)
+
+       [https://youtu.be/1Rtn1z5KinI](https://youtu.be/1Rtn1z5KinI)
+
+
+*****
+
+####  yone0000  
+##### 41783#       发表于 2026-3-4 20:48
+
+这次纯粹鸡6go8总集篇，就是没有天球静降想和绘未来<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  堀内爱里衣  
+##### 41784#       发表于 2026-3-5 12:58
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/05/125842z9xf7y67h6kk7v75.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-05_12-55-12.jpg</strong> (178.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-5 12:58 上传
+
+       [https://x.com/comic_growl/status/2029392964691345691](https://x.com/comic_growl/status/2029392964691345691)
+
+       [https://comic-growl.com/episodes/0cd4be5bffc01](https://comic-growl.com/episodes/0cd4be5bffc01)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41785#       发表于 2026-3-6 01:43
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/06/014354ur2949r3h8ttx83a.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-06_01-41-46.jpg</strong> (212.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-6 01:43 上传
+
+       [https://x.com/bang_dream_info/status/2029554183133946042](https://x.com/bang_dream_info/status/2029554183133946042)
+
+       [https://www.ntv.co.jp/yoru-bague ... t4i6u12jamiyrr.html](https://www.ntv.co.jp/yoru-baguette/articles/753qkt4i6u12jamiyrr.html)
+
+*****
+
+####  堀内爱里衣  
+##### 41786#       发表于 2026-3-6 01:45
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/06/014552jeeyn9779i5mhbs7.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-06_01-44-23.jpg</strong> (242.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-6 01:45 上传
+
+       [https://x.com/bang_dream_info/status/2029554406665170965](https://x.com/bang_dream_info/status/2029554406665170965)
+
+       [https://bang-dream.com/events/animejapan-2026/](https://bang-dream.com/events/animejapan-2026/)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41787#       发表于 2026-3-6 19:24
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/06/192416n0t5070mpay79bx0.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-06_19-22-35.jpg</strong> (148.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-6 19:24 上传
+
+       [https://x.com/bang_dream_info/status/2029752206740853203](https://x.com/bang_dream_info/status/2029752206740853203)
+
+       [https://www.ntv.co.jp/program/detail/?programid=20260D23](https://www.ntv.co.jp/program/detail/?programid=20260D23)
+
+*****
+
+####  堀内爱里衣  
+##### 41788#       发表于 2026-3-6 19:25
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/06/192501qs7f95xbis57z9b5.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-06_19-20-36.jpg</strong> (196.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-6 19:25 上传
+
+       [https://x.com/ReReRe_TUNE/status/2029836884172501033](https://x.com/ReReRe_TUNE/status/2029836884172501033)
+
+       [https://t.co/WK19mTPzOO](https://t.co/WK19mTPzOO)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41789#       发表于 2026-3-7 08:30
+
+       <strong>【熟】NTV《夜バゲット》MyGO＆AveMujica 续篇电视动画特别报道</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202603/07/083006upe3f2nq49lc74c9.jpg" referrerpolicy="no-referrer">
+
+<strong>7f8128f40003b179afefa352c80c9c4812fcd1dc.jpg</strong> (359.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-7 08:30 上传
+
+是吗…叫醒我们就是为了给我们看这个吗…</blockquote>
+       [https://www.bilibili.com/video/BV1LfP4zaEk8](https://www.bilibili.com/video/BV1LfP4zaEk8)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41790#       发表于 2026-3-7 10:59
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/07/105911ystzxltndpbkk2dd.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-07_10-54-42.jpg</strong> (275.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-7 10:59 上传
+
+       [https://x.com/SANZIGEN_INC/status/2029935033977557429](https://x.com/SANZIGEN_INC/status/2029935033977557429)
+
+       [https://anime-japan.jp/exhibition/detail/?id=24](https://anime-japan.jp/exhibition/detail/?id=24)
+
+*****
+
+####  堀内爱里衣  
+##### 41791#       发表于 2026-3-7 10:59
+
+<img src="https://img.stage1st.com/forum/202603/07/105934erhqj5y8rkeq5zok.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-07_10-58-26.jpg</strong> (271.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-7 10:59 上传
+
+
+*****
+
+####  仟音一心  
+##### 41792#       发表于 2026-3-7 11:11
+
+第三卷4.8发售
+<img src="https://p.sda1.dev/31/200c59ca1eca08322972ee89180c63b1/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凉良  
+##### 41793#       发表于 2026-3-7 12:22
+
+又在吃xd
+
+
+*****
+
+####  仟音一心  
+##### 41794#       发表于 2026-3-7 23:06
+
+没想到还有后续
+<img src="https://p.sda1.dev/31/5045ebde05967cf47b357686f466249b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/4a348de52b96a22d3e2c87001659b0d8/image.jpg" referrerpolicy="no-referrer">
+前情
+<img src="https://p.sda1.dev/31/49d6c1fd522463f00d68e690ae99f4f0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/68cf934c50a3ccc13b71fff7618c5bc8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/21f333dc940580e62f6b2d5e51613801/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 41795#       发表于 2026-3-7 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69290982&amp;ptid=2208921" target="_blank">堀内爱里衣 发表于 2026-3-7 10:59</a></blockquote>
+吃货祥
+<img src="https://p.sda1.dev/31/3b87986b71b5eb602e1a95db618f6ece/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刑部姬真可爱  
+##### 41796#       发表于 2026-3-8 00:10
+
+丰川祥子长期爽食<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX5062, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
