@@ -712,3 +712,75 @@ eshop写的是39GB
 
 2026-2-7 11:26 上传
 
+*****
+
+####  h122h  
+##### 77#       发表于 2026-3-9 15:35
+
+中了NS2的测试，3月11日才给下载
+
+
+*****
+
+####  woaimiyabi  
+##### 78#       发表于 2026-3-9 16:40
+
+ns2版不知道能不能60帧
+
+*****
+
+####  宛若青空  
+##### 79#       发表于 2026-3-9 16:40
+
+试试NS2版目前做得怎么样
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 80#       发表于 2026-3-9 16:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">ps5版代码也还不给兑换
+
+
+*****
+
+####  黑酒杯  
+##### 81#       发表于 2026-3-9 17:15
+
+淦想着抽选就没去申请，原来是点击就有吗？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不过这次测试就看下ns2优化了
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 82#       发表于 2026-3-10 00:58
+
+贝雅特丽丝这动作模组简直母SOL，ARC做的动作游戏菜了，能在这里弥补一些遗憾<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shyso  
+##### 83#       发表于 2026-3-10 02:35
+
+话说作为前骑空士，我开始玩gbf的原因就是relink的公布，但因为一直没时间玩一直就没买，还想着什么时候有空了买个骨折版
+
+没想到这一等就等到dlc都快出了，而且无印好像卖的很好，价格一直都不美丽，完全不像vs的无印路边一条全靠角色dlc骗钱
+
+我想问问这个资料片增加的内容会不会导致无印版的大量刷刷内容失去意义？我是吃屎也想尽量吃原味党，纠结
+
+
+*****
+
+####  魂淡放我出去  
+##### 84#       发表于 2026-3-10 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69304228&amp;ptid=2274073" target="_blank">shyso 发表于 2026-3-10 02:35</a>
+话说作为前骑空士，我开始玩gbf的原因就是relink的公布，但因为一直没时间玩一直就没买，还想着什么时候有 ...</blockquote>
+还不确定这个dlc难度设定是终局内容还是像牛一样插在中间吧
+
+如果是终局内容，那至少找人带到原巴，刷到主力角色巴武齐全，进dlc才不会拖后腿
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
