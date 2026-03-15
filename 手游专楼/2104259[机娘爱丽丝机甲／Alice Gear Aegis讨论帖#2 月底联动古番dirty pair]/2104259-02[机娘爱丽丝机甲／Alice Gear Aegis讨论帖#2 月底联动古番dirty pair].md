@@ -1606,3 +1606,10 @@ ALLIN资源才抽出来，LV3 80抽<img src="https://static.stage1st.com/image/s
 
 新发型不错啊。<img src="https://p.sda1.dev/31/85114798c73a849feab0cbcab6f37697/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  不灭的旋律  
+##### 1941#       发表于 2026-3-13 00:08
+
+装了原装SP的重力爱花算不算最强重力奶妈？
+
