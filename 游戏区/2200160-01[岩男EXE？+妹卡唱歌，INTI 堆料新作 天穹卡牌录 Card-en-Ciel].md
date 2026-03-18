@@ -1996,3 +1996,41 @@ WonderGOO 原创（加钱）特典：
 
 pc端dlc也更新了，dlc合集是42rmb
 
+*****
+
+####  cmyk1234  
+##### 174#       发表于 2026-3-12 20:07
+
+超惑星战记DLC卡包上线了。
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 175#       发表于 2026-3-14 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69174421&amp;ptid=2200160" target="_blank">妄想中毒 发表于 2026-2-11 18:08</a>
+
+女主很色，可惜太冷门了图太少连lora都没人做</blockquote>
+inti是手握财富密码的那位，可是和女主同框的男主造型一眼难尽，下次要出什么强化版时就不要让男主上封面了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 176#       发表于 2026-3-14 12:04
+
+更新完了就直接开始了，怎么打了两盘一个新包的卡都没看到，不在前面的随机池里面么
+
+
+*****
+
+####  cmyk1234  
+##### 177#       发表于 2026-3-15 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69328750&amp;ptid=2200160" target="_blank">红魔馆的糖 发表于 2026-3-14 12:04</a>
+更新完了就直接开始了，怎么打了两盘一个新包的卡都没看到，不在前面的随机池里面么 ...</blockquote>
+需要两个条件
+首先，打通tactical communication迷宫，获得打额外迷宫的资格。
+其次，打通一次额外迷宫，解锁复制迷宫，以及在其他迷宫的随机卡池。
+
