@@ -665,3 +665,12 @@ moiw2025没听到GR@TITUDE原来是放在这里唱，确实是真正的moiw了
 
 —— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+*****
+
+####  Unlight  
+##### 7319#         楼主| 发表于 2026-3-19 18:22
+
+伏见司这是把偶像游戏战力玩崩了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
