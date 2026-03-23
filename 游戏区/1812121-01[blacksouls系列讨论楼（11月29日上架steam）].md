@@ -4299,3 +4299,50 @@ blacksouls2启动，完了三个小时后的一系列想法和体验
 
 最近无聊到找了噩梦摇篮和亡灵之都这两个国产bs代餐来玩，寿司快点把红死给出了吧，不然后面四魔姬外传＋bs3起码要等到10年后了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+*****
+
+####  三月的老虎  
+##### 366#       发表于 2026-3-20 21:07
+
+20小时打通里线g结局，在纠结dlc3冬之钟玩还是云，圣杯地牢就不打算刷了
+
+体验还是不错的，就是跟玩真黑魂一样剧情全靠视频解说才理清楚，毕竟我连爱丽丝梦游仙境的故事基本都忘光了。背后作者的故事更是都不记得。最后出来了个别的男人还以为主角被绿了呢
+
+另外这些成就名称出来的时候没绷住
+
+<img src="https://img.stage1st.com/forum/202603/20/205650p64t8t2txttt6qu8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-20 20:56 上传
+
+<img src="https://img.stage1st.com/forum/202603/20/205956cn9rtjz88pt088nt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-20 20:59 上传
+
+
+*****
+
+####  红魔馆的糖  
+##### 367#       发表于 2026-3-20 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69239880&amp;ptid=1812121" target="_blank">虚无缥缈的分身 发表于 2026-2-27 09:08</a>
+最近无聊到找了噩梦摇篮和亡灵之都这两个国产bs代餐来玩，寿司快点把红死给出了吧，不然后面四魔姬外传＋bs ...</blockquote>
+不行啊，没有黄代不动<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Flechette  
+##### 368#       发表于 2026-3-20 21:37
+
+最近那个淫骸のトランスクラップ也算blacksouls like（？）吧，虽说题材更往AC6靠
+
+整体上有一种bs1的生涩感，包括CG实用度也是，但可更换义体这个机制我是真喜欢
+
