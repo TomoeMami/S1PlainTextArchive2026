@@ -4319,3 +4319,13 @@ Paquerette Down the Bunburrows 3NYXP-9CE6P-MW5PN
 多了个抓兔子的key，有缘人请随意拿走吧 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+*****
+
+####  库德里尔  
+##### 315#       发表于 2026-3-21 23:17
+
+the artisan of glimmith很不错。
+纸笔类，纯分块，制作组是做真知之岛的，这次他们只保留了纸笔谜题的部分做了超级多的分块谜题，感觉得有上千的小题数。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
