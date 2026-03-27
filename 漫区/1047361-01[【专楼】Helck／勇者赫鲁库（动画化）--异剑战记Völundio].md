@@ -103,3 +103,12 @@ helck最好的我觉得是离开荒岛到回到魔族地盘中间那段公路加
 没有下一话了，下一话遥遥无期
 <img src="https://p.sda1.dev/31/04e6bbad661caa8083c111aa043354c4/msedge_7sNBFmTiOO.png" referrerpolicy="no-referrer">
 
+*****
+
+####  hac0101  
+##### 1244#       发表于 2026-3-24 17:29
+
+这是又来了个女王？
+
+这回琥珀的下属应该能及时赶到吧。
+
