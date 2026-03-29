@@ -1512,3 +1512,172 @@ ed后面出场这个人物莫非是敌对方的？
 
 这下真成妖女了
 
+*****
+
+####  aptx8285144  
+##### 103#       发表于 2026-3-25 17:48
+
+ 本帖最后由 aptx8285144 于 2026-3-25 17:50 编辑 
+
+男主和义妹的拥抱被紫毛抢先笑死(鬼头这角色其实挺讨喜的)，最初拥抱(观众镜头里的)先给了赛莲好评……主线没啥好说的，各种俗套和土，只能说这片没去和永恒黄昏以及某些逆天烂片做一桌就是胜利，话说看样子也会和阿波罗面子上不再打了吗？(反正要是被老头背刺一次后还想着征服地球给自己星球谋利就太可笑了)
+
+
+*****
+
+####  kos_mos  
+##### 104#       发表于 2026-3-26 19:34
+
+凪被救出，男女主感动的再会，即将拥抱，结果凪先被μ扑倒了www ​​​
+
+<img src="https://img.stage1st.com/forum/202603/26/193448ve66qcx61de6vdhx.png" referrerpolicy="no-referrer">
+
+<strong>si.png</strong> (139.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193448jkki9udkek38khez.png" referrerpolicy="no-referrer">
+
+<strong>si0.png</strong> (129.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193448bz0c4h4rfpc0xnw1.png" referrerpolicy="no-referrer">
+
+<strong>si1.png</strong> (144.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193449zxgqqzgtxzaqt7gb.png" referrerpolicy="no-referrer">
+
+<strong>si2.png</strong> (129.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193449bkkjgngntbpg7pga.png" referrerpolicy="no-referrer">
+
+<strong>si3.png</strong> (128.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193449g5f2fyhcq11hn5df.png" referrerpolicy="no-referrer">
+
+<strong>si4.png</strong> (151.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193449qnzdyyip1syllhxn.png" referrerpolicy="no-referrer">
+
+<strong>si5.png</strong> (175.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193449ixob3xxy2255jjbj.png" referrerpolicy="no-referrer">
+
+<strong>si6.png</strong> (115.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193450qsbwped77jhsh003.png" referrerpolicy="no-referrer">
+
+<strong>si7.png</strong> (125.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193450r9bwvg5c9dgaabxv.png" referrerpolicy="no-referrer">
+
+<strong>si8.png</strong> (212.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193450tg7nj77e79sw7np9.png" referrerpolicy="no-referrer">
+
+<strong>si9.png</strong> (174.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193450uw68lrh30rflkk0l.png" referrerpolicy="no-referrer">
+
+<strong>si10.png</strong> (179.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193450gqzqbqg9zh10tpvh.png" referrerpolicy="no-referrer">
+
+<strong>si11.png</strong> (180.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193451c871ted6614fq6q2.png" referrerpolicy="no-referrer">
+
+<strong>si12.png</strong> (154.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193451yhm50p08pmiaqkm8.png" referrerpolicy="no-referrer">
+
+<strong>si13.png</strong> (221.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193451lcwcmrkvciej8nee.png" referrerpolicy="no-referrer">
+
+<strong>si14.png</strong> (202.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193451xpf6pz6p7kc7usct.png" referrerpolicy="no-referrer">
+
+<strong>si15.png</strong> (135.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193451na5d85x5aazcbjla.png" referrerpolicy="no-referrer">
+
+<strong>si16.png</strong> (149.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
+<img src="https://img.stage1st.com/forum/202603/26/193452syyxwwdxxy2ds0wj.png" referrerpolicy="no-referrer">
+
+<strong>si17.png</strong> (141.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-26 19:34 上传
+
