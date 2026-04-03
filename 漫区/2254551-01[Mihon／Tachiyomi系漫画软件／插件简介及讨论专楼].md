@@ -1733,3 +1733,22 @@ Suwayomi不好用
 
 Venera导入了漫画源之后甚至连漫画源都不能搜索，只能往下啦一个一个选，太可怕了
 
+*****
+
+####  azbhg1  
+##### 153#         楼主| 发表于 2026-3-31 15:16
+
+[https://github.com/keiyoushi/extensions-source/issues/14260](https://github.com/keiyoushi/extensions-source/issues/14260)
+
+官方插件仓库遭遇DMCA投诉，下架多个插件（基本是本子站点）
+
+(2026) NHentai(2026) Pururin(2026) E-Hentai(2026) Hentai2Read(2026) Hentai20(2026) Hitomi(2024) ReManga (RU)
+
+
+*****
+
+####  azbhg1  
+##### 154#         楼主| 发表于 2026-3-31 15:28
+
+这波是被FAKKU投诉一大堆github项目波及到了
+
