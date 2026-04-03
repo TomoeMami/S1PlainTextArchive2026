@@ -1262,3 +1262,700 @@ https://ttcg.jp/theatre_shinjuku/top ...</blockquote>
 <img src="https://p.sda1.dev/30/16d855c1cf610cd5a2ab2f5d58eefafc/20260114_001019.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/9c20a33726de40ffdcb3a19f6cfd353f/20260114_001020.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  会长辅佐  
+##### 126#       发表于 2026-3-18 15:42
+
+<img src="https://p.sda1.dev/31/02b55178fb17fe4d2ff94a7a97965cdd/IMG_3F7C7680C3B555560E4AD02CA1C6F0F1.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  manyin1  
+##### 127#       发表于 2026-3-18 16:02
+
+好耶字数补丁
+
+
+*****
+
+####  Piano-Forest  
+##### 128#         楼主| 发表于 2026-3-18 18:09
+
+全篇但有河蟹（今晚8点公开）
+[https://youtu.be/FsgjXJIdJUY](https://youtu.be/FsgjXJIdJUY)
+
+
+*****
+
+####  AlfredXC  
+##### 129#       发表于 2026-3-18 21:13
+
+有下载了magnet:?xt=urn:btih:ff6c43dfe42ca26aca58c2c41deb96cf4c8c7161
+
+
+*****
+
+####  Toby_dak  
+##### 130#       发表于 2026-3-18 22:20
+
+2025年6月に劇場公開した『ヴァージン・パンク Clockwork Girl』をフルサイズでYouTube公開！
+
+YouTubeでの公開にあたって、過激すぎるシーンには編集を加えております。
+
+ありのままの本編をご覧になりたい方は、ぜひBlu-rayでお確かめください！
+
+※2026年3月25日（水）までの期間限定公開です
+
+[https://www.youtube.com/watch?v=FsgjXJIdJUY](https://www.youtube.com/watch?v=FsgjXJIdJUY)
+
+
+*****
+
+####  deenyao  
+##### 131#       发表于 2026-3-18 23:10
+
+不如等BDrip无删减吧
+
+
+*****
+
+####  中二小旋风  
+##### 132#       发表于 2026-3-19 00:20
+
+太好看了,简直艺术品.但估计收益不太好吧
+
+有没有石油王支持一下老艺术家,让它继续拍下去<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jacket  
+##### 133#       发表于 2026-3-19 01:27
+
+开了个头没了，后面还拍吗
+
+
+*****
+
+####  oyss  
+##### 134#       发表于 2026-3-19 10:04
+
+碟已经订了,等碟,不看删减版
+
+
+*****
+
+####  wildarm  
+##### 135#       发表于 2026-3-19 21:13
+
+好爽啊！好短啊！别告诉这就是电影版所有内容？！
+
+
+*****
+
+####  hein  
+##### 136#       发表于 2026-3-20 02:15
+
+有点初见梅津泰臣的感觉
+
+做长了是不是又要原形毕露了
+
+
+*****
+
+####  不是很懂二次元  
+##### 137#       发表于 2026-3-20 03:28
+
+之前虽然不看好，但如果能保持第一集这个节奏，就讲个简单的复仇剧不要搞什么梦想啊赛博人的自由啥的，重心放在美少女+枪战的作画上，那这片还真值得一看。
+
+有妹子有福利有恶趣味再加上炫技的作画，完全就够了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  咔叽  
+##### 138#       发表于 2026-3-20 08:20
+
+梅津泰臣还在做动画啊挺意外的，以为他隐退了，太久远了，三部曲就记得黄星，风筝只记得女主被强了
+
+
+*****
+
+####  王九的哥哥  
+##### 139#       发表于 2026-3-20 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69359547&amp;ptid=2199597" target="_blank">不是很懂二次元 发表于 2026-3-20 03:28</a>
+之前虽然不看好，但如果能保持第一集这个节奏，就讲个简单的复仇剧不要搞什么梦想啊赛博人的自由啥的，重心 ...</blockquote>
+我估计真铺开了是个多线……
+
+系列名VIRGIN PUNK，第一集叫CLOCKWORK GIRL，指身体变成机械的妹子……
+
+其他各部主角就是第一集最后露脸那些新妹子，最理想的展开就是一人一部最后合流包个90分钟以上的饺子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屈江鸟  
+##### 140#       发表于 2026-3-20 12:16
+
+好短啊，后续要等到啥时候
+
+
+*****
+
+####  ww-tsl  
+##### 141#       发表于 2026-3-20 14:02
+
+都已经是赛博格满街跑的技术水平了，怎么还是在用火药枪械？难道不应该是人手一把激光枪高斯枪吗？
+
+**都支付得起义体改造，吃税金的**却都是一堆人肉，全都要靠奖金猎人，难道不应该是赛博疯子搞事第一时间跑来一群赛博格SWAT吗？
+
+
+*****
+
+####  Iphigenie  
+##### 142#       发表于 2026-3-20 21:16
+
+不知道怎么形容……像是战斗爽的片子
+
+机械义体少女+枪械能让我想到的是GUNSLINGER GIRL
+
+观望一下这部打算在什么方面展开故事吧，微妙
+
+
+*****
+
+####  赤黑的假面  
+##### 143#       发表于 2026-3-20 21:38
+
+<blockquote>ww-tsl 发表于 2026-3-20 14:02
+都已经是赛博格满街跑的技术水平了，怎么还是在用火药枪械？难道不应该是人手一把激光枪高斯枪吗？
+
+**都支 ...</blockquote>
+科幻肥皂剧的事情不需要弄的那么清楚.jpg
+
+
+*****
+
+####  wer4f  
+##### 144#       发表于 2026-3-20 21:58
+
+玛吉死的好快 还以为会成队友
+
+
+*****
+
+####  名津流  
+##### 145#       发表于 2026-3-21 01:01
+
+字幕的简中版和繁中版应该没区别吧？
+
+
+*****
+
+####  empereur  
+##### 146#       发表于 2026-3-21 08:36
+
+这码也打的太丧病了
+
+
+*****
+
+####  manyin1  
+##### 147#       发表于 2026-3-22 00:25
+
+这回拍得真是太有梅津以前的味道了，暴力与色情的极致美学<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 148#       发表于 2026-3-22 03:02
+
+梅津泰臣真是个专一的宅啊，画同一种画风的女孩画了N年，到底有多迷恋？
+
+
+*****
+
+####  quantamol  
+##### 149#       发表于 2026-3-22 04:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69364775&amp;ptid=2199597" target="_blank">wer4f 发表于 2026-3-20 21:58</a>
+
+玛吉死的好快 还以为会成队友</blockquote>
+看声优，感觉有种“不需要的女人”的意味。
+
+
+*****
+
+####  hkguty  
+##### 150#       发表于 2026-3-22 13:28
+
+话说这番打算出几集，是打算用OVA形式一集一集地卖碟吗
+
+
+*****
+
+####  魔法师lain  
+##### 151#       发表于 2026-3-22 21:24
+
+好看，就是不要再学kite liberator第二话了
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  cloudliu  
+##### 152#       发表于 2026-3-24 11:13
+
+梅津泰臣之前没能力做好超过100分钟以上的内容
+
+
+*****
+
+####  Toby_dak  
+##### 153#       发表于 2026-3-25 14:52
+
+bd rip有放流了。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+
+*****
+
+####  biye  
+##### 154#       发表于 2026-3-25 16:05
+
+为醋包的饺子 好吃
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
+
+*****
+
+####  名津流  
+##### 155#       发表于 2026-3-25 23:15
+
+看了眼BD rip，感觉这种动作场面4帧已经不够看了
+
+但就算是原盘，日本动画现在也不可能做60帧的吧
+
+
+*****
+
+####  十壹  
+##### 156#       发表于 2026-3-26 08:07
+
+招笑平地干拉，站桩对射，能不能别把反派设计的这么搞笑
+
+
+*****
+
+####  かしこま  
+##### 157#       发表于 2026-3-26 08:48
+
+求一个BD链接
+
+
+*****
+
+####  kenqqex  
+##### 158#       发表于 2026-3-26 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69392738&amp;ptid=2199597" target="_blank">かしこま 发表于 2026-3-26 08:48</a>
+
+求一个BD链接</blockquote>
+dmhy有 只有字幕版的
+
+
+*****
+
+####  かしこま  
+##### 159#       发表于 2026-3-26 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69392920&amp;ptid=2199597" target="_blank">kenqqex 发表于 2026-3-26 09:20</a>
+
+dmhy有 只有字幕版的</blockquote>
+找到了
+
+感谢
+
+
+*****
+
+####  stoiorz  
+##### 160#       发表于 2026-3-26 14:38
+
+好看，最后该不会走kite的老路吧？情侣杀手反叛歹毒资本家？
+
+优雅感觉没那么坏，大概有点妈妈桑。
+
+如果不在房间内杀了羽舞，会被那个通缉杀手寄生？
+
+
+*****
+
+####  hkguty  
+##### 161#       发表于 2026-3-26 22:31
+
+仔细看了下他似乎是本来打算下班去烤肉，看到那个杀手盯着女主才决定下手，后面也是注意到杀手的丝线即将接触到女主才开枪，全身义肢应该也不便宜，可能是某些原因觉得全身义肢可以保护女主？后面醒过来的那个妹子似乎也是优雅的员工，那个应该才是队友吧。
+
+
+*****
+
+####  KDConan  
+##### 162#       发表于 2026-3-26 22:42
+
+依然很黄很暴力<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">这么多年还是保持初心
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  dforce  
+##### 163#       发表于 2026-3-27 00:43
+
+好看，就是短了点，希望续作不要太监了
+
+
+*****
+
+####  かしこま  
+##### 164#       发表于 2026-3-27 07:47
+
+玛吉酱就这么死了，不就组不了战队了吗
+
+
+*****
+
+####  macos  
+##### 165#       发表于 2026-3-27 09:22
+
+有动态很好的演出，比伽利略什么的强多了，有时阴影不太对，部分演出流畅的像3d或动捕
+
+
+*****
+
+####  mhss  
+##### 166#       发表于 2026-3-27 19:00
+
+除了黄暴外感觉一般般，之前pv看不太出来，女主裙下是穿了条紧身裤？
+
+
+*****
+
+####  himfsz  
+##### 167#       发表于 2026-3-27 19:30
+
+感觉还不够黄
+
+
+*****
+
+####  香雨香香  
+##### 168#       发表于 2026-3-27 20:09
+
+ 本帖最后由 香雨香香 于 2026-3-27 20:13 编辑 
+
+时隔这么多年终于又看到梅津泰臣典型的美少女暴力美学作品了，但是一集不够看啊，这明显一堆剧情没展开，我还等着看相爱相杀的女女关系性呢，下一集啥时候能上哦
+
+
+*****
+
+####  deenyao  
+##### 169#       发表于 2026-3-27 20:30
+
+这么多年了, 还是三部曲那个味道
+
+
+*****
+
+####  lyz1196  
+##### 170#       发表于 2026-3-28 20:06
+
+我承认男人变态有什么错<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 171#         楼主| 发表于 2026-3-28 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68857075&amp;ptid=2199597" target="_blank">Piano-Forest 发表于 2025-12-11 13:22</a>
+
+◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢
+
+ヴァージン・パンク Clockwork Girl</blockquote>
+<img src="https://p.sda1.dev/31/9c884faf3cb988b92ba48666bdfc9535/1000162829.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/228f589748a31047762352d8720a1cbb/1000162830.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/2df6f9f45e192b82fee9bc88fc03fece/1000162831.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/7004508e9e079d76970e7b658f48b936/1000162825.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/89871fee812e396f10132c19a998e505/1000162837.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/796016e2ed0a955a2e388ac3ff99c003/1000162840.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/2ae35e0abfb60d494d1ee06a03c0cf6b/1000162843.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/efbe34cc2d3ae7a9704678b25e569a00/1000162846.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/c2c958932c5836b7b047c36c07a28df7/1000162849.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/a22ba060a8bd3d690544d1a3b5de2265/1000162852.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 172#         楼主| 发表于 2026-3-28 21:31
+
+<img src="https://p.sda1.dev/31/62a627b090aa6d5841d8fd6c2c6b9741/1000162853.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/3a0c6033924bc48002d333fa860fb892/1000162824.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/8e17d29a277c4d396e26ee2a3c555951/1000162823.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 173#         楼主| 发表于 2026-3-28 21:54
+
+【✒️書影解禁📕】
+
+『A KITE』『MEZZO』などを手掛けた
+
+稀代のアニメーター&amp;監督・梅津泰臣。
+
+その原画やコンテ、イラストなど資料を厳選して収録したアニメーションワークス――
+
+『Unfinished 梅津泰臣アニメーションワークス』
+
+その男、未だ進化の途中――。
+
+2025/8/25発売。 ​
+<img src="https://p.sda1.dev/31/66c6f59629be94d30676c2699ea41d9a/1000162859.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/7b63496f984435f6362e4c37df3bb7f7/1000162861.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/17b9a80b910bd70b356f86674539c3cc/1000162856.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/31/02b0bc1e5c4404e783a90cf271003f99/1000162860.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/c6f00d7f327144f0ac221d25ff81e501/1000162866.jpg" referrerpolicy="no-referrer">
+
+『ヴァージン・パンク Clockwork Girl』の絵コンテ集が本日より発売開始！
+
+#梅津泰臣 監督の精緻かつ美麗な絵コンテがフルカラーでお楽しみ頂けます。
+
+監督インタビューも収録！
+
+ファン必携のアイテムをぜひ入手してください！
+<img src="https://p.sda1.dev/31/ba6e5d5f6cae6cccbc57ac1446eebf6c/1000162862.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/f51905f8034e852a7fdd93b445f56605/1000162863.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/91baaf8347f00c08e21a9d4bbfd4c25f/1000162864.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  28201  
+##### 174#       发表于 2026-3-29 12:16
+
+忽然悟了，风筝里那个bt其实是男主啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xwr  
+##### 175#       发表于 2026-3-29 13:25
+
+熟肉出来了，下集什么时候？
+
+
+*****
+
+####  manyin1  
+##### 176#       发表于 2026-3-29 13:50
+
+似乎没有大组做BDRIP了
+
+
+*****
+
+####  aptx8285144  
+##### 177#       发表于 2026-3-29 14:53
+
+喷了，开头死的那个人物血“直接写上不能让孩子们看”，你就算打点小马赛克之类也比这样遮住屏幕一样的操作好一万倍呀，等等，为什么后面那个女的拉着“院长”尸体过去又没和谐？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小学生把持不住  
+##### 178#       发表于 2026-3-29 15:43
+
+多处剧情都不连贯，这明显是剪辑过后的版本，要真是第一部，那梅津作为导演这么多年根本在原地踏步
+
+
+*****
+
+####  cauchua3  
+##### 179#       发表于 2026-3-29 21:54
+
+这一话完了下一话什么时候有？
+
+
+*****
+
+####  Piano-Forest  
+##### 180#         楼主| 发表于 2026-3-29 22:22
+
+[https://x.com/i/status/2036062495291654482](https://x.com/i/status/2036062495291654482)
+<img src="https://p.sda1.dev/31/e0f2f3896577a2a8ea14dbe304260840/1000162955.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 181#       发表于 2026-3-29 23:06
+
+ 本帖最后由 Toby_dak 于 2026-3-30 00:07 编辑 
+
+发错……
+
+
+*****
+
+####  chdhdhd  
+##### 182#       发表于 2026-3-29 23:51
+
+内置和谐了，还以为是转载加的
+
+等有未和谐版我再看了
+
+
+*****
+
+####  AlfredXC  
+##### 183#       发表于 2026-3-30 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69411465&amp;ptid=2199597" target="_blank">chdhdhd 发表于 2026-3-29 23:51</a>
+内置和谐了，还以为是转载加的
+
+等有未和谐版我再看了</blockquote>
+bd已经出了都快一周了
+
+
+*****
+
+####  chdhdhd  
+##### 184#       发表于 2026-3-30 12:00
+
+<blockquote>AlfredXC 发表于 2026-3-30 10:21
+bd已经出了都快一周了</blockquote>
+从讨论看，应该还是有和谐吧？
+
+我搜到的3月23日的生肉资源都是有“小朋友不能看”的屏幕遮盖，蓝光版没有吗？
+
+
+*****
+
+####  千恋万花  
+##### 185#       发表于 2026-3-30 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69413384&amp;ptid=2199597" target="_blank">chdhdhd 发表于 2026-3-30 12:00</a>
+
+从讨论看，应该还是有和谐吧？
+
+我搜到的3月23日的生肉资源都是有“小朋友不能看”的屏幕遮盖，蓝光版没 ...</blockquote>
+3 月 18 日在 YTB 上公开的是有遮挡的，3 月 25 日发售的蓝光版没有
+
+
+*****
+
+####  razielzyc  
+##### 186#       发表于 2026-3-30 16:48
+
+好看。2077得代餐。就是这个味。
+
+
+*****
+
+####  Toby_dak  
+##### 187#       发表于 2026-3-30 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69409511&amp;ptid=2199597" target="_blank">aptx8285144 发表于 2026-3-29 15:53</a>
+
+喷了，开头死的那个人物血“直接写上不能让孩子们看”，你就算打点小马赛克之类也比这样遮住屏幕一样的操作 ...</blockquote>
+我觉得你去确认下看的是不是BD rip比较好<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202603/30/195817saqq4kckgkb4rpzf.jpg" referrerpolicy="no-referrer">
+
+<strong>[Nekomoe kissaten][Virgin Punk Clockwork Girl][BDRip][1080p][CHS].mp4_snapshot_0.jpg</strong> (291.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-30 18:58 上传
+
+*****
+
+####  Toby_dak  
+##### 188#       发表于 2026-3-30 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69412699&amp;ptid=2199597" target="_blank">AlfredXC 发表于 2026-3-30 11:21</a>
+
+bd已经出了都快一周了</blockquote>
+你之前的磁链编辑或者加个标记吧，不然很多人分不清什么是网络先行放松i版什么是BD rip。
+
+
+*****
+
+####  razielzyc  
+##### 189#       发表于 2026-3-31 09:40
+
+好看。动作流畅，节奏紧凑。**。而且这种画风，真的久违了8/10。
+
+
+*****
+
+####  不见不散  
+##### 190#       发表于 2026-3-31 09:55
+
+女主人设有点怪，脸又圆眼睛又大，但是仍子好圆好挺<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dqjsss  
+##### 191#       发表于 2026-3-31 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69417779&amp;ptid=2199597" target="_blank">不见不散 发表于 2026-3-31 09:55</a>
+
+女主人设有点怪，脸又圆眼睛又大，但是仍子好圆好挺</blockquote>
+梅津的人设一直就这个风格
+
+
+*****
+
+####  失落之翼  
+##### 192#       发表于 2026-3-31 16:47
+
+梅津泰臣还是这个味，虽然很多时候剧情挺差的但是女性人设太符合XP了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不见不散  
+##### 193#       发表于 2026-3-31 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69419909&amp;ptid=2199597" target="_blank">dqjsss 发表于 2026-3-31 16:33</a>
+梅津的人设一直就这个风格</blockquote>
+他的风格不是钢丝球吗（
+
+
+*****
+
+####  mhss  
+##### 194#       发表于 2026-3-31 18:01
+
+楼上是和漆原智志弄混了？梅津明明是个白虎爱好者<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 195#       发表于 2026-3-31 18:40
+
+这动画其实让我想起了黑礁，都是那种大枪+美少女，枪还画得异常精细，不过黑礁基本都是御姐。朋克倒是没感觉很朋克，反正不是赛博朋克，海边都市风倒是挺蒸汽朋克的。
+
