@@ -463,3 +463,89 @@ ILCA 给偶像大师建模也不是这样啊，这些建模和人设在搞什么
 美丽的二次元3D模型 你在哪里...</blockquote>
 Jrpg正统在二游
 
+*****
+
+####  泰坦失足  
+##### 56#       发表于 2026-4-10 07:07
+
+发行商 Konami 与开发商 ILCA 宣布，正在为 PlayStation 5 开发全新 RPG《Rev. NOiR》
+
+看这个ILCA还有什么作品时候发现Konami的这个居然也是ILCA开发的, 而且这游戏是彻底的PS5完全独占. 太伟大了.
+
+
+*****
+
+####  trow233  
+##### 57#       发表于 2026-4-10 09:36
+
+这人物建模……
+
+二次元的发源地霓虹，老牌日场科乐美
+
+技术力已经低下到如此地步了吗
+
+*****
+
+####  u2deack  
+##### 58#       发表于 2026-4-10 09:38
+
+这就是ilca，这家公司到底是能洗多少钱啊都找他们做
+
+
+*****
+
+####  泰坦失足  
+##### 59#       发表于 2026-4-10 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69465856&amp;ptid=2274658" target="_blank">u2deack 发表于 2026-4-10 09:38</a>
+
+这就是ilca，这家公司到底是能洗多少钱啊都找他们做</blockquote>
+wiki说ILCA是I Love Computer Art, 既没看到Love也没看到Art
+
+*****
+
+####  chris1987  
+##### 60#       发表于 2026-4-10 09:48
+
+这建模有种很廉价的感觉<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cc-2  
+##### 61#       发表于 2026-4-10 09:51
+
+男主角感觉是个黑皮啊？
+
+样子有点像高达00主角刹那（中东人）+阿三的既视感
+
+两个女角色风格有点割裂，然后中间那个有点像异度装甲的女主角
+
+
+*****
+
+####  相棒  
+##### 62#       发表于 2026-4-10 10:04
+
+  这男主总有一股国产二游自捏主角的味儿
+
+
+*****
+
+####  farAway  
+##### 63#       发表于 2026-4-10 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69182473&amp;ptid=2274658" target="_blank">Lisylfn 发表于 2026-2-13 11:27</a></blockquote>
+XB2知名败犬尼亚同款配色
+
+
+*****
+
+####  红魔馆的糖  
+##### 64#       发表于 2026-4-10 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69185291&amp;ptid=2274658" target="_blank">偏執王 发表于 2026-2-13 21:55</a>
+
+美丽的二次元3D模型 你在哪里...</blockquote>
+美丽的二次元3D模型在PS氪金榜上面<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
