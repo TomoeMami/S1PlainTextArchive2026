@@ -904,3 +904,12 @@ B站：[https://space.bilibili.com/491979247](https://space.bilibili.com/4919792
 还以为离婚官司打完了</blockquote>
 居然还得打官司吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  朋友费小号  
+##### 92#       发表于 2026-4-14 10:29
+
+居然离婚了？之前关注过这个姐们，然后发现只要不是提专业相关东西，和生活有关的言论越来越暴言和过激就没关注了，只知道结婚了
+
+刚刚刷到这楼点进主页发现很久没更新过，然后又翻半天动态发现没提到过自己老公，都是说朋友带她玩，感觉就是不是离婚了，结果跳到最后一看，还真离了
+
