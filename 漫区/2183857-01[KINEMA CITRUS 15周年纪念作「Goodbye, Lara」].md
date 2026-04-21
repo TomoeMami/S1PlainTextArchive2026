@@ -1096,3 +1096,39 @@ PV1：[https://youtu.be/c4-6PwVRRj8](https://youtu.be/c4-6PwVRRj8)
 
 已经要把豚哥吓跑了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过我感觉后面大概率有反套路
 
+*****
+
+####  Piano-Forest  
+##### 67#         楼主| 发表于 2026-4-17 17:03
+
+PV2：[https://youtu.be/-FVOUh7_obU](https://youtu.be/-FVOUh7_obU)
+
+
+*****
+
+####  堆雪若叶  
+##### 68#       发表于 2026-4-17 18:01
+
+原来茉里的奶奶是牧师，怪不得有个十字吊坠，感觉会是妈的遗物。之前pv里角度不一样没注意，放正面人设对比你俩是换了饱和度的兄弟吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/c5c319a0e24bb2681a6113f7df52906c/bg_chara04.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/d89f9980aed932dfba21f9a512b4f9f6/bg_chara06.png" referrerpolicy="no-referrer">
+
+中间还出现不少路人，感觉是不同单元剧里学人间之爱什么京紫
+
+
+*****
+
+####  MASKA-1  
+##### 69#       发表于 2026-4-17 21:55
+
+师徒情深<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/72a7560d3e991c6e67b37ebba638c130/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  闪光的肥耗子  
+##### 70#       发表于 2026-4-18 09:57
+
+op的名字也是再见拉拉，很有感觉
+
