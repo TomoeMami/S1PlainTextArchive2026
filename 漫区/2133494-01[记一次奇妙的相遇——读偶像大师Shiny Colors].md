@@ -1124,3 +1124,15 @@ enza落幕以前，如果还对当年的文章表现感兴趣的话。
 
 这两天衣装展览,美琴的マイコレlive面的图，脚底鹰的影子是用来表现ルカ，用剧情中出现的形象做类似的表现细节很多。
 
+*****
+
+####  shadowof  
+##### 54#         楼主| 发表于 2026-4-19 03:27
+
+刷Pcup刷一半，看到隔壁GBC手游新组合F-272的作者找了橋元優歩。
+
+通过Hellarts的，介绍的时候直接用代表作シャニマス在介绍，
+[https://www.youtube.com/watch?v=Jxx1WMFcK-U&amp;t=1620s](https://www.youtube.com/watch?v=Jxx1WMFcK-U&amp;t=1620s)
+
+图就不截了27分~
+
