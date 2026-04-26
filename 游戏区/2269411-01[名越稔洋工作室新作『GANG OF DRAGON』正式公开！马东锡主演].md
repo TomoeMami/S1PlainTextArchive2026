@@ -789,3 +789,71 @@ Steam页面截图更新
 
 NetEase to Stop Funding Nagoshi Studio as It Cuts Back on Gaming
 
+*****
+
+####  Piano-Forest  
+##### 90#         楼主| 发表于 2026-4-22 21:29
+
+名越工作室被发现已经删除了U管账号，官网上的部分文章也已经无法访问。不过官网本身及其新作《GANG OF DRAGON》的Steam页面目前都还在
+[https://www.nagoshistudio.com/news/2015](https://www.nagoshistudio.com/news/2015)
+
+
+*****
+
+####  liekong  
+##### 91#       发表于 2026-4-22 21:32
+
+这项目应该彻底黄了吧
+
+
+*****
+
+####  xisailuo  
+##### 92#       发表于 2026-4-22 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69523803&amp;ptid=2269411" target="_blank">liekong 发表于 2026-4-22 21:32</a>
+这项目应该彻底黄了吧</blockquote>
+两月份他们程序总监在领英就找工作了
+
+
+*****
+
+####  smdzh2  
+##### 93#       发表于 2026-4-23 01:41
+
+横山躺赢
+
+<img src="https://img.stage1st.com/forum/202604/23/024109bkk2bq331wv1tvwb.png" referrerpolicy="no-referrer">
+
+<strong>067 (2).png</strong> (413 Bytes, 下载次数: 0)
+
+下载附件
+
+2026-4-23 01:41 上传
+
+
+*****
+
+####  龙潜于渊  
+##### 94#       发表于 2026-4-23 02:14
+
+横山：如龙在手，笑看名狗<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  zzy516232108  
+##### 95#       发表于 2026-4-23 14:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看着几个宣传图就感觉窒息，打枪的镜头马东锡肥硕的身体挡住了半个屏幕，我还玩什么
+
+
+*****
+
+####  GrayishWh0  
+##### 96#       发表于 2026-4-23 15:00
+
+经此一事，以后还有人敢接盘名越吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
