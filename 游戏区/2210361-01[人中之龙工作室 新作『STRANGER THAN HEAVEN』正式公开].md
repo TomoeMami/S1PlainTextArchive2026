@@ -1020,3 +1020,21 @@ Look forward to exciting details and an all-star cast from around the world.
 从里面选5个 ...</blockquote>
 还有广岛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 107#         楼主| 发表于 2026-4-28 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69397805&amp;ptid=2210361" target="_blank">Piano-Forest 发表于 2026-3-27 01:14</a>
+
+新PV（首发XGP，5月6日新情报）：https://youtu.be/PGqkjDoyI8o
+
+An epic saga of men battling through fi ...</blockquote>
+人中之龙工作室全新作品《STRANGER THAN HEAVEN》的游戏全貌终于即将揭晓
+
+Xbox Presents: A Special Look at STRANGER THAN HEAVEN
+
+📅 5月7日（周四）
+
+🕑 北京时间早7:00
+
