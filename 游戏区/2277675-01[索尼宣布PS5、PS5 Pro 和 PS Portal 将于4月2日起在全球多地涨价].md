@@ -780,3 +780,43 @@ PS6我觉得机器1000欧，会员160欧一年，就差不多了
 
 —— 来自 motorola moto g stylus 5G (2022), Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+*****
+
+####  泰坦失足  
+##### 79#       发表于 2026-5-2 04:25
+
+[https://x.com/HazzadorGamin/status/2050266212501016989](https://x.com/HazzadorGamin/status/2050266212501016989)
+
+Sony 上调了翻新 PS5 Slim 的价格。
+
+• 光驱版：549.99 美元 - 449.99 美元
+
+• 数字版：499.99 美元 - 399.99 美元
+
+还记得你在2021年花499买到一台初代PS5光驱版的日子吗? 现在你只能买到一台翻新的PS5数字Slim版了
+
+
+*****
+
+####  牙晓  
+##### 80#       发表于 2026-5-2 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69408218&amp;ptid=2277675" target="_blank">泰坦失足 发表于 2026-3-29 09:34</a>
+
+https://x.com/xMBGx/status/2038036768755208409
+
+硬件爆料人 KeplerL2 透露，目前 PS6 的制造成本为 760  ...</blockquote>
+唯一根据就是索尼在PS6初期铺开销量的话，定价不会太离谱。。。不过游戏开发周期太久，我严重怀疑PS5官方生命期会撑到10年（2030年才发售PS6）
+
+而且大概率会和苹果一样初期就是高低配了，也就是机能没有区别，但是标配1T，高配2T这样，光驱版和数字版也是售价分开，市场划分更为细致
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 81#       发表于 2026-5-2 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69566015&amp;ptid=2277675" target="_blank">牙晓 发表于 2026-5-2 11:35</a>
+唯一根据就是索尼在PS6初期铺开销量的话，定价不会太离谱。。。不过游戏开发周期太久，我严重怀疑PS5官方 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只要保留m2槽，这种容量高低配就没啥意义吧
+
