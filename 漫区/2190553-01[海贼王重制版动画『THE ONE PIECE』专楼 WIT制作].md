@@ -836,3 +836,116 @@ WIT STUDIO（「SPY×FAMILY」「進撃の巨人」など）制作による
 
 闹麻了，制作人怎么好意思预热今晚的发表的。这么多年了，TV本篇都不知道做了多少高质量集数乃至顶级质量集数了，这都不用算上粉丝来信。东海篇需要这么长的时间？
 
+*****
+
+####  Piano-Forest  
+##### 55#         楼主| 发表于 2026-5-5 20:09
+
+「ONE PIECE」の新たなアニメシリーズとして、原作の「東の海（イーストブルー）編」第1話からを再びアニメ化していく「THE ONE PIECE」。シーズン1では原作50話分を描き、ルフィが海上レストラン・バラティエでサンジと出会うまでの物語を全7話、総尺約300分で描く。なお全7話は一挙配信される。コンセプトアートにはルフィが幼少期を過ごしたフーシャ村での一場面が描かれた。
+
+【特報】
+
+『THE ONE PIECE』が
+
+2027年2月Netflixにて配信決定🏴‍☠️
+
+シーズン1は原作マンガ50話分、
+
+ルフィたちがサンジと出会うまでを
+
+全7話・総尺約300分にて一挙配信！
+
+配信に先駆け
+
+第1話のコンセプトアートを公開しました。
+<img src="https://p.sda1.dev/32/b76d8f63493582ac183cfb69b1295829/20260505_200644.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/1611f3688be33bacbd82c05b122beb70/20260505_200719.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 56#         楼主| 发表于 2026-5-5 20:16
+
+官推：[https://x.com/theop_official](https://x.com/theop_official)
+
+第1季将覆盖原作漫画50话内容，讲述路飞等人与山治相遇之前的故事，共7集，总时长约300分钟，2027年2月一次性播出
+[https://one-piece.com/news/79329/index.html](https://one-piece.com/news/79329/index.html)
+
+
+*****
+
+####  dqtql  
+##### 57#       发表于 2026-5-5 20:54
+
+wit该打个翻身仗了，这几年蹉成啥样了
+
+—— 来自 Xiaomi 23054RA19C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  klzxs  
+##### 58#       发表于 2026-5-5 21:10
+
+50话最后一页是索隆和鹰眼开战前和娜美偷梅丽号回村
+
+奇怪的中断点
+
+
+*****
+
+####  M_K  
+##### 59#       发表于 2026-5-6 10:34
+
+来了来了，大的来了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 60#         楼主| 发表于 2026-5-6 17:54
+
+[https://m.weibo.cn/detail/5295361922175831](https://m.weibo.cn/detail/5295361922175831)
+
+WITSTUDIO霸权社董事・共同创办人中武哲也、制片人河村崚磨
+
+中武哲也：
+
+虽然目前关于重制版海贼王动画《THE ONE PIECE》的信息仅有少量公开，但我们核心团队在每一幕画面的打磨上所投入的力量，已经转化为强力的动画效果。
+
+虽然尚未公开任何片段，但我们有信心，它一定是值得骄傲展示的作品。
+
+希望大家能多多观看、享受其中。
+
+感谢大家的支持。
+
+河村崚磨：
+
+真正热爱《海贼王》的工作人员，正在认真踏实地制作这部作品！！
+
+这部动画一定能传递出我小时候感受到的那份激动与感动！！
+
+虽然距离上线还有一段时间，但我希望和各位观众一起营造热烈的氛围。
+
+概念设定图由梶野靖弘先生完成，
+
+负责设计、作画到上色！
+
+角色监督由浅野先生负责！
+
+如果有机会，也希望能在其他地方展示更多精彩的设计方案～
+
+
+*****
+
+####  Piano-Forest  
+##### 61#         楼主| 发表于 2026-5-7 23:11
+
+今年安纳西国际动画电影节现场将展示正片片段（不知道会不会线上公开）
+[https://about.netflix.com/en/news/annecy-2026-lineup](https://about.netflix.com/en/news/annecy-2026-lineup)
+
+Next on Netflix Animation: from Ghostbusters to Brad Bird’s Ray Gunn returns to Théâtre Bonlieu on Wednesday, 24 June. 
+
+Exclusive sneak peeks for Charlie vs. the Chocolate Factory and THE ONE PIECE as part of the Next on Netflix Animation Showcase
+
