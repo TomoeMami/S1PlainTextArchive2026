@@ -816,3 +816,18 @@ PV：[https://youtu.be/y5MiWXKGVyc](https://youtu.be/y5MiWXKGVyc)
 https://prem ...</blockquote>
 全片手绘但是因为一点点崩坏和绘画错误就被质疑是AI，这个时代真是不正常
 
+*****
+
+####  Piano-Forest  
+##### 88#         楼主| 发表于 2026-5-8 18:11
+
+【メインビジュアル解禁】
+
+共に。生きて、死ぬために
+
+劇場版『SEKIRO: NO DEFEAT』
+
+2026年9月4日より3週間限定上映決定
+
+<img src="https://p.sda1.dev/32/f4d3e54f82845d8bcc6e98df90f1f0a7/1000165948.jpg" referrerpolicy="no-referrer">
+
