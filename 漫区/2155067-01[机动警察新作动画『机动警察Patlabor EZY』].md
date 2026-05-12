@@ -1686,3 +1686,11 @@ pv里有零式和地狱使者
 <img src="https://s3.bmp.ovh/2026/03/20/U1Rr5dKR.png" referrerpolicy="no-referrer">
 <img src="https://s3.bmp.ovh/2026/03/20/UA7zgfJC.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 139#         楼主| 发表于 2026-5-9 15:03
+
+【機動警察パトレイバー EZY】メカニカルデザイン・海老川兼武、CG監督・森泉仁智オフィシャルインタビュー
+[https://animageplus.jp/articles/detail/66734](https://animageplus.jp/articles/detail/66734)
+
