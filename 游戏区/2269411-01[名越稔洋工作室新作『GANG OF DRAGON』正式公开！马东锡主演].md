@@ -857,3 +857,167 @@ NetEase to Stop Funding Nagoshi Studio as It Cuts Back on Gaming
 
 经此一事，以后还有人敢接盘名越吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  zzy516232108  
+##### 100#       发表于 2026-5-13 09:41
+
+我之前看有人分析龙帮steam截图可能是P的或者AI做的，比如手上拿M4结果左下角是手雷的错误，后续在去年12月下旬修复了这个问题
+
+关键如果有人要接盘龙帮，就相当于要给名越工作室赎身，不知道多少钱呢
+
+后续开发名越随口说个70e，真有日本冤大头愿意接手吗
+
+不知道马东锡有没有游戏梦，总之破碎了
+
+
+*****
+
+####  真岛建设泥头车  
+##### 101#       发表于 2026-5-13 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69611987&amp;ptid=2269411" target="_blank">zzy516232108 发表于 2026-5-13 09:41</a>
+
+我之前看有人分析龙帮steam截图可能是P的或者AI做的，比如手上拿M4结果左下角是手雷的错误，后续在去年12月 ...</blockquote>
+在死亡搁浅2里出演了也不算一点不剩吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不知道是谁联系的，名越和小岛是老朋友了，马东锡2023年7月28日去小岛工作室和8月6日名越工作室都是前后脚的
+
+
+*****
+
+####  stoiorz  
+##### 102#       发表于 2026-5-13 10:04
+
+这下彻底死了吧。名越出走后RGG能推个stranger than heaven，感觉是否是名越限制了横山的发挥？
+
+那边掏出来的还是如龙like，横山多少有点变化。
+
+算下来开发周期是3-4年左右的话，名越走后没多久就开始做了。现在只看pv，感觉还是挺好的。
+
+如果真是大卖，那就乐了。
+
+
+*****
+
+####  真岛建设泥头车  
+##### 103#       发表于 2026-5-13 10:47
+
+噫发现这个时间线，12月12日龙帮预告公开如龙正统在网易到撤资，龙组拿出异于天堂播片，5月12日名越工作室官网无法访问刚好整五个月
+
+
+*****
+
+####  stoiorz  
+##### 104#       发表于 2026-5-13 13:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">掏出毫无变化的如龙like的时候名越是否已经输了一半了呢？
+
+大家需要的不是下一个在歌舞伎町的故事，也不想看到一个出了sega之后只知道路径依赖的名越，缺少表达欲只会复制上一个自己的叫什么明星制作人。资本会为可能付费，可不会为摸得着边界的蛋糕付出成本。
+
+PV的反馈，点击，完播，评论，我寻思网易用了不到6个月就断臂了算是反应比较快了。
+
+
+*****
+
+####  byisme001  
+##### 105#       发表于 2026-5-13 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69611987&amp;ptid=2269411" target="_blank">zzy516232108 发表于 2026-5-13 09:41</a>
+我之前看有人分析龙帮steam截图可能是P的或者AI做的，比如手上拿M4结果左下角是手雷的错误，后续在去年12月 ...</blockquote>
+小岛的谍战游戏还有马东锡的
+
+
+*****
+
+####  センコウ  
+##### 106#       发表于 2026-5-13 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69613183&amp;ptid=2269411" target="_blank">stoiorz 发表于 2026-5-13 13:15</a>
+
+掏出毫无变化的如龙like的时候名越是否已经输了一半了呢？
+
+大家需要的不是下一个在歌舞伎町的故事，也不想 ...</blockquote>
+记得之前看过不确认真假的说名越几乎每天以接待的名义在他老婆开的夜店花天酒地，之前网易负责这块的人也没管，今年网易换人了查账发现问题不小
+
+
+*****
+
+####  stoiorz  
+##### 107#       发表于 2026-5-13 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69613281&amp;ptid=2269411" target="_blank">センコウ 发表于 2026-5-13 13:41</a>
+
+记得之前看过不确认真假的说名越几乎每天以接待的名义在他老婆开的夜店花天酒地，之前网易负责这块的人也 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">WY之前外投的人叫朱原，现在成立了新的公司，领投了lucas合作的星战啥的。不知道是不是这个人。
+
+*****
+
+####  zxlice  
+##### 108#       发表于 2026-5-13 13:47
+
+成品太垃圾直接砍了？
+
+*****
+
+####  センコウ  
+##### 109#       发表于 2026-5-13 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69613316&amp;ptid=2269411" target="_blank">zxlice 发表于 2026-5-13 13:47</a>
+
+成品太垃圾直接砍了？</blockquote>
+有没有成品都是问题，之前的播的可能是纯片，就是造假
+
+
+*****
+
+####  内秘心书  
+##### 110#       发表于 2026-5-13 14:52
+
+有没有能拉出来内部演示的都不好说，横 x 好歹是端出来一个不赖的 pv，虽然对剧本完全没有期待但看起来卖相还是挺好的
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zid99825  
+##### 111#       发表于 2026-5-13 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69613281&amp;ptid=2269411" target="_blank">センコウ 发表于 2026-5-13 13:41</a>
+
+记得之前看过不确认真假的说名越几乎每天以接待的名义在他老婆开的夜店花天酒地，之前网易负责这块的人也 ...</blockquote>
+名越以前在sega也是这样挂索尼的帐的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灼热的小市民  
+##### 112#       发表于 2026-5-13 17:05
+
+我说都是日本制作人除了岛哥哥都是cjb 网易有这闲钱不如给小岛，人家至少真能做出东西。
+
+*****
+
+####  センコウ  
+##### 97#       发表于 2026-5-12 23:17
+
+名越工作室官网已无法访问，彻底死球
+
+
+*****
+
+####  smdzh2  
+##### 98#       发表于 2026-5-13 00:49
+
+看到有人顶贴还以为找到新冤大头了
+
+
+*****
+
+####  伊丽虾皇VI  
+##### 99#       发表于 2026-5-13 08:16
+
+前几天隔壁异于天堂都讨论都还没完全下去，这边就凉完了啊，是不是完成度一对比道心破碎不挣扎了
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
