@@ -474,3 +474,12 @@ ip所有权在fs，大概率限时独占
 不过ns2独占，后期真不上pc了？ ...</blockquote>
 部分地区任天堂发行，我猜测会跟真女5一样，这游戏永久独占，但会出个强化版、终极版之类的登陆全平台
 
+*****
+
+####  Piano-Forest  
+##### 48#         楼主| 发表于 2026-5-14 22:30
+
+仍计划2026年发售
+<img src="https://p.sda1.dev/32/20578d1eb91c11ed1ef95ba511791f67/1000166471.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/a231caf69573297219a40e0e0bbe108a/1000166472.jpg" referrerpolicy="no-referrer">
+
