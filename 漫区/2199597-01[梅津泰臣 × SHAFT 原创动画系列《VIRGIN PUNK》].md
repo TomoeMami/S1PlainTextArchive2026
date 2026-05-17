@@ -2371,3 +2371,44 @@ Original interview and genga from Animage (May 2026).
 <img src="https://p.sda1.dev/32/94aa04b08552f10ef2229008106892b6/genga6.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/3e0bf75dff8f765df1759a30ba056ee5/genga2e.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  巴尔干炮  
+##### 234#       发表于 2026-5-13 22:32
+
+<img src="https://img.stage1st.com/forum/202605/13/223035yrrfb77b7xmr71l9.jpg" referrerpolicy="no-referrer">
+
+<strong>[MCE][Virgin Punk][01][Clockwork Girl][BDRip][GB][1080P][x264 AAC].mp4_20260513_.jpg</strong> (114.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-13 22:30 上传
+
+<img src="https://img.stage1st.com/forum/202605/13/223042e7q34x03qlo3v8lz.jpg" referrerpolicy="no-referrer">
+
+<strong>[MCE][Virgin Punk][01][Clockwork Girl][BDRip][GB][1080P][x264 AAC].mp4_20260513_.jpg</strong> (323.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-13 22:30 上传
+
+难怪最后这个妹子看着眼熟，原来前面作为路人登场过。
+
+
+*****
+
+####  7do  
+##### 235#       发表于 2026-5-14 23:43
+
+第二集什么时候出
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  杂灰  
+##### 236#       发表于 2026-5-14 23:57
+
+那至少是回天正常上映后才有能动，沙发套这波工期爆炸的厉害
+
