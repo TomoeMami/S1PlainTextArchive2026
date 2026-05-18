@@ -610,3 +610,32 @@ https://weibo.com/ttarticle/p/show?id=2309405283714090532989
 主要是想吐槽京极说的，难道二期那 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">公式书甚至依然没有花田
 
+*****
+
+####  仟音一心  
+##### 1833#       发表于 2026-5-13 21:56
+
+Liella！结女体育祭分队与队名公开，9月5、6日水虹应援出演：
+<img src="https://p.sda1.dev/32/8edd236f015af9f267a001b9471980fb/image.jpg" referrerpolicy="no-referrer">
+A队「あまとう（amatou）」：Liyuu、岬奈子、铃原希实、坂仓花。
+<img src="https://p.sda1.dev/32/d96be90224eeb2a703f7f637f729d1b4/image.jpg" referrerpolicy="no-referrer">
+ B队「BuBuBuBuBu♡」：伊达小百合、薮岛朱音、大熊和奏、结那。
+<img src="https://p.sda1.dev/32/2c45a905ec4eb95c7da2be5e27053dd4/image.jpg" referrerpolicy="no-referrer">
+ C队「右だC（migidac）」：Payton尚未、青山渚、绘森彩。
+<img src="https://p.sda1.dev/32/4ddc8a0b8c17c9fbf35cc523f5dec732/image.jpg" referrerpolicy="no-referrer">
+ 9月5日应援出演：相良茉优、田中千惠美。
+ 9月6日应援出演：齐藤朱夏、小林爱香。
+<img src="https://p.sda1.dev/32/b8d65ccba11ee798a4d5e3243fa29f40/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/a7a36af3b528a0d1b85ee69b84eaf9af/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 1834#       发表于 2026-5-15 23:46
+
+Nagi28岁
+<img src="https://p.sda1.dev/32/8c253a1e9412231817faca4e148fc845/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/8aed3178d9a47b9291188a6b27db0bae/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/bbda95f2d369fe345aa427989bdc1371/image.jpg" referrerpolicy="no-referrer">
+
