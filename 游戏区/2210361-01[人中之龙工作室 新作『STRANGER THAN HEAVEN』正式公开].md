@@ -2182,3 +2182,117 @@ pv质感太好了
 
 我是在想横皮尔博格都说出跟如龙基本没有关系这句话了，干吗不干脆从头就开始藏呢，他都把东城真拆成两个人了，完全可以做藏情报的宣传阿，把东城会起源这个情报藏到游戏发售，就当新IP宣传，虽然扔出神室町这个地名了，大家都会猜会不会东城会起源了，但发售前就不明说，吊吊胃口也不是不行吧，甚至神室町都可以藏到发售前最后一个PV再公布，第一个PV五个时代、五个地点最后一个就先扔出东京繁华街的字幕，不给神室町牌楼的画面，也不说是神室町，就先藏着，毕竟前面大阪用的是大阪南部，都没说是苍天堀。就这个PV的质量，把东城会相关的都藏起来也没关系，也够吸引人了吧。然后发售前最后一个PV扔出神室町的牌楼，也不说东城会起源，就等游戏发售后有人通关了最后才发现“果然是东城会起源”也算是个爆点了吧。现在既说是东城会起源，又要强调跟如龙没关系，老人物不会登场就很怪<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+*****
+
+####  isa2456  
+##### 225#       发表于 2026-5-18 22:09
+
+pv和主题曲太强了给我一下子期待起来了，还首发xgp，不得不玩了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 226#       发表于 2026-5-18 23:04
+
+搞了半天原来大部分都是tori唱的，ado也就唱了那么几句，闹麻了
+
+
+*****
+
+####  HellMaster  
+##### 227#       发表于 2026-5-19 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69637549&amp;ptid=2210361" target="_blank">hkguty 发表于 2026-5-18 23:04</a>
+搞了半天原来大部分都是tori唱的，ado也就唱了那么几句，闹麻了</blockquote>
+分别录了几版不一样的应该。
+
+
+*****
+
+####  stoiorz  
+##### 228#       发表于 2026-5-19 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69637549&amp;ptid=2210361" target="_blank">hkguty 发表于 2026-5-18 23:04</a>
+
+搞了半天原来大部分都是tori唱的，ado也就唱了那么几句，闹麻了</blockquote>
+别光把注意力全放在主题曲上嘛。
+
+游戏中主角作为producer，可以给ado拉场地做表演，应该还能给ado作曲。这样的话，应该能有不少歌曲。
+
+是不是还有服装和歌曲包作为dlc进行替换和补充啊。<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑修士  
+##### 229#       发表于 2026-5-19 11:07
+
+脑补了一下初代目版的达咩~达咩~达咩哟<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  otaku21126  
+##### 230#       发表于 2026-5-19 18:25
+
+ 本帖最后由 otaku21126 于 2026-5-19 18:28 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69601310&amp;ptid=2210361" target="_blank">asikies 发表于 2026-5-10 20:18</a>
+不能选性别这点就已经输给浪人崛起了。</blockquote>
+仁王2、3、卧龙、浪人崛起商业上爆死就是可选性别闹的
+自捏人物挤压过场动画发挥，导致这四部游戏的剧情被仁王1完爆，四作主角也进不了光荣其他作品联动
+进一步说，浪人崛起到底赢什么了，世界上真的能有游戏“输给”这个大失败作吗？商业爆死，DLC被砍，剧情一团糟，战斗系统既不如真正的忍组忍龙，也比不上白金的假忍龙
+
+虽然RGG做游戏本来就没打算让女人当主角，不过选择不跟风搞角色自定义，只能说横皮尔伯格才是真的懂游戏的director
+
+
+*****
+
+####  Demi.Albertini  
+##### 231#       发表于 2026-5-19 18:45
+
+公布了两个新卡司
+
+大东俊介 中谷一博
+
+
+*****
+
+####  wtyrambo  
+##### 232#       发表于 2026-5-19 18:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">中谷也有就别藏了，什么时候公布黑田崇矢和宇垣秀成
+
+
+*****
+
+####  byisme001  
+##### 233#       发表于 2026-5-19 19:10
+
+大东俊介脸模回归吗
+
+
+*****
+
+####  han110022  
+##### 234#       发表于 2026-5-19 20:44
+
+中谷那个视频里说是没出演来蹭饭的，当然实际怎么样不好说就是了
+
+
+*****
+
+####  冰风血羽  
+##### 235#       发表于 2026-5-19 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69600845&amp;ptid=2210361" target="_blank">葛葉景明 发表于 2026-5-10 17:57</a></blockquote>
+【异于「世外」天堂：《合金装备》PV还原 · 4K GMV】 [https://www.bilibili.com/video/BV1W1LJ6MEeN](https://www.bilibili.com/video/BV1W1LJ6MEeN)<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Demi.Albertini  
+##### 236#       发表于 2026-5-19 23:59
+
+中谷在推上一遍遍说自己没参与…………总让人感觉过度热情了……
+
