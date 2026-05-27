@@ -1536,3 +1536,82 @@ wiki上说5个祠堂后可以去湾岸市场隐藏商店买晶纹，这个入口
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+*****
+
+####  11--  
+##### 115#       发表于 2026-5-23 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68114457&amp;ptid=2256342" target="_blank">blackll7 发表于 2025-7-17 19:07</a>
+
+其实这游戏最强势的是luck固伤队，从过完教程能强势到最后，不过需要跑酷拿key装。 ...</blockquote>
+刚开玩，能细说下么？
+
+
+*****
+
+####  blackll7  
+##### 116#       发表于 2026-5-23 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69661283&amp;ptid=2256342" target="_blank">11-- 发表于 2026-5-23 16:42</a>
+
+刚开玩，能细说下么？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">出了序章以后可以跑酷拿到所有伤害增加luc点的首饰，然后黄魂里有加大额luc的，都拿到以后绿毛天生高幸运+低费低伤aoe可以随意清杂鱼，多段攻击可以靠附加伤害打出爆炸伤害。
+
+
+*****
+
+####  11--  
+##### 117#       发表于 2026-5-23 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69662076&amp;ptid=2256342" target="_blank">blackll7 发表于 2026-5-23 20:54</a>
+
+出了序章以后可以跑酷拿到所有伤害增加luc点的首饰，然后黄魂里有加大额luc的，都拿到以后绿毛天生高幸运+ ...</blockquote>
+我翻wiki，伤害+luck值的好像就一件：
+
+ラッキーチャーム        －        聖装        0        0        0        0        0        0        12        36                                ダメージ量・回復量計算後 その値に+LUK                        [宝]花畑の洞窟 地下1階
+
+这迷宫我看还给先清个支线才能拿到：花蓮の鍵
+
+而且我现在不知道是不是过序章了，刚组好工会要去黎明神殿。我看上面的宝箱所在迷宫都不在当前这个岛上<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+还有初期是不是就用那些计算公式里带luk的？我看这汉化版的技能就炼金术士的几个计算公式有luk。
+
+
+*****
+
+####  blackll7  
+##### 118#       发表于 2026-5-23 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69662133&amp;ptid=2256342" target="_blank">11-- 发表于 2026-5-23 21:11</a>
+
+我翻wiki，伤害+luck值的好像就一件：
+
+ラッキーチャーム        －        聖装        0        0        0        0        0        0        12        36                                ダメージ量・回復 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">初期就正常打就好，这游戏可以完全破序，不推主线地图上随便跑
+
+
+*****
+
+####  江戸前ルナ  
+##### 119#       发表于 2026-5-23 22:57
+
+ 本帖最后由 江戸前ルナ 于 2026-5-23 23:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69662076&amp;ptid=2256342" target="_blank">blackll7 发表于 2026-5-23 20:54</a>
+
+出了序章以后可以跑酷拿到所有伤害增加luc点的首饰，然后黄魂里有加大额luc的，都拿到以后绿毛天生高幸运+ ...</blockquote>
+拿终盘装备试了下，堆到面板快600的LUK。打小怪AOE应该是用龙骑士那些龙息技能吧，效果还是不如剑BUFF攻2+枪职的AOE暴力，单体就更不如倍率6的燕返。但优点还是很明显的，AOE消耗比龙职低很多而且不依赖职业/武器属性，单体不用猴戏N保1上N个BUFF也不用担心吃攻减，简简单单一个黄三角一个LUCKUP最多再加个二动。
+
+话说多HIT技能用哪个好？一时没找到合适的。贼的三连？还是弓手的平A3连？不过多HIT物理还是有个致命的弱点，对面一上CT就是自杀<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blackll7  
+##### 120#       发表于 2026-5-24 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69662528&amp;ptid=2256342" target="_blank">江戸前ルナ 发表于 2026-5-23 22:57</a>
+拿终盘装备试了下，堆到面板快600的LUK。打小怪AOE应该是用龙骑士那些龙息技能吧，效果还是不如剑BUFF攻2+ ...</blockquote>
+附加伤害无视防御减伤抗性和伤害降低，直接忍者二动
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
