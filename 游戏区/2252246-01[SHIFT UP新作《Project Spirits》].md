@@ -411,3 +411,12 @@ PC、コンソール、モバイルのクロスプラットフォーム展開を
 <img src="https://p.sda1.dev/32/5ad943798122360c67656a2aea289f3f/1000166173.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/5c7a432c3230050e6353e3cd5db176f7/1000166175.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 45#         楼主| 发表于 2026-5-26 17:54
+
+1Q26（2026年第一季度财报）
+<img src="https://p.sda1.dev/32/f34353af766c393579388dd88a43613d/1000166934.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/5d6d4a841952597c3281f66ee575b300/1000166935.jpg" referrerpolicy="no-referrer">
+
