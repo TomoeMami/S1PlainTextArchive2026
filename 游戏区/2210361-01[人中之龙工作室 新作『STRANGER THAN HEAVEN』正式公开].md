@@ -2296,3 +2296,11 @@ pv和主题曲太强了给我一下子期待起来了，还首发xgp，不得不
 
 中谷在推上一遍遍说自己没参与…………总让人感觉过度热情了……
 
+*****
+
+####  黑修士  
+##### 237#       发表于 2026-5-29 19:32
+
+这个翻唱版本也不错
+[https://www.bilibili.com/video/BV17ULw6GEEu](https://www.bilibili.com/video/BV17ULw6GEEu)
+
