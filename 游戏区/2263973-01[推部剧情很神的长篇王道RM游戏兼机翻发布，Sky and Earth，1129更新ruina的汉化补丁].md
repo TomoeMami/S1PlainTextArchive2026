@@ -3205,3 +3205,12 @@ https://skyandearth.wiki.fc2.com/m/
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+*****
+
+####  锐鬼niki  
+##### 279#       发表于 2026-6-2 09:19
+
+ 本帖最后由 锐鬼niki 于 2026-6-2 09:21 编辑 
+
+通关了，真是一个好故事，感谢大佬们的翻译。接下来打算玩同一作者的千年时计。
+
