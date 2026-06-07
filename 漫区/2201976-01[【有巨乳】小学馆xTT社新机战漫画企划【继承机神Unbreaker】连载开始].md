@@ -986,3 +986,53 @@ Manga One上显示下周三更新……
 感谢了二代目担当编辑没有一代目 那看来是前任编辑作妖了？</blockquote>
 那不一定，你日在涉及到工作交割时可能发生的夭蛾子种类繁多，前任作妖这种讲真都能算好的了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  王九的哥哥  
+##### 93#       发表于 2026-6-3 20:16
+
+<img src="https://img.stage1st.com/forum/202606/03/211444vg9gc9u0g33uocuu.png" referrerpolicy="no-referrer">
+
+<strong>S2VG%(O[ZG2R5KWZLML9GA7.png</strong> (77.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 20:14 上传
+
+喷了，今天奸笑社新萝卜企划最后公布的漫画化计划又是他，我说这女乃子怎么这么眼熟……
+
+现在就不知道小学馆这边漫画死掉是单纯没人气还是中间被奸笑社直接挖走人了……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+要是后者那得是高级商战了吧……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顺便消息链接，等人开专楼<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[https://hobby.dengeki.com/event/3034188/#google_vignette](https://hobby.dengeki.com/event/3034188/#google_vignette)
+
+
+*****
+
+####  JuicyJuice  
+##### 94#         楼主| 发表于 2026-6-3 20:47
+
+<blockquote>王九的哥哥 发表于 2026-6-3 20:16
+喷了，今天奸笑社新萝卜企划最后公布的漫画化计划又是他，我说这女乃子怎么这么眼熟……
+
+现在就不知道小 ...</blockquote>
+这片子tt也参与了 感觉是tt拉来的 所以问题应该出在小学馆吧
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 95#       发表于 2026-6-3 21:04
+
+人设不如上一本好，看来是因为不能携作品转杂志
+
+
+*****
+
+####  八坂真寻  
+##### 96#       发表于 2026-6-4 16:49
+
+去奸笑发财了，这明显是被挖了呗
+
