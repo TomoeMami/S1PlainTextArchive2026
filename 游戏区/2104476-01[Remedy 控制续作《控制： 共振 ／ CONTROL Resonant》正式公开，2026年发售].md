@@ -906,3 +906,63 @@ DMC鬼泣
 这作要是还不太成功，Remedy可能就得大变样了
 1月份上任的新CEO的背景是“体-育-博-彩”和EA、CCP(EVE那家)的执行官之一，并且准备“scale Remedy in a way that builds lasting value”噢
 
+*****
+
+####  缺德猫  
+##### 100#       发表于 2026-6-6 12:37
+
+音乐好听捏
+
+
+*****
+
+####  pwzzy  
+##### 101#       发表于 2026-6-6 12:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">他这动作游戏总不能比上代的打枪做的还无聊了吧？
+
+*****
+
+####  Piano-Forest  
+##### 95#         楼主| 发表于 2026-6-3 05:43
+
+9月24日发售
+
+
+*****
+
+####  byisme001  
+##### 96#       发表于 2026-6-3 17:58
+
+上个月总监豪言壮语的说发售时间无惧gta6 结果还是避其锋芒两个月 另外一个地铁新作也这么说 看具体发售日吧
+
+
+*****
+
+####  FBC档案部专员  
+##### 97#       发表于 2026-6-4 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715475&amp;ptid=2104476" target="_blank">byisme001 发表于 2026-6-3 17:58</a>
+
+上个月总监豪言壮语的说发售时间无惧gta6 结果还是避其锋芒两个月 另外一个地铁新作也这么说 看具体发售日 ...</blockquote>
+我还希望暑假能玩上而不是挤到9月呢
+
+
+*****
+
+####  水边井  
+##### 98#       发表于 2026-6-6 11:42
+
+【《控制：共振》超自然曼哈顿预告片 | 夏日游戏节 2026】 [https://www.bilibili.com/video/B ... 5dc821bf95f0f112e8b](https://www.bilibili.com/video/BV1kR7m6QE3r/?share_source=copy_web&amp;vd_source=402b6913c4d755dc821bf95f0f112e8b) 主题曲超级上头
+
+【《控制：共振》- 10分钟未公开实机演示】 [https://www.bilibili.com/video/B ... 5dc821bf95f0f112e8b](https://www.bilibili.com/video/BV1ot7m6gERQ/?share_source=copy_web&amp;vd_source=402b6913c4d755dc821bf95f0f112e8b) 战斗场景黑糊糊的还有马拉松逼，战斗体验不会特别好，为了美术牺牲太多
+
+
+*****
+
+####  thez  
+##### 99#       发表于 2026-6-6 12:06
+
+这大黑大红比仁王还瞎眼，我看头晕了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
