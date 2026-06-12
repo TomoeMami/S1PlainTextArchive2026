@@ -2048,3 +2048,308 @@ GF版剑星，但是没有换装
 
 哪有那么容易有其他剑星，近期红沙和谐等事件再次让我明白，人对体面的执着是不可能被压抑的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  卢迪克  
+##### 199#       发表于 2026-6-7 10:39
+
+六月新情报
+
+<img src="https://img.stage1st.com/forum/202606/07/103929nf0qh1f1cdhcftu0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-7 10:39 上传
+
+
+*****
+
+####  Piano-Forest  
+##### 200#         楼主| 发表于 2026-6-8 09:21
+
+Beast of Reincarnation developer interview - PC Gaming Show 2026
+[https://youtu.be/j8alvtOCRk0](https://youtu.be/j8alvtOCRk0)
+
+
+*****
+
+####  Piano-Forest  
+##### 201#         楼主| 发表于 2026-6-8 09:21
+
+主人公エマ役は石川由依
+
+出演者：佐藤みゆ希、大塚明夫、諸星すみれ、小林ゆう、石田彰、三上哲、佐藤利奈、金尾哲夫（敬称略）
+
+
+*****
+
+####  hkguty  
+##### 202#       发表于 2026-6-8 09:36
+
+怎么又是你！
+
+
+*****
+
+####  今天不守尸  
+##### 203#       发表于 2026-6-8 10:30
+
+毕竟是和风尼尔，肯定要用御用声优<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nage560  
+##### 204#       发表于 2026-6-8 10:31
+
+本来这游戏一看就看出是借鉴的机械纪元，看见前面说借鉴剑星的实在无语，这下确定石川由依给女主配音，总算能让借鉴剑星说的闭嘴了。
+
+
+*****
+
+####  Piano-Forest  
+##### 205#         楼主| 发表于 2026-6-8 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737970&amp;ptid=2253295" target="_blank">Piano-Forest 发表于 2026-6-8 09:21</a>
+
+Beast of Reincarnation developer interview - PC Gaming Show 2026
+
+https://youtu.be/j8alvtOCRk0</blockquote>
+【《轮回之兽》开发幕后宣传视频】 
+[https://b23.tv/UOGpzhD](https://b23.tv/UOGpzhD)
+
+
+*****
+
+####  卢迪克  
+##### 206#       发表于 2026-6-8 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737979&amp;ptid=2253295" target="_blank">Piano-Forest 发表于 2026-6-8 09:21</a>
+
+主人公エマ役は石川由依
+
+出演者：佐藤みゆ希、大塚明夫、諸星すみれ、小林ゆう、石田彰、三上哲、佐藤利奈 ...</blockquote>
+花江不在
+
+
+*****
+
+####  zhuzeitou  
+##### 207#       发表于 2026-6-8 21:11
+
+gf是不是怕褒姒才让微软买单
+
+
+*****
+
+####  martinoy  
+##### 208#       发表于 2026-6-9 02:10
+
+看预告确实感觉很尼尔，剑星本身也是受尼尔影响
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  laputah  
+##### 209#       发表于 2026-6-9 07:46
+
+女主这一身也太低调了 2b只是一身黑可不是什么路人甲啊 
+
+
+*****
+
+####  卢迪克  
+##### 210#       发表于 2026-6-9 09:24
+
+<img src="https://img.stage1st.com/forum/202606/09/092403a0r0q3eqt0r52a06.png" referrerpolicy="no-referrer">
+
+<strong>37d5a8cff708590b42674fa200dc409f.png</strong> (83.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 09:24 上传
+
+<img src="https://img.stage1st.com/forum/202606/09/092411i7abx37zzb8mtiv8.png" referrerpolicy="no-referrer">
+
+<strong>ffa2b519e356d2447fdff596965c8a31.png</strong> (56.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 09:24 上传
+
+<img src="https://img.stage1st.com/forum/202606/09/092419hyxfoa66ar8wr66x.png" referrerpolicy="no-referrer">
+
+<strong>c45d00747f76133efa47c24e43bb923d.png</strong> (43.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 09:24 上传
+
+<img src="https://img.stage1st.com/forum/202606/09/092426d16k9koisa1a62pj.png" referrerpolicy="no-referrer">
+
+<strong>d4cd7b08e5ad3a832473029cae164608.png</strong> (77.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 09:24 上传
+
+*****
+
+####  Mephisto  
+##### 211#       发表于 2026-6-9 09:25
+
+还剩两个月一段实机也没有吗
+
+
+*****
+
+####  hkguty  
+##### 212#       发表于 2026-6-9 09:34
+
+像尼尔还是像剑星不就是像妈还是像姐姐的问题，不过几次玩法展示了很多打铁的段子，尼尔没有打铁
+
+
+*****
+
+####  ALLMIND  
+##### 213#       发表于 2026-6-9 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737979&amp;ptid=2253295" target="_blank">Piano-Forest 发表于 2026-6-8 09:21</a>
+
+主人公エマ役は石川由依
+
+出演者：佐藤みゆ希、大塚明夫、諸星すみれ、小林ゆう、石田彰、三上哲、佐藤利奈 ...</blockquote>
+盲猜一个石头BOSS役
+
+
+*****
+
+####  病態極端  
+##### 214#       发表于 2026-6-9 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69742980&amp;ptid=2253295" target="_blank">卢迪克 发表于 2026-6-9 09:24</a></blockquote>
+女主的服設不如其他女人亮眼啊
+
+
+*****
+
+####  虚无连斩  
+##### 215#       发表于 2026-6-9 10:22
+
+之前看到过有摘了斗笠和外套的女主的截图，太平了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zqqwe  
+##### 216#       发表于 2026-6-9 10:41
+
+其实后者模仿者都去掉了尼尔系列里横尾xp的弹幕元素对整体游戏性还是正面作用的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前演示里同时有空连和打铁算是集两家之长，但狗的指令qte感觉很断节奏
+
+
+*****
+
+####  医生狼多  
+##### 217#       发表于 2026-6-9 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69743537&amp;ptid=2253295" target="_blank">zqqwe 发表于 2026-6-9 10:41</a>
+其实后者模仿者都去掉了尼尔系列里横尾xp的弹幕元素对整体游戏性还是正面作用的目前演示里同时有空连和打铁 ...</blockquote>
+可以给个狗狗自动qte戒指(
+
+
+*****
+
+####  卢迪克  
+##### 218#       发表于 2026-6-9 11:01
+
+人物设计：内田パブロ
+
+<img src="https://img.stage1st.com/forum/202606/09/110128c6o849nmoldear6h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 11:01 上传
+
+<img src="https://img.stage1st.com/forum/202606/09/110149s9ot6anzofzov0vk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 11:01 上传
+
+
+*****
+
+####  卢迪克  
+##### 219#       发表于 2026-6-9 11:32
+
+有属性，boss是火，狗是草，宝可梦说是
+
+<img src="https://img.stage1st.com/forum/202606/09/113055iw05xrfvvvx2j4ei.png" referrerpolicy="no-referrer">
+
+<strong>ac2daca2c27a18934f7960d67431b422.png</strong> (95.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 11:30 上传
+
+
+*****
+
+####  hkguty  
+##### 220#       发表于 2026-6-9 11:49
+
+这画师画的小岛游戏还有闪哈的那几张人物海报确实挺不错，估计这游戏后面也会有一张类似的宣传图
+
+
+*****
+
+####  汪达  
+##### 221#       发表于 2026-6-9 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69742990&amp;ptid=2253295" target="_blank">Mephisto 发表于 2026-6-9 09:25</a>
+
+还剩两个月一段实机也没有吗</blockquote>
+有玩法介绍视频
+
+【【IGN】《轮回之兽》玩法概览预告】 [https://www.bilibili.com/video/BV1VczNBvEDD/](https://www.bilibili.com/video/BV1VczNBvEDD/)
+
+
+*****
+
+####  Piano-Forest  
+##### 222#         楼主| 发表于 2026-6-9 12:30
+
+・エマ(CV:石川由依)
+
+・クゥ
+
+・ヴァイオレット(CV:佐藤みゆ希)
+
+・ブラッド(CV:大塚明夫)
+
+・カグラ(CV:諸星すみれ)
+
+・クナイ(CV:小林ゆう)
+
+<img src="https://p.sda1.dev/32/e1a3a8cc57c27ed805fcbd69319b84bd/0064O7Xmly1idyxvauzm5j31xk3b5b2c.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/904a6a2d3e423d165601b51281920d72/0064O7Xmly1idyxvbj7m7j30mw0fz7ap.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/a18c85a7a49c9f9f77d8262235ac3c3f/0064O7Xmly1idyxvdqk49j32693ckqv8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/53549b78df121028d73d661e479c18ed/0064O7Xmly1idyxvgf7vfj32553hi1l0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/26377bb2bc95e97ab3d7284c1f3ed37d/0064O7Xmly1idyxvi5shgj31b83hi1ky.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/6fb5a4905734394c9e06a8e8a259b630/0064O7Xmly1idyxvkc4lyj31pn3edkjn.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NaYo丶  
+##### 223#       发表于 2026-6-9 19:56
+
+阿飘不错
+
