@@ -1410,3 +1410,486 @@ PS：
 <img src="https://p.sda1.dev/31/d5e5e22c8e0e6875147574d463a5e9aa/1000162946.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/31/da4e1ff11ae187240513a5cefe5bead2/1000162942.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 121#         楼主| 发表于 2026-6-9 22:53
+
+新PV：[https://youtu.be/ZHEB4tmezDk](https://youtu.be/ZHEB4tmezDk)
+
+登陆NS2平台
+
+*****
+
+####  抹茶瓜  
+##### 122#       发表于 2026-6-9 22:54
+
+问到了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  美军冲滩了吗？  
+##### 123#       发表于 2026-6-9 22:57
+
+系列老粉丝表示情绪稳定，按照惯例，中间搞不好要插几个冷饭外传
+
+
+*****
+
+####  美军冲滩了吗？  
+##### 124#       发表于 2026-6-9 22:58
+
+<blockquote>虚无连斩 发表于 2022-4-10 19:26
+索拉这脸……这脸……从少年一下变成了成年啊……</blockquote>
+按照惯例应该是变成了这个世界的画风而已，离开这个世界又会变回原来的样子
+
+*****
+
+####  88is88  
+##### 125#       发表于 2026-6-9 22:58
+
+这片没意思啊，还是在涉谷打，关键的迪士尼部分是一点没有
+
+*****
+
+####  无动于衷  
+##### 126#       发表于 2026-6-9 22:59
+
+这画面，你跟我说是虚幻五？？
+
+*****
+
+####  lower  
+##### 127#       发表于 2026-6-9 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748054&amp;ptid=2063712" target="_blank">Piano-Forest 发表于 2026-6-9 22:53</a>
+
+新PV：https://youtu.be/ZHEB4tmezDk
+
+登陆NS2平台</blockquote>
+这是 duskblood 的 pv 啊
+
+
+*****
+
+####  Piano-Forest  
+##### 128#         楼主| 发表于 2026-6-9 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748276&amp;ptid=2063712" target="_blank">lower 发表于 2026-6-9 23:00</a>
+
+这是 duskblood 的 pv 啊</blockquote>
+抱歉，已编辑（可能是YouTube地址一次性复制的有些多乱了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  戏言学者  
+##### 129#       发表于 2026-6-9 23:06
+
+这几个模型惊呆了我了？！怎么会这么油腻？！
+
+*****
+
+####  すぴぱら  
+##### 130#       发表于 2026-6-9 23:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是 这画面和当初的pv差的有点多啊
+
+*****
+
+####  Piano-Forest  
+##### 131#         楼主| 发表于 2026-6-9 23:06
+
+ 本帖最后由 Piano-Forest 于 2026-6-9 23:10 编辑 
+
+先导PV：[https://youtu.be/_vlKStRH3Oo](https://youtu.be/_vlKStRH3Oo)
+
+「キングダム ハーツ」シリーズ最新作『キングダム ハーツIV』の最新トレーラーを公開！
+
+対応機種も同時に発表！
+
+Nintendo Switch™ 2 / PlayStation®5 / Xbox Series X|S / Microsoft Store on Windows / Steam / Epic Games Store　
+
+《ストーリー》
+
+主人公ソラは見知らぬ世界で目を覚ます。
+
+“クァッドラトゥム”という、現代の東京に似たこの世界からソラは元の世界へと戻ろうとするが─
+
+一方、ドナルドとグーフィーはソラの手掛かりを求め冥界に訪れるのだった。
+
+《ダイナミックなアクションバトル》
+
+簡単な操作で多彩なアクションを繰り出し、スピード感あふれるダイナミックなバトルが展開。
+
+状況に応じて魔法を駆使したり、本作で新たに加わった「ビルド」によって、戦い方の幅がさらに広がります。
+
+《「キーブレード」による固有のアクション》
+
+主人公ソラが持つ鍵型の武器「キーブレード」は、種類ごとに異なるアクションを持ち、戦略に応じて戦い方が変化します。
+
+■■「キングダム ハーツ」シリーズとは■■
+
+「キングダム ハーツ」シリーズは、ディズニーとスクウェア・エニックスから生まれたロールプレイングゲームです。2002年3月に第1作目「キングダム ハーツ」（対応機種：プレイステーション2）を発売して以来、これまでに13作品（ファイナルミックス版も含めると20作品）を発表し、全世界で累計3,900万本以上（※1）を出荷・販売する人気シリーズとなっています。 　※1：2026年3月末時点
+
+*****
+
+####  戏言学者  
+##### 132#       发表于 2026-6-9 23:06
+
+<img src="https://img.stage1st.com/forum/202606/09/230656ixonznnceov5ixqz.png" referrerpolicy="no-referrer">
+
+<strong>f7e9db8b7f5bcb1a9eff3d3886fb8e68.png</strong> (123.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:06 上传
+
+*****
+
+####  北野苍术  
+##### 133#       发表于 2026-6-9 23:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">大家都变得好写实啊好不习惯……
+
+*****
+
+####  iou90  
+##### 134#       发表于 2026-6-9 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160954&amp;ptid=2063712" target="_blank">Piano-Forest 发表于 2024-6-8 23:51</a>
+2026年</blockquote>
+目前看不可能了 2027都悬 今天来个日子都不给 
+
+或许是要在 ff7rev 之后再给日子？最快2027秋感觉...
+
+*****
+
+####  虚无连斩  
+##### 135#       发表于 2026-6-9 23:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来来来，大家猜猜野村会不会继续塞V13私货
+
+*****
+
+####  跑调跑掉  
+##### 136#       发表于 2026-6-9 23:11
+
+应该是ns2版的画面吧，乐观估计有机会明年下半年出
+
+
+*****
+
+####  Aeroblast  
+##### 137#       发表于 2026-6-9 23:12
+
+看样子首发全平台，SE想开了啊
+
+*****
+
+####  TheOccuria  
+##### 138#       发表于 2026-6-9 23:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">依旧没发售日这一块
+
+*****
+
+####  suzakushi  
+##### 139#       发表于 2026-6-9 23:13
+
+ND上放的肯定是NS2版画面啊，还是说觉得之前演示过的画面NS2跑得动？
+
+*****
+
+####  plusfive  
+##### 140#       发表于 2026-6-9 23:14
+
+1-3的NS2版还是云游戏版吗？见只有下载版……
+
+*****
+
+####  zqqwe  
+##### 141#       发表于 2026-6-9 23:15
+
+一点迪士尼世界要素都没放还行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 142#       发表于 2026-6-9 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748506&amp;ptid=2063712" target="_blank">虚无连斩 发表于 2026-6-9 23:11</a>
+
+来来来，大家猜猜野村会不会继续塞V13私货</blockquote>
+戴口罩那个黑发男子就是v13版诺克特吧
+
+*****
+
+####  抹茶瓜  
+##### 143#       发表于 2026-6-9 23:23
+
+年轻光头真跟预测的一样来帮忙了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 144#         楼主| 发表于 2026-6-9 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69410717&amp;ptid=2063712" target="_blank">Piano-Forest 发表于 2026-3-29 19:58</a>
+
+野村哲也 王国之心24周年纪念贺图「25周年に向けて頑張り中です」
+
+“正在为系列25周年努力准备中，感谢大家 ...</blockquote>
+<img src="https://p.sda1.dev/32/ba794d661720c3269b60b571aa82cb48/1000167933.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  炯Ⅺ  
+##### 145#       发表于 2026-6-9 23:34
+
+首发全平台，SE终于是开窍了。
+希望2027年下半年能玩上吧。
+
+—— 来自 OnePlus PKX110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  黑上シグマ  
+##### 146#       发表于 2026-6-9 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748566&amp;ptid=2063712" target="_blank">plusfive 发表于 2026-6-9 23:14</a>
+
+1-3的NS2版还是云游戏版吗？见只有下载版……</blockquote>
+三部放一起有实体版的
+
+
+*****
+
+####  wakatoro  
+##### 147#       发表于 2026-6-9 23:41
+
+看这预告片就让我想起前几天看古剑的感觉，“该露脸的时候，把屁股露出来了”。遥想当年看kh3的预告片，还在惊叹于相比kh2的进化程度。等十年后亲自玩到的时候发现，不能说没进化吧，就是这缩水程度纯纯的诈骗。
+
+今天这片子看着也是什么新东西没有，就像野村哲也本人
+
+*****
+
+####  ShiKi847  
+##### 148#       发表于 2026-6-9 23:44
+
+看这完成度，2027还是有希望的
+
+*****
+
+####  すぴぱら  
+##### 149#       发表于 2026-6-9 23:45
+
+主要这片子不像野村的手法 因为屁话不够多<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 150#         楼主| 发表于 2026-6-10 00:51
+
+[https://weibo.com/6182687946/5308034589131691](https://weibo.com/6182687946/5308034589131691)
+
+#KINGDOM HEARTS# 系列最新作品#KINGDOM HEARTS IV# 公开最新宣传影片！
+
+同时公开支持平台
+
+PlayStation®5、Xbox Series X|S、Windows、Nintendo Switch™ 2 
+
+Steam、Epic Games Store　
+
+【故事】
+
+主角索拉在陌生的世界苏醒。
+
+这个名为“方正之城”的世界与现代东京极为相似，索拉试图从这里回到原本的世界，然而……
+
+另一方面，唐老鸭与高飞为了寻找关于索拉的线索而前往冥界。
+
+【动感十足的动作战斗】
+
+通过简单操作即可施展多彩多姿的动作，展开充满速度感、动感十足的战斗。
+
+除了能根据战况灵活运用魔法，本作新加入的“构筑”系统，也让战斗方式更加丰富。
+
+【“钥刃”的专属动作】
+
+主角索拉所持的钥匙型武器“钥刃”，会根据种类拥有不同动作，并可配合战略改变战斗方式。
+
+■■“KINGDOM HEARTS”系列简介■■
+
+“KINGDOM HEARTS”系列是迪士尼与SQUARE ENIX共同打造的角色扮演游戏。自2002年3月首部作品《KINGDOM HEARTS》（支持平台：PlayStation2）上市以来，已经推出了13部作品（若将Final Mix版计算在内则为20部），全球累计出货、贩售量超过3,900万套（※1），已成为广受欢迎的系列。
+
+※1：截至2026年3月底
+
+
+*****
+
+####  qiyu1234  
+##### 151#       发表于 2026-6-10 00:58
+
+主要是这片做的有点赶，对比野村过往的片来说有失水准
+
+特别最后那段巨大无心把大楼破坏后转场无辜市民演出的镜头转换，虽然3代也这样，但片里这么生硬的切换也确实看着很怪
+
+*****
+
+####  nage560  
+##### 152#       发表于 2026-6-10 00:59
+
+一堆吐槽画面缩水的......这是NS2版的宣传啊，亲。
+
+
+*****
+
+####  nanonya2  
+##### 153#       发表于 2026-6-10 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748566&amp;ptid=2063712" target="_blank">plusfive 发表于 2026-6-9 23:14</a>
+1-3的NS2版还是云游戏版吗？见只有下载版……</blockquote>
+不是云游戏。
+以前买过云游戏版的，可以继承存档。
+
+
+*****
+
+####  森兰丸  
+##### 154#       发表于 2026-6-10 01:32
+
+给索拉撑伞的是年轻的泽阿诺特?
+
+当了这么多年BOSS这就洗白了啊.......<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 155#         楼主| 发表于 2026-6-10 01:34
+
+25周年纪念特设页面
+[https://www.jp.square-enix.com/kingdom/25th/](https://www.jp.square-enix.com/kingdom/25th/)
+
+
+*****
+
+####  ——裂锦——  
+##### 156#       发表于 2026-6-10 02:00
+
+<blockquote>虚无连斩 发表于 2026-6-9 23:11
+来来来，大家猜猜野村会不会继续塞V13私货</blockquote>
+赌徒的本体就是夜空的司机啊，对应v13里我记得是不死将军来着吧？
+
+
+*****
+
+####  z692689995  
+##### 157#       发表于 2026-6-10 04:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748679&amp;ptid=2063712" target="_blank">洛克萨斯 发表于 2026-6-9 23:22</a>
+
+戴口罩那个黑发男子就是v13版诺克特吧</blockquote>
+<img src="https://kh.wiki.gallery/images/a/ab/Vali_KHDR.png" referrerpolicy="no-referrer">
+
+手游的角色<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  h122h  
+##### 158#       发表于 2026-6-10 10:05
+
+当初3发售时候，买了套123合集，现在又要买个大合集。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 159#         楼主| 发表于 2026-6-10 12:20
+
+ 本帖最后由 Piano-Forest 于 2026-6-10 12:21 编辑 
+
+传闻：有两家澳洲零售商页面显示将于2027年发售
+
+Play through the full KINGDOM HEARTS series in one comprehensive package before the release of KINGDOM HEARTS IV in 2027. 
+[https://www.khinsider.com/news/R ... S-IV-for-2027-19519](https://www.khinsider.com/news/RUMOR-Australian-Retailers-list-KINGDOM-HEARTS-IV-for-2027-19519)
+
+
+*****
+
+####  Piano-Forest  
+##### 160#         楼主| 发表于 2026-6-10 12:25
+
+<img src="https://p.sda1.dev/32/f11d1692376f10619b1b6fc3d2305946/Kingdom-Hearts-IV_2026_06-09-26_001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/cf70e8e2fbe54c592cfe15fb696dfdfc/Kingdom-Hearts-IV_2026_06-09-26_002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/947af9c179e28bd792b2de7d5a21d032/Kingdom-Hearts-IV_2026_06-09-26_003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/2a273cad90cb40aa3424cc285a9dbd52/Kingdom-Hearts-IV_2026_06-09-26_004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/eb7e6df36f7fc2d757dfc5f10082c431/Kingdom-Hearts-IV_2026_06-09-26_005.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/6be4cc15451af6ee7ac4529254fe5537/Kingdom-Hearts-IV_2026_06-09-26_006.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/4af9c09fa615f505f85922b8f94c6e5c/Kingdom-Hearts-IV_2026_06-09-26_007.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 161#         楼主| 发表于 2026-6-10 12:26
+
+<img src="https://p.sda1.dev/32/b779aaac798018fe7c0dca490df62804/1000168038.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 162#         楼主| 发表于 2026-6-10 12:36
+
+<img src="https://p.sda1.dev/32/2a2952443619d9335e19df0acd60f391/1000168040.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 163#         楼主| 发表于 2026-6-10 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69752691&amp;ptid=2063712" target="_blank">Piano-Forest 发表于 2026-6-10 12:20</a>
+
+传闻：有两家澳洲零售商页面显示将于2027年发售
+
+Play through the full KINGDOM HEARTS series in one com ...</blockquote>
+在王国之心合集[I~III]简介的描述一致
+<img src="https://p.sda1.dev/32/a1f3cd45e73389a190a7810d2c26e770/20260610_123910.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/33481252f9909bb88671f724e6f9eb5b/20260610_123919.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ——裂锦——  
+##### 164#       发表于 2026-6-10 14:49
+
+<blockquote>Piano-Forest 发表于 2026-6-10 12:20
+传闻：有两家澳洲零售商页面显示将于2027年发售
+
+Play through the full KINGDOM HEARTS series in one com ...</blockquote>
+如果能按计划发售那还好，澳洲的2027年不会像日本那样持续到第二年一季度去吧
+
+
+*****
+
+####  Piano-Forest  
+##### 165#         楼主| 发表于 2026-6-10 14:54
+
+【全网首发 王国之心4任天堂PV逐帧解析】 
+[https://b23.tv/Nzf9m94](https://b23.tv/Nzf9m94)
+
+<img src="https://p.sda1.dev/32/c6e18b35da4447e9fc8be53c6be12b7e/1000168064.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 166#         楼主| 发表于 2026-6-10 22:29
+
+<img src="https://p.sda1.dev/32/14992620d72676dd757ba57f2429dbe4/1000168074.jpg" referrerpolicy="no-referrer">
+
