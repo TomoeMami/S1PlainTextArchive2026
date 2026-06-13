@@ -483,3 +483,192 @@ ip所有权在fs，大概率限时独占
 <img src="https://p.sda1.dev/32/20578d1eb91c11ed1ef95ba511791f67/1000166471.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/a231caf69573297219a40e0e0bbe108a/1000166472.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 49#         楼主| 发表于 2026-6-9 17:21
+
+官中译名是不是还未公开？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dydqydz  
+##### 50#       发表于 2026-6-9 18:11
+
+今晚会有？
+
+
+*****
+
+####  Piano-Forest  
+##### 51#         楼主| 发表于 2026-6-9 22:42
+
+26年夏网络测试
+
+*****
+
+####  夜雨秋水  
+##### 52#       发表于 2026-6-9 22:43
+
+这个不像fs啊，放点东西扣扣索索的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  泡吧泡吧泡吧  
+##### 53#       发表于 2026-6-9 22:45
+
+小高拉了
+
+*****
+
+####  Piano-Forest  
+##### 54#         楼主| 发表于 2026-6-9 22:45
+
+新PV：[https://youtu.be/ZHEB4tmezDk](https://youtu.be/ZHEB4tmezDk)
+
+
+*****
+
+####  食粪者  
+##### 55#       发表于 2026-6-9 22:49
+
+法环把宫崎英俊的灵魂抽干了
+
+
+*****
+
+####  嘉术2015  
+##### 56#       发表于 2026-6-9 23:00
+
+pv2内容还没pv1多
+
+
+*****
+
+####  usodakedo  
+##### 57#       发表于 2026-6-9 23:05
+
+夏季测试，今年要还想发售的话岂不是正面冈gta6?
+
+*****
+
+####  maomaoying  
+##### 58#       发表于 2026-6-9 23:06
+
+<blockquote>usodakedo 发表于 2026-6-9 23:05
+夏季测试，今年要还想发售的话岂不是正面冈gta6?</blockquote>
+估计12月吧
+
+*****
+
+####  Lisylfn  
+##### 59#       发表于 2026-6-9 23:11
+
+感觉雷雷的，没有啥画面，日期也没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卡拉德利姆  
+##### 60#       发表于 2026-6-9 23:13
+
+笑了憋了这么久就几个镜头
+封测你打牛魔广告呢
+
+*****
+
+####  SergeGlenn  
+##### 61#       发表于 2026-6-9 23:16
+
+我还以为这回会有详实的内容介绍呢。。。
+
+
+*****
+
+####  zakki  
+##### 62#       发表于 2026-6-9 23:21
+
+所以到底是个什么玩法，至少出一局演示吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哎哟卧槽了  
+##### 63#       发表于 2026-6-9 23:24
+
+pvpve嗎……小高搜打撒？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  usodakedo  
+##### 64#       发表于 2026-6-9 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748731&amp;ptid=2250995" target="_blank">哎哟卧槽了 发表于 2026-6-9 23:24</a>
+
+pvpve嗎……小高搜打撒？
+
+—— 來自 Google Pixel 2, Android 11, 鵝球 v3.5.99</blockquote>
+黑环是场内组队pve，场外鉴遗物pvp，新作pvpve很合理吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  缺德猫  
+##### 65#       发表于 2026-6-9 23:34
+
+就是有更多胜利条件的、有PVP要素的黑环啊，早就说过了吧？
+
+
+*****
+
+####  28201  
+##### 66#       发表于 2026-6-9 23:37
+
+竟然是多人联机吗<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  2014720  
+##### 67#       发表于 2026-6-9 23:39
+
+也就ns上玩玩了，真上了pc我不敢想那体验有多酸爽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  woshenc  
+##### 68#       发表于 2026-6-10 00:23
+
+小高估计是有什么把柄给任天堂给抓住了，不然想不通怎么会去做这么个独占游戏
+
+
+*****
+
+####  thealoneer  
+##### 69#       发表于 2026-6-10 02:08
+
+本想着公布发售日就去下单NS2的，现在看来可以再等等了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clyde-wang  
+##### 70#       发表于 2026-6-10 07:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749370&amp;ptid=2250995" target="_blank">woshenc 发表于 2026-6-10 00:23</a>
+小高估计是有什么把柄给任天堂给抓住了，不然想不通怎么会去做这么个独占游戏 ...</blockquote>
+开发者访谈里制作团队都说了，当初有这个想法时候，问了一圈任天堂觉得挺有意思就出资做了，别人不感兴趣呀
+
+
+*****
+
+####  dydqydz  
+##### 71#       发表于 2026-6-10 08:32
+
+我也等着这个游戏具体情况才想去下单NS2呢，这给的信息也太抠搜了
+
