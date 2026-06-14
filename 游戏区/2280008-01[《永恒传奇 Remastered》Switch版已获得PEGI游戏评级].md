@@ -1008,3 +1008,1487 @@ GC都解散了，主题歌怎么办
 都是讀取通關存檔後就能用到藍地 ...</blockquote>
 存档有星号就可以了，这时候所有东西应该都解锁了。二周目主要是为了体验疯狂难度开荒吧。疯狂难度开场那个小boss挺要命的......
 
+*****
+
+####  superchenxx01  
+##### 100#       发表于 2026-6-3 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69557613&amp;ptid=2280008" target="_blank">桧山修之 发表于 2026-4-30 12:50</a>
+
+相当王道的剧情，也就女主差点被ntr可能有点不爽而已，其他地方和幻想也差不多，都是收收精灵，顺手救救 ...</blockquote>
+？我印象里就是一路打怪升级啊，哪有差点被NTR的剧情？
+
+
+*****
+
+####  cxn  
+##### 101#       发表于 2026-6-3 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714643&amp;ptid=2280008" target="_blank">superchenxx01 发表于 2026-6-3 15:05</a>
+
+？我印象里就是一路打怪升级啊，哪有差点被NTR的剧情？</blockquote>
+雷斯吧，帅气优雅，把法拉迷得不要不要的，相较之下利德就一乡下打猎的，这三人的关系就挺微妙的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 102#       发表于 2026-6-3 17:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也能叫ntr？ 笑嘻了
+
+
+*****
+
+####  river1981  
+##### 103#       发表于 2026-6-3 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715320&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-3 17:22</a>
+
+这也能叫ntr？ 笑嘻了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  如果这也算ntr，那我就能理解为什么当初星海2重制版女主斗技场剧情被人狂喷了。
+
+
+*****
+
+####  司马千晶  
+##### 104#       发表于 2026-6-3 22:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能看出来大家十几二十年没碰，对于这几部的记忆都混乱了。
+
+
+*****
+
+####  慕容断月  
+##### 105#       发表于 2026-6-3 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715363&amp;ptid=2280008" target="_blank">river1981 发表于 2026-6-3 17:33</a>
+如果这也算ntr，那我就能理解为什么当初星海2重制版女主斗技场剧情被人狂喷了。 ...</blockquote>
+是这样的，新生代敏感肌和含羞草遍地走，靠近都不能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿菠萝13  
+##### 106#       发表于 2026-6-4 15:57
+
+<blockquote>cxn 发表于 2026-6-3 15:38
+雷斯吧，帅气优雅，把法拉迷得不要不要的，相较之下利德就一乡下打猎的，这三人的关系就挺微妙的 ...</blockquote>
+是不是有这么一段——女主在风精灵山谷里和男主走散后，和黄毛临时组队，然后还过了一夜，把男主气炸了
+
+
+*****
+
+####  tmmd  
+##### 107#       发表于 2026-6-4 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69720044&amp;ptid=2280008" target="_blank">阿菠萝13 发表于 2026-6-4 15:57</a>
+
+是不是有这么一段——女主在风精灵山谷里和男主走散后，和黄毛临时组队，然后还过了一夜，把男主气炸了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">然而实际上人家雷斯温和儒雅,尽显绅士风度,本身还和公主心意相通,对村姑根本没有那方面的想法.反而是另外一边两个青春期闷骚男在东想西想.
+
+*****
+
+####  alucardcz  
+##### 108#       发表于 2026-6-4 16:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我勒个去 现在的年轻人思想都这么恐怖的吗 老年人震惊了
+
+
+*****
+
+####  夜月紫耀  
+##### 109#       发表于 2026-6-4 17:06
+
+现在最敏感的人群声音最大，都要把三从四德抬回来了。
+
+
+*****
+
+####  byisme001  
+##### 110#       发表于 2026-6-4 17:16
+
+什么时候快进到有男不玩
+
+*****
+
+####  ccow  
+##### 111#       发表于 2026-6-4 17:18
+
+不是重制啊，估计是原味了。原作体量超级大，重制估计不合算了。
+
+
+*****
+
+####  zpower  
+##### 112#       发表于 2026-6-4 17:35
+
+年轻玩家不会玩永恒的。
+
+
+*****
+
+####  alucardcz  
+##### 113#       发表于 2026-6-4 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69720641&amp;ptid=2280008" target="_blank">zpower 发表于 2026-6-4 17:35</a>
+
+年轻玩家不会玩永恒的。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又让我想起当年安利tov复刻 集大成之作！ 然后没一个人坚持玩通
+
+*****
+
+####  whzfjd  
+##### 114#       发表于 2026-6-4 17:42
+
+文娱就喜欢写这种误会挑逗观众和锻炼主角嘛，哪怕动画片里这块口碑相当好的正相反的你和我都要试炼一下
+
+
+*****
+
+####  阿菠萝13  
+##### 115#       发表于 2026-6-4 17:45
+
+<blockquote>tmmd 发表于 2026-6-4 16:43
+然而实际上人家雷斯温和儒雅,尽显绅士风度,本身还和公主心意相通,对村姑根本没有那方面的想法.反而是另外 ...</blockquote>
+是的，雷哥真好人，死前甚至大方地把极光术修炼资格转让给了男主，风之谷这段剧情就是编剧在无中生有制造笑点，谁会当真呢。不会吧不会吧，还真有人让那方面想了啊
+
+
+*****
+
+####  克苏鲁系青骑士  
+##### 116#       发表于 2026-6-5 08:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">这也能吵？看到优质男就胡思乱想的虾头女跟看到孤男寡女一起过夜就哈气的虾头男选一个是吧
+感觉有点懂以前看人说过女二可以救男主，男二不许救女主之类的逻辑了
+
+
+*****
+
+####  nage560  
+##### 117#       发表于 2026-6-5 09:14
+
+这也叫ntr喷了，这么看来MGS3重制是真的没有什么新人玩了，不然这也叫ntr那MGS3 EVA和光头那些事不把这些人气疯。
+
+
+*****
+
+####  无动于衷  
+##### 118#       发表于 2026-6-5 09:30
+
+我只关心那个一点都不带优化的3D画面能简陋成啥样 现在的玩家能不能啃得下去
+
+*****
+
+####  djw1984  
+##### 119#       发表于 2026-6-5 09:31
+
+画面按照remaster的标准重置吧，别硬塞模拟器就行
+
+
+*****
+
+####  iou90  
+##### 120#       发表于 2026-6-5 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69720661&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-4 17:39</a>
+又让我想起当年安利tov复刻 集大成之作！ 然后没一个人坚持玩通</blockquote>
+上个月刚打完
+
+内容9分 可以排在 top toh 之后了在我这 
+形式5分 不及格 还是 ff7 以来的那种形式 也总需要读盘 可惜这么好的内容了 
+要是以 arise 的形式重制我可以打9.5分 可惜永远不可能
+
+
+*****
+
+####  qiyu1234  
+##### 121#         楼主| 发表于 2026-6-5 09:57
+
+TOE复刻版最大的问题还是2D场景的16：9画幅比的问题，还有TOE的2D场景的贴图精细度的问题
+
+PSP版的解决画幅比例的办法非常粗暴，根据场景拉近或固定镜头让镜头正好处于16：9不会穿帮的情况，代价就是原4：3能看到的远景看不到了
+
+偷懒的话还是PSP版另存为加QOL
+
+至于贴图精度嘛，比较省事的方案是用AI做超分，其实TOGF复刻开始已经在用了
+
+还有个更直接的可能就是真的只出NS版<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，LITE上看原版画面没有那么违和
+
+
+*****
+
+####  南戸唯  
+##### 122#       发表于 2026-6-5 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69560989&amp;ptid=2280008" target="_blank">猫将军 发表于 2026-5-1 01:03</a>
+
+那样也算的话可用角色是8个，还有一位雷斯</blockquote>
+那9个了，极光壁试炼还能主控怪物
+
+
+*****
+
+####  耶耶抛的岔  
+##### 123#       发表于 2026-6-5 12:30
+
+toe挺完善了，最需要重制的还是toa这种早期3d类型的
+
+
+*****
+
+####  river1981  
+##### 124#       发表于 2026-6-5 13:07
+
+吓得我又去回顾了一下
+
+过夜是在风精灵洞，但那时候是里得，美鲁迪，法拉，雷斯四个人在一起露营
+
+走散是在圣山，没有过夜只有一个休息剧情，法拉和雷斯的独处剧情只有两段，一段是雷斯问法拉为什么对拯救世界这么卖力，一段是雷斯问法拉为什么这么相信美鲁迪
+
+法拉并没有被迷得不要不要，雷斯对法拉也没有意思，可能还是游戏太老，剧情已经记岔了吧
+
+
+*****
+
+####  cxn  
+##### 125#       发表于 2026-6-5 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69724213&amp;ptid=2280008" target="_blank">river1981 发表于 2026-6-5 13:07</a>
+
+吓得我又去回顾了一下
+
+过夜是在风精灵洞，但那时候是里得，美鲁迪，法拉，雷斯四个人在一起露营
+
+走散是在圣 ...</blockquote>
+我只是根据前面有人说差点NTR在推测到底在说谁，推测是雷斯，利德戒心重提防着雷斯，法拉傻白甜无条件信任雷斯，就这个局面而已，得承认最后写出来有点春秋笔法了，导致之后有人在这基础上继续越走越歪，罪过罪过<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cxn  
+##### 126#       发表于 2026-6-5 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723757&amp;ptid=2280008" target="_blank">南戸唯 发表于 2026-6-5 11:47</a>
+
+那9个了，极光壁试炼还能主控怪物</blockquote>
+我来数一下
+
+常规6人+雷斯+蛋熊+幼年基尔+黑化前的西泽尔+幼年梅露蒂，共11个。不过最后那个是不是不受控，记不清了
+
+此外还有个晶术，可以在战斗中短暂变身TOP的阿洁
+
+
+*****
+
+####  quanlix  
+##### 127#       发表于 2026-6-5 16:19
+
+要是能把雷伊斯变成后期可操作角色就好了，也不用给剧情，就类似换装迷宫的换装，能再加几个技能更好
+
+
+*****
+
+####  widder  
+##### 128#       发表于 2026-6-5 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69556083&amp;ptid=2280008" target="_blank">空洞骑士 发表于 2026-4-30 08:01</a>
+
+2D复刻怎么提升画面啊，感觉只能大颗粒像素点了。卖相不好的话定价怕不是只能20刀了。 ...</blockquote>
+没提升，传奇系列一贯的另存为<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  river1981  
+##### 129#       发表于 2026-6-5 18:20
+
+先做个梦，万一是像todr一样重做画面呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猪突猛进R  
+##### 130#       发表于 2026-6-5 18:48
+
+期望越大失望越大，能把PSP版完美移植到PC上，有官中，画面再HD一下就已经可以了。
+
+我的期望是比露娜1+2的复刻版好一点就行。
+
+
+*****
+
+####  alucardcz  
+##### 131#       发表于 2026-6-5 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69725959&amp;ptid=2280008" target="_blank">river1981 发表于 2026-6-5 18:20</a>
+
+先做个梦，万一是像todr一样重做画面呢</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这可是能做出tobhd的公司 你做啥梦呢！
+
+
+*****
+
+####  干将莫邪  
+##### 132#       发表于 2026-6-5 21:49
+
+这段剧情我记忆中是法拉和雷就是独处了一段，利德发现自己很在意法拉，有点吃醋发现了自己的心意吧。
+
+
+*****
+
+####  qiyu1234  
+##### 133#         楼主| 发表于 2026-6-8 10:52
+
+<img src="https://img.stage1st.com/forum/202606/08/105237s7oizlit9ipict60.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ludofszjpx5h1.jpeg</strong> (47.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-8 10:52 上传
+
+
+*****
+
+####  alucardcz  
+##### 134#       发表于 2026-6-9 22:23
+
+这画面我吐了。。真就原汁原味阿？
+
+*****
+
+####  牧月萌  
+##### 135#       发表于 2026-6-9 22:23
+
+过于逆天<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿菠萝13  
+##### 136#       发表于 2026-6-9 22:27
+
+意料之中，部分素材高清了吧，目测出场坠机的那颗球高清了。对了，10/15发售
+
+*****
+
+####  river1981  
+##### 137#       发表于 2026-6-9 22:28
+
+气笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜守望者  
+##### 138#       发表于 2026-6-9 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69738706&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-8 10:52</a></blockquote>
+瞎说，起码DQ粉大概宁可和传说粉换个位置<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫将军  
+##### 139#       发表于 2026-6-9 22:30
+
+这种还要拖到10月…
+
+*****
+
+####  TheOccuria  
+##### 140#       发表于 2026-6-9 22:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这马赛克画面..
+
+
+*****
+
+####  alucardcz  
+##### 141#       发表于 2026-6-9 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747551&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-6-9 22:32</a>
+
+这马赛克画面..</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你买我不买（
+
+*****
+
+####  qiyu1234  
+##### 142#         楼主| 发表于 2026-6-9 22:47
+
+[https://bond.tales-ch.jp/#](https://bond.tales-ch.jp/#)
+
+全平台，甚至包括了PS4
+
+*****
+
+####  TheOccuria  
+##### 143#       发表于 2026-6-9 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747849&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-9 22:44</a>
+
+你买我不买（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看价格，万代要点脸国区128得了
+
+
+*****
+
+####  alucardcz  
+##### 144#       发表于 2026-6-9 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747941&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-6-9 22:48</a>
+
+看价格，万代要点脸国区128得了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">268！
+
+
+*****
+
+####  quanlix  
+##### 145#       发表于 2026-6-9 22:58
+
+同样是Remastered，看看隔壁的352，麻了
+
+*****
+
+####  88is88  
+##### 146#       发表于 2026-6-9 23:00
+
+原汁原味
+
+*****
+
+####  TheOccuria  
+##### 147#       发表于 2026-6-9 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748060&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-9 22:54</a>
+
+268！</blockquote>
+看了下价格3600日元，国区100出头差不多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 148#       发表于 2026-6-9 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748264&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-6-9 23:00</a>
+
+看了下价格3600日元，国区100出头差不多了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等打折到10块！
+
+*****
+
+####  桧山修之  
+##### 149#       发表于 2026-6-9 23:04
+
+果然呢，还好没有一点的期待，不过真能直接原汁原味，也只万南能做得出来，这么看隔壁可乐妹的幻想水浒传1+2简直良心到爆了，我以后都不会再喷可乐妹了，留点口水给万南
+
+
+*****
+
+####  qiyu1234  
+##### 150#         楼主| 发表于 2026-6-9 23:13
+
+请支持2D Tales的玩家一定要加油
+
+不然到时候销量不如3D Tales复刻就很难看了
+
+*****
+
+####  猫将军  
+##### 151#       发表于 2026-6-9 23:13
+
+肯定没人买的除了老fans<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空洞骑士  
+##### 152#       发表于 2026-6-9 23:15
+
+和狂战的198 6300日元等比换算大概113。背景还是有AI超分高清化的，虽然官方给出的参考图我根本看不清<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  强尼高达  
+##### 153#       发表于 2026-6-9 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748541&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-9 23:13</a>
+请支持2D Tales的玩家一定要加油
+
+不然到时候销量不如3D Tales复刻就很难看了</blockquote>
+买了也不会出2D新作的
+
+*****
+
+####  alucardcz  
+##### 154#       发表于 2026-6-9 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748541&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-9 23:13</a>
+
+请支持2D Tales的玩家一定要加油
+
+不然到时候销量不如3D Tales复刻就很难看了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明知是石也要支持吗 100块也是钱啊
+
+
+*****
+
+####  plok201  
+##### 155#       发表于 2026-6-9 23:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有种我玩模拟器的时候，找了个网友分享AI高清包，玩着玩着有一天没加载，自己没发现的美
+
+*****
+
+####  哎哟卧槽了  
+##### 156#       发表于 2026-6-9 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748550&amp;ptid=2280008" target="_blank">猫将军 发表于 2026-6-9 23:13</a>
+肯定没人买的除了老fans</blockquote>
+我寧願模擬器玩psp版……
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  牧月萌  
+##### 157#       发表于 2026-6-9 23:24
+
+之前的几个老RPG合集我都买了，格兰蒂亚、幻水、露娜，除了幻水是有点诚意以外
+剩下基本都原味，这么一看永恒倒也不奇怪了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫将军  
+##### 158#       发表于 2026-6-9 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748726&amp;ptid=2280008" target="_blank">牧月萌 发表于 2026-6-9 23:24</a>
+之前的几个老RPG合集我都买了，格兰蒂亚、幻水、露娜，除了幻水是有点诚意以外
+剩下基本都原味，这么一看永 ...</blockquote>
+格兰蒂亚1好歹是真hd，luna好歹也是hd+景深效果toe这超绝马赛克<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑卷轴陶德传  
+##### 159#       发表于 2026-6-9 23:27
+
+2D Tales肯定没得了，灵魂人物猪股睦美都去世两年了
+
+*****
+
+####  plusfive  
+##### 160#       发表于 2026-6-9 23:28
+
+在NSL里买了一堆原味移植游戏，看来要+1了，但就这也是在里面算最拉的了……
+
+
+*****
+
+####  司马千晶  
+##### 161#       发表于 2026-6-9 23:30
+
+除了有情怀的入库看着，谁会买。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不会指望各大网站评论区的人机吧？
+
+*****
+
+####  黑暗之眼  
+##### 162#       发表于 2026-6-9 23:30
+
+ 本帖最后由 黑暗之眼 于 2026-6-9 23:31 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748373&amp;ptid=2280008" target="_blank">桧山修之 发表于 2026-6-9 23:04</a>
+
+果然呢，还好没有一点的期待，不过真能直接原汁原味，也只万南能做得出来，这么看隔壁可乐妹的幻想水浒传1+ ...</blockquote>
+不用太抬举，隔壁那个也就没那么多马赛克而已
+
+*****
+
+####  伊郑z  
+##### 163#       发表于 2026-6-9 23:32
+
+万南真是一坨啊，画面还不如ps，按隔壁星海2那规格来不行啊，当初星海2那复刻可谓是惊讶了一把，传说新作不出旧作重置又不做好点，南梦宫人手到底去干嘛了，是跟着原田一起跑路了吗？
+
+*****
+
+####  alucardcz  
+##### 164#       发表于 2026-6-9 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748849&amp;ptid=2280008" target="_blank">伊郑z 发表于 2026-6-9 23:32</a>
+
+万南真是一坨啊，画面还不如ps，按隔壁星海2那规格来不行啊，当初星海2那复刻可谓是惊讶了一把，传说新作不 ...</blockquote>
+我很怕  我很怕看到 破晓hd<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qiyu1234  
+##### 165#         楼主| 发表于 2026-6-9 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748849&amp;ptid=2280008" target="_blank">伊郑z 发表于 2026-6-9 23:32</a>
+
+万南真是一坨啊，画面还不如ps，按隔壁星海2那规格来不行啊，当初星海2那复刻可谓是惊讶了一把，传说新作不 ...</blockquote>
+星海2HD卖的不好，财报也就提一嘴口碑不错，系列销量已经十来年没有官宣过了，到现在也没新消息了
+
+*****
+
+####  法拉  
+##### 166#       发表于 2026-6-9 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748880&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-9 23:34</a>
+
+我很怕  我很怕看到 破晓hd</blockquote>
+已经有了，所谓的黎明新程版不就是么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 167#         楼主| 发表于 2026-6-9 23:38
+
+讲白了 旧作复刻就是填新作档期的
+
+这系列欠太多东西要补了，到现在一个活跃的JRPG老牌系列还有超过一半以上的作品没上过现代平台的就Tales了
+
+真想有所关注的，就等它未来某天公布的新作就够了，老游戏纯粹情怀支持
+
+
+*****
+
+####  alucardcz  
+##### 168#       发表于 2026-6-9 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748898&amp;ptid=2280008" target="_blank">法拉 发表于 2026-6-9 23:36</a>
+
+已经有了，所谓的黎明新程版不就是么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来我dlc还没打 也许该复习了
+
+*****
+
+####  桧山修之  
+##### 169#       发表于 2026-6-9 23:42
+
+<blockquote>黑暗之眼 发表于 2026-6-9 23:30
+不用太抬举，隔壁那个也就没那么多马赛克而已</blockquote>
+toe复刻有幻水1+2的诚意，我就吹爆了，toe在系列口碑算相当好的都是这种待遇，那传闻的toa复刻估计也是ps2版原汁原味了
+
+
+*****
+
+####  plusfive  
+##### 170#       发表于 2026-6-9 23:47
+
+<blockquote>qiyu1234 发表于 2026-6-9 23:38
+讲白了 旧作复刻就是填新作档期的
+
+这系列欠太多东西要补了，到现在一个活跃的JRPG老牌系列还有超过一半以上 ...</blockquote>
+就这么拉的水平，直接出一个2D传说合集都没啥争议的程度，反正都是原汁原味……
+
+万南和富泽都是$逼，太气人了
+
+*****
+
+####  伊郑z  
+##### 171#       发表于 2026-6-9 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748919&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-9 23:38</a>
+
+讲白了 旧作复刻就是填新作档期的
+
+这系列欠太多东西要补了，到现在一个活跃的JRPG老牌系列还有超过一半以上 ...</blockquote>
+我对填档期没意见，但是搞得比原版还差就有很大意见了，心灵和圣洁在psv的规格比永恒强多了，移植现代平台也得做好点，现在这片真是完全没有诚意
+
+
+*****
+
+####  qiyu1234  
+##### 172#         楼主| 发表于 2026-6-9 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749046&amp;ptid=2280008" target="_blank">伊郑z 发表于 2026-6-9 23:48</a>
+
+我对填档期没意见，但是搞得比原版还差就有很大意见了，心灵和圣洁在psv的规格比永恒强多了，移植现代平 ...</blockquote>
+这复刻别的不说，QOL做的还是挺多的，包括你不满意可以随时切换回原版画面，虽然也是马赛克
+
+比原版差这个算不上，唯一的问题就是移植自PSP版导致4人热座这个没有再新增回来
+
+*****
+
+####  哎哟卧槽了  
+##### 173#       发表于 2026-6-9 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748961&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-9 23:40</a>
+说起来我dlc还没打 也许该复习了</blockquote>
+打了更扣分<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  trow233  
+##### 174#       发表于 2026-6-9 23:52
+
+就这马赛克吗……
+
+虽然估计还是会买一片收藏……等跌爆后
+
+*****
+
+####  qiyu1234  
+##### 175#         楼主| 发表于 2026-6-9 23:52
+
+心灵和圣洁都是R版，讲白了就是重制版（只是规格偏低）
+
+但是也就是PSV能接受的程度了
+
+这个系列现在富泽的意思是如果做重制就是高规格，那这种情况下我估计也就TOP TOA这种未来有可能有机会
+
+当然现在应该还是新作为主
+
+*****
+
+####  哎哟卧槽了  
+##### 176#       发表于 2026-6-9 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749034&amp;ptid=2280008" target="_blank">plusfive 发表于 2026-6-9 23:47</a>
+就这么拉的水平，直接出一个2D传说合集都没啥争议的程度，反正都是原汁原味……
+
+万南和富泽都是$逼，太 ...</blockquote>
+就是廢物利用級別的玩意，買一份都是支持這種風氣。本來寄望用新引擎重制舊作品，結果端上來的全是這些玩意，連TOB都搞另存為就知道傳說組在萬代眼裡只是個回收站還沒刪除的文件<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  强尼高达  
+##### 177#       发表于 2026-6-9 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748758&amp;ptid=2280008" target="_blank">猫将军 发表于 2026-6-9 23:26</a>
+格兰蒂亚1好歹是真hd，luna好歹也是hd+景深效果toe这超绝马赛克</blockquote>
+你真的买了格兰蒂亚1吗，那个Super 4X Sai HD还不如马赛克
+
+*****
+
+####  猫将军  
+##### 178#       发表于 2026-6-10 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749194&amp;ptid=2280008" target="_blank">强尼高达 发表于 2026-6-9 23:59</a>
+你真的买了格兰蒂亚1吗，那个Super 4X Sai HD还不如马赛克</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">toe要是能有这效果我肯定吹
+
+
+*****
+
+####  Xenor  
+##### 179#       发表于 2026-6-10 00:20
+
+画面意外看着还可以，也应该有办法能更好，TOE只要4、5年不玩就是一个全新的游戏[https://tieba.baidu.com/p/6327828674](https://tieba.baidu.com/p/6327828674)
+
+要有官中重新耍一遍也挺好的，有没有加好料到时再决定
+
+
+*****
+
+####  黑暗之眼  
+##### 180#       发表于 2026-6-10 00:27
+
+ 本帖最后由 黑暗之眼 于 2026-6-10 00:29 编辑 
+
+<img src="https://img.stage1st.com/forum/202606/10/002910jbf657e7bzwdd32a.jpg" referrerpolicy="no-referrer">
+
+<strong>006OLR7Hgy1idzijstdsaj315s38cnpe.jpg</strong> (633.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 00:29 上传
+
+港任刚说了，有官中，简繁。买吧
+
+
+*****
+
+####  qiyu1234  
+##### 181#         楼主| 发表于 2026-6-10 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749402&amp;ptid=2280008" target="_blank">黑暗之眼 发表于 2026-6-10 00:27</a>
+
+港任刚说了，有官中，简繁。买吧</blockquote>
+其实官网里就写的比较详细了，日版自带简繁中文
+
+
+*****
+
+####  lbzlxx  
+##### 182#       发表于 2026-6-10 00:50
+
+我知道是原味，但没想到这么原味
+
+
+*****
+
+####  慕容断月  
+##### 183#       发表于 2026-6-10 06:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749509&amp;ptid=2280008" target="_blank">lbzlxx 发表于 2026-6-10 00:50</a>
+我知道是原味，但没想到这么原味</blockquote>
+永远不要期待富泽这个B能给你原版以上的东西，找的外包不整出新bug都算好了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  戏言学者  
+##### 184#       发表于 2026-6-10 06:39
+
+我倒是挺喜欢这个马赛克的，当然如果能给个扫描线滤镜就更好了，有没有老ass对比一下是原生16比9还是把原版4比3砍掉上下部分裁切出来的16比9
+
+
+*****
+
+####  戏言学者  
+##### 185#       发表于 2026-6-10 06:46
+
+ 本帖最后由 戏言学者 于 2026-6-10 06:48 编辑 
+
+<img src="https://p.sda1.dev/32/450d0d97b6b97c4daf71342443b5d9c4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/b397f87f16f3e6c7cd974097f453229f/image.jpg" referrerpolicy="no-referrer">
+
+…… 自己去对比了一下，是和PSP一样砍掉上下裁剪出的，突然不想买了<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PYY  
+##### 186#       发表于 2026-6-10 08:35
+
+能做一个画面比例对比么？
+PS原版，PSP上下裁版，昨天这个官中上下裁版，PS模拟器新出的宽屏模式版
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  强尼高达  
+##### 187#       发表于 2026-6-10 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749213&amp;ptid=2280008" target="_blank">猫将军 发表于 2026-6-10 00:02</a>
+toe要是能有这效果我肯定吹</blockquote>
+我问你真的买了吗，真的玩了吗，我真的在玩，任何配角变换一个表情就可能变成不可名状生物
+
+你让没玩过的来分辨一下下图正中是什么角色
+A.狐狸 B.橘猫 C.松鼠 D.眼镜娘
+
+<img src="https://s41.ax1x.com/2026/06/10/pmudJkd.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  空洞骑士  
+##### 188#       发表于 2026-6-10 09:11
+
+看了眼Steam商店页，动画和小剧场头像非常清晰，PSP版应该到不了这效果。TOSE外包的和圣恩复刻一样。
+
+
+*****
+
+####  不可避免  
+##### 189#       发表于 2026-6-10 09:16
+
+<blockquote>戏言学者 发表于 2026-6-10 06:46
+…… 自己去对比了一下，是和PSP一样砍掉上下裁剪出的，突然不想买了</blockquote>
+是这样的话，我觉得可以翻一下自己的老硬盘把打到第二张盘的存档找出来接上了。
+
+等了这么多年就这，我笑了。
+
+
+*****
+
+####  猫将军  
+##### 190#       发表于 2026-6-10 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750673&amp;ptid=2280008" target="_blank">强尼高达 发表于 2026-6-10 09:06</a>
+我问你真的买了吗，真的玩了吗，我真的在玩，任何配角变换一个表情就可能变成不可名状生物
+
+你让没玩过的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喜欢马赛克你估计是不是人脸都分不清。我就问你是不是hd吧。要是不喜欢就玩原版去。还强调自己在玩反问别人没玩过。嘉豪行为
+
+
+*****
+
+####  法拉  
+##### 191#       发表于 2026-6-10 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749046&amp;ptid=2280008" target="_blank">伊郑z 发表于 2026-6-9 23:48</a>
+
+我对填档期没意见，但是搞得比原版还差就有很大意见了，心灵和圣洁在psv的规格比永恒强多了，移植现代平 ...</blockquote>
+toir确实还行，tohr就是一坨浓屑，还不如原汁原味搬上来呢
+
+
+*****
+
+####  river1981  
+##### 192#       发表于 2026-6-10 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748612&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-9 23:18</a>
+
+明知是石也要支持吗 100块也是钱啊</blockquote>
+看在有官中的份上，这个屎我吃了
+
+
+*****
+
+####  丹德里恩  
+##### 193#       发表于 2026-6-10 10:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哎呀，我群友已经开始怀念马场了，你说怎么回事呢富泽桑
+
+*****
+
+####  猫将军  
+##### 194#       发表于 2026-6-10 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748812&amp;ptid=2280008" target="_blank">黑暗之眼 发表于 2026-6-9 23:30</a>
+不用太抬举，隔壁那个也就没那么多马赛克而已</blockquote>
+幻水hd材质全部现代化过的，高清2d光源，尤其水面效果。可不是单纯复制psp版<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">（代价就是延期了1年）
+再拿隔壁se的开拓者2hd来对比好歹人家加了新要素新剧本…
+
+*****
+
+####  法拉  
+##### 195#       发表于 2026-6-10 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751783&amp;ptid=2280008" target="_blank">丹德里恩 发表于 2026-6-10 10:49</a>
+
+哎呀，我群友已经开始怀念马场了，你说怎么回事呢富泽桑</blockquote>
+马场也能怀念吗，那活该这ip只能捞到富泽这么个人物了
+
+
+*****
+
+####  bill910  
+##### 196#       发表于 2026-6-10 10:54
+
+有官方中文，就买，希望其它作品也有官方中文，例如TOL。
+
+
+*****
+
+####  qiyu1234  
+##### 197#         楼主| 发表于 2026-6-10 11:04
+
+马场是导致这个系列变成这个叼样的祸首，起码是之一
+
+Z是结果不是原因，深层原因是在06-11这段时间光顾着推新游戏（甚至本地化都是慢慢吞吞的） 不顾玩家反馈和市场反应，还有就是PS3世代开始搞DLC地狱，把工作室搞到破产被合并
+
+复刻到本世代平台这种事情在他任上就应该搞了
+
+其实系列里不少作品都属于多沉淀开发一段时间能做的更好的
+
+
+*****
+
+####  猫将军  
+##### 198#       发表于 2026-6-10 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751940&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-10 11:04</a>
+马场是导致这个系列变成这个叼样的祸首，起码是之一</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">tos音律包两部hd一起卖挺良心的。再看福泽的旧作remaster…只能说比烂
+
+*****
+
+####  牧月萌  
+##### 199#       发表于 2026-6-10 11:08
+
+有官中有官方金手指，这屎我还是吃了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 200#         楼主| 发表于 2026-6-10 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751984&amp;ptid=2280008" target="_blank">猫将军 发表于 2026-6-10 11:08</a>
+
+tos音律包两部hd一起卖挺良心的。再看福泽的旧作remaster…只能说比烂</blockquote>
+同律包 13年年底推出在PS3平台，独占（欧美要到14年），已经说明他没啥运营才能了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 201#         楼主| 发表于 2026-6-10 11:17
+
+IR HR这俩战斗系统和节奏都比较现代化，HR直接就是强调空连的一作，其实玩起来是比很多2D作更舒服的
+
+故事这块没啥好说的其实，IR没啥，HR被诟病删改了原作的一些内容，但同时也加了一部分CG，我觉得无伤大雅，因为这个系列的剧情评价来说，除非本身是超出系列水准的优秀水平，不然也就那样
+
+
+*****
+
+####  kurosophie  
+##### 202#       发表于 2026-6-10 11:20
+
+唯一一作没玩过的传说了，必买
+
+
+*****
+
+####  PYY  
+##### 203#       发表于 2026-6-10 11:35
+
+我艹，仔细看过才发现
+标明了“离线游玩1人”
+这不就是PSP版存过来的吗
+老子ps当年拿多打分叉四个小伙伴一起爽游
+我说还想带孩子一起玩呢
+
+这下彻底没心情了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  TheOccuria  
+##### 204#       发表于 2026-6-10 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748961&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-9 23:40</a>
+
+说起来我dlc还没打 也许该复习了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么还买了，这游戏本体给我玩力竭了以至于dlc我都懒得买
+
+
+*****
+
+####  alucardcz  
+##### 205#       发表于 2026-6-10 15:06
+
+ 本帖最后由 alucardcz 于 2026-6-10 15:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753749&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-6-10 14:57</a>
+
+你怎么还买了，这游戏本体给我玩力竭了以至于dlc我都懒得买</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我前段时间脑子一抽买了  然后没多久就骨中骨了  亏麻了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后得更正一下 我破晓玩得很开心 并没有力竭
+
+*****
+
+####  TheOccuria  
+##### 206#       发表于 2026-6-10 15:07
+
+马场主要是海外推进的比较勤快，而且他那会不管怎么样产能确实有（不过本质都经历了半成品初代+增强版后续这种情况）
+
+现状也的确是他引起的，说句难听点的toz之后这系列直接冷藏也不会有人觉得奇怪
+
+但富泽上台后的确有种你在干啥的感觉，新作完全憋不出，只有各种冷饭
+
+考虑到他干过让外包接手噬神者3导致这个ip寄了，噬血代码好不容易成了结果2代他又不管了
+
+感觉他的地位有点神秘
+
+*****
+
+####  alucardcz  
+##### 207#       发表于 2026-6-10 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753803&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-6-10 15:07</a>
+
+马场主要是海外推进的比较勤快，而且他那会不管怎么样产能确实有（不过本质都经历了半成品初代+增强版后续 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">噬血代码2我还在等骨折 马上夏促能跌成2位数吗！
+
+说起来吃神3我也是首发的 麻中麻  2rb不能说是神作但也相当出色 谁知道3就这样了
+
+
+*****
+
+####  TheOccuria  
+##### 208#       发表于 2026-6-10 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753797&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-10 15:06</a>
+
+我前段时间脑子一抽买了  然后没多久就骨中骨了  亏麻了
+
+然后得更正一下 我破晓玩得很开心 并没有力竭
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">后面各种霸体怪你在那凹大数字没意思啊，而且出的太晚了
+
+*****
+
+####  TheOccuria  
+##### 209#       发表于 2026-6-10 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753813&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-10 15:09</a>
+
+噬血代码2我还在等骨折 马上夏促能跌成2位数吗！
+
+说起来吃神3我也是首发的 麻中麻  2rb不能说是神作但也 ...</blockquote>
+你太搞了，本ge老资历看到ge3换制作组+那个僵硬动作就跑路了，买都没买！
+
+*****
+
+####  qiyu1234  
+##### 210#         楼主| 发表于 2026-6-10 15:17
+
+ 本帖最后由 qiyu1234 于 2026-6-10 15:18 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753803&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-6-10 15:07</a>
+
+马场主要是海外推进的比较勤快，而且他那会不管怎么样产能确实有（不过本质都经历了半成品初代+增强版后续 ...</blockquote>
+海外推进勤快轮不到马场，他当年接受欧美媒体采访时直接说我们本地化是从日版发售后才开始做
+
+当然也有好有坏，优点是基于日本市场开发可以不需要在开发阶段就考虑本地化的问题，开发销量会高一点而且相对能保留一些可能会被欧美本地化剔除的东西
+
+这系列第一次欧美亚日同步发售还真是从富泽时期开始
+
+富泽16年接手TO后就把噬神者交给吉村广了
+
+噬血代码那边之前讲过，万南娱乐这边的制作人和开发那边的万南工作室都有点问题
+
+破晓在23年出了个大型DLC，这个大型DLC只有原版的一部分开发者参与了，原版的核心开发者中，除了程序有协助一部分旧作复刻（主要是代码那边）的短期工作以外，其他破晓的核心开发者应该都在新Tales上，至少没有其他游戏的开发履历更新（也没有离职消息，至少导演和主美 主程 这些都还在万南，并且出席了去年年底的TO现役开发者访谈）
+
+*****
+
+####  alucardcz  
+##### 211#       发表于 2026-6-10 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753854&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-6-10 15:16</a>
+
+你太搞了，本ge老资历看到ge3换制作组+那个僵硬动作就跑路了，买都没买！ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们萌新买前都没看过什么相关信息 无脑入！ 也就偶尔翻个车！
+
+*****
+
+####  alucardcz  
+##### 212#       发表于 2026-6-10 15:18
+
+旧作到底复刻了个什么玩意
+
+有x没x2 tob莫名其妙来个hd 现在toe又是原汁原味  
+
+下一个真是破晓hd我都不惊讶
+
+
+*****
+
+####  qiyu1234  
+##### 213#         楼主| 发表于 2026-6-10 15:21
+
+ 本帖最后由 qiyu1234 于 2026-6-10 15:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753877&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-10 15:18</a>
+
+旧作到底复刻了个什么玩意
+
+有x没x2 tob莫名其妙来个hd 现在toe又是原汁原味   ...</blockquote>
+X和X2是同一个外包组做的
+
+TOB据说有个原因是这游戏原版STEAM上锁日区（富泽上任后发售的STEAM版TALES才解锁了日区，他上任前万南发行的TALES在版权归属上比较诡异，我也没搞懂）
+
+当然他表面意思是谁先做完谁先出
+
+原汁原味这个，其实从TOV开始就这样，GF还算是开始加了QOL，只能说这系列缺课太多，FF那些系列早十来年就走完的现世代移植工作现在才开始慢慢推进
+
+
+*****
+
+####  alucardcz  
+##### 214#       发表于 2026-6-10 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753884&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-10 15:21</a>
+
+X和X2是同一个外包组做的
+
+TOB据说有个原因是这游戏原版STEAM上锁日区（富泽上任后发售的STEAM版TALES才解 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么日本人怎么看tos这种连日文都没有的复刻？
+
+*****
+
+####  qiyu1234  
+##### 215#         楼主| 发表于 2026-6-10 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753899&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-10 15:24</a>
+
+那么日本人怎么看tos这种连日文都没有的复刻？</blockquote>
+TOS STEAM版锁日区的呀，所以后面不是补了个主机独占的TOS Remastered吗，当然移植做的太烂被喷爆了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 216#       发表于 2026-6-10 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753906&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-10 15:25</a>
+
+TOS STEAM版锁日区的呀，所以后面不是补了个主机独占的TOS Remastered吗，当然移植做的太烂被喷爆了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么为什么TOS Remastered没上steam tobhd又可以了呢
+
+*****
+
+####  qiyu1234  
+##### 217#         楼主| 发表于 2026-6-10 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753916&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-10 15:26</a>
+
+那么为什么TOS Remastered没上steam tobhd又可以了呢</blockquote>
+TOS 复刻就不是 Remastered Project的一部分，这个企划从TOGF才开始的
+
+当年给的理由就是STEAM版已经推出过了（<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也行吗，考虑到PC TOS是马场走之前出的，还是严重怀疑以前的TO有些奇怪的发行协议）
+
+*****
+
+####  TheOccuria  
+##### 218#       发表于 2026-6-10 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753870&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-10 15:17</a>
+我们萌新买前都没看过什么相关信息 无脑入！ 也就偶尔翻个车！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初我还在贴吧里发视频呢，本来觉得这系列挺有想法的，在那群共斗里，没想到被自己搞死了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  TheOccuria  
+##### 219#       发表于 2026-6-10 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753865&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-10 15:17</a>
+海外推进勤快轮不到马场，他当年接受欧美媒体采访时直接说我们本地化是从日版发售后才开始做
+
+当然也有好有 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马场我记得是海外跑的勤快，也加快了海外版本的速度吧，反正白皮那边挺喜欢他的
+
+富泽把自己带大的项目交出去过来拉一把to，这挺好的，但是产能真的不行，如果一直全力开发的话新作得卖多少才能回收成本啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qiyu1234  
+##### 220#         楼主| 发表于 2026-6-10 15:37
+
+ 本帖最后由 qiyu1234 于 2026-6-10 15:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753932&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-6-10 15:30</a>
+
+马场我记得是海外跑的勤快，也加快了海外版本的速度吧，反正白皮那边挺喜欢他的
+
+富泽把自己带大的项目交 ...</blockquote>
+马场从各种访谈来看他对TO的游戏开发介入程度并不低
+
+也因此采访里聊得比较多，TOGF海外推广的时候直接说我们有自己的特点 不做老滚5那种开放世界游戏，所以缺点就是大嘴巴
+
+开发效率的问题我觉得就是万南工作室 的问题，把给任天堂作品外包那些都去掉，这几年就 铁拳8 暗斗迷宫 噬血代码2 这几部规模在中等以上的家用机商业游戏（还有没出的AC8），开发效率极低（游戏评价特别是后面俩个并不好），24-25年裁掉了200多人，重新整合了内部架构和开发组，大概这两年才算进入轨道吧，噬血代码2算是动荡期的产品，结果显而易见了
+
+实际上如果只看外包移植速度的话，效率还行，25年1月 TOSE外包推出了TOGF复刻，今年10月份他们的TOE 复刻就出了，中间还夹带了X B AR(NS2)的移植
+
+另外就是拿了奖了，销量也还行，大概是对后续作品企划有点影响，可能不打算小修小补了
+
+
+*****
+
+####  alucardcz  
+##### 221#       发表于 2026-6-10 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753921&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-10 15:28</a>
+
+TOS 复刻就不是 Remastered Project的一部分，这个企划从TOGF才开始的
+
+当年给的理由就是STEAM版已经推出 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很气 我还挺想tos好好复刻一把的
+
+
+*****
+
+####  plusfive  
+##### 222#       发表于 2026-6-10 15:54
+
+<blockquote>alucardcz 发表于 2026-6-10 15:45
+很气 我还挺想tos好好复刻一把的</blockquote>
+
+正准备在NSL上玩TOS，貌似升级过一次补丁，现在什么水平，能玩不？
+
+也买了PS4版，实在不行在PS4上玩了……
+
+但便携真的重要啊，现在没那么多时间对着电视玩
+
+
+*****
+
+####  Xenor  
+##### 223#       发表于 2026-6-10 19:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750673&amp;ptid=2280008" target="_blank">强尼高达 发表于 2026-6-10 09:06</a>
+
+我问你真的买了吗，真的玩了吗，我真的在玩，任何配角变换一个表情就可能变成不可名状生物
+
+你让没玩过的 ...</blockquote>
+从没玩过，看到头上的V型天线…以为是刚大木
+
+
+*****
+
+####  Xenor  
+##### 224#       发表于 2026-6-11 00:40
+
+官方的中文官中想想都兴奋<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">看了下发现竟然可以remaster和origin切换，这是学乖了，果断删除PS版立省1G空间
+
+65小时CD2的烂尾记录也不要了，拜拜了您捏<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202606/11/003713uda2d502d55ejz2a.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (103.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 00:37 上传
+
+<img src="https://img.stage1st.com/forum/202606/11/003714ralnzurme8mlpoz6.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (351.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 00:37 上传
+
+<img src="https://img.stage1st.com/forum/202606/11/003715zg1n8nh7js7ss6gq.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (366.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 00:37 上传
+
+<img src="https://img.stage1st.com/forum/202606/11/003715miuz1g6ebgtbg99n.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (307.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 00:37 上传
+
+<img src="https://img.stage1st.com/forum/202606/11/003716oeex47i2ztv5v7xe.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (243.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 00:37 上传
+
+<img src="https://img.stage1st.com/forum/202606/11/003716yhanddzggslc0odq.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (395.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 00:37 上传
+
+<img src="https://img.stage1st.com/forum/202606/11/003717y70aldcra37ha75v.jpg" referrerpolicy="no-referrer">
+
+<strong>7.jpg</strong> (309.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 00:37 上传
+
+<img src="https://img.stage1st.com/forum/202606/11/003717q0mhz4u47lgufspn.jpg" referrerpolicy="no-referrer">
+
+<strong>8.jpg</strong> (277.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 00:37 上传
+
+<img src="https://img.stage1st.com/forum/202606/11/003753kjn3ruczmn37w3wm.jpg" referrerpolicy="no-referrer">
+
+<strong>a.jpg</strong> (201.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 00:37 上传
+
+<img src="https://img.stage1st.com/forum/202606/11/003753zrndctcjjyj1ot1s.jpg" referrerpolicy="no-referrer">
+
+<strong>b.jpg</strong> (89.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 00:37 上传
+
+NS那机能应该没戏了，进一步希望PC版能自适应或有某特殊选项吧
+
+
+*****
+
+####  kokyou  
+##### 225#       发表于 2026-6-11 09:17
+
+<blockquote>plusfive 发表于 2026-6-10 15:54
+正准备在NSL上玩TOS，貌似升级过一次补丁，现在什么水平，能玩不？
+
+也买了PS4版，实在不行在PS4上玩了… ...</blockquote>
+
+13年的ps3版、ns版和ps4版我都买来玩了，感觉不出有什么大差别。ps4版我还是用ps5玩的，u技用多个魔法该卡还是会卡…
+
+
+*****
+
+####  plusfive  
+##### 226#       发表于 2026-6-11 09:35
+
+<blockquote>kokyou 发表于 2026-6-11 09:17
+13年的ps3版、ns版和ps4版我都买来玩了，感觉不出有什么大差别。ps4版我还是用ps5玩的，u技用多个魔法该 ...</blockquote>
+无语……但不用纠结，直接用NSL玩……
+
+*****
+
+####  Piano-Forest  
+##### 95#       发表于 2026-6-3 04:11
+
+官网？
+[https://bond.tales-ch.jp/](https://bond.tales-ch.jp/)
+
+
+*****
+
+####  Ares  
+##### 96#       发表于 2026-6-3 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69577553&amp;ptid=2280008" target="_blank">雪雨轻澜 发表于 2026-5-5 16:45</a>
+
+toe是2周目的疯狂彗星吧，元精灵秘奥按键派生    Re:Source</blockquote>
+你记错了，2周目疯狂彗星派生是TOD2博士的
+
+
+*****
+
+####  雪雨轻澜  
+##### 97#       发表于 2026-6-3 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69712962&amp;ptid=2280008" target="_blank">Ares 发表于 2026-6-3 10:09</a>
+你记错了，2周目疯狂彗星派生是TOD2博士的</blockquote>
+没有记错，元精灵max后可以通过按键触发派生，比tod2还要早，要先开最高难度打一场战斗就可以开启了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  Ares  
+##### 98#       发表于 2026-6-3 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713069&amp;ptid=2280008" target="_blank">雪雨轻澜 发表于 2026-6-3 10:24</a>
+
+没有记错，元精灵max后可以通过按键触发派生，比tod2还要早，要先开最高难度打一场战斗就可以开启了    R ...</blockquote>
+是可以触发派生，但不叫疯狂彗星
+
+
+*****
+
+####  cxn  
+##### 99#       发表于 2026-6-3 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713069&amp;ptid=2280008" target="_blank">雪雨轻澜 发表于 2026-6-3 10:24</a>
+
+没有记错，元精灵max后可以通过按键触发派生，比tod2还要早，要先开最高难度打一场战斗就可以开启了    R ...</blockquote>
+你搞混了
+
+TOE的那个隐藏要素是从召唤元素晶灵麦克斯韦开始的八段派生，一般称为元素八段派生，其实算上召唤技一共是九段
+
+名叫疯狂彗星派生的是TOD2的隐藏要素，是博士发动疯狂彗星晶术后可以再追加三段，总共四段
+
+
