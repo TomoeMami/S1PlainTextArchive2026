@@ -3241,3 +3241,2818 @@ pmm的vlog也发了，这作鬼武者线下demo目前清一色好评，而且动
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+*****
+
+####  Piano-Forest  
+##### 349#         楼主| 发表于 2026-6-3 05:31
+
+ 本帖最后由 Piano-Forest 于 2026-6-3 05:32 编辑 
+
+26年9月25日发售，Demo今日上线
+
+
+*****
+
+####  otakun  
+##### 350#       发表于 2026-6-3 05:39
+
+Demo steam 上吗，还看不到
+
+
+*****
+
+####  wwmmddqqbbpp  
+##### 351#       发表于 2026-6-3 06:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69711905&amp;ptid=2210366" target="_blank">otakun 发表于 2026-6-3 05:39</a>
+
+Demo steam 上吗，还看不到</blockquote>
+已经上了
+
+
+*****
+
+####  conanoysq  
+##### 352#       发表于 2026-6-3 06:44
+
+<img src="https://img.stage1st.com/forum/202606/03/064314hr6xsw9wwxwmsrus.jpg" referrerpolicy="no-referrer">
+
+<strong>063304a1-1ccf-4a5c-9dc2-f1cb3a6ea779.jpg</strong> (324.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 06:43 上传
+
+ps版大 画面有点惨 不晓得是不是因为是demo 纸片树叶 笑死
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  葵  
+##### 353#       发表于 2026-6-3 06:57
+
+笑死了，玩了PS5版，是因为是DEMO的原因没做完么？这游戏砍人居然没震动，鬼武者砍人没震动你敢信？TMD隔壁生化RE4和RE9走在不同的地上都有不同的震动，更别说开枪换弹这些了，而且打击感做的也一般，战斗系统也没啥花头
+
+期待度**的降低了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zqqwe  
+##### 354#       发表于 2026-6-3 07:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69712013&amp;ptid=2210366" target="_blank">葵 发表于 2026-6-3 06:57</a>
+笑死了，玩了PS5版，是因为是DEMO的原因没做完么？这游戏砍人居然没震动，鬼武者砍人没震动你敢信？TMD隔壁 ...</blockquote>
+没震动那拉完了
+
+
+*****
+
+####  我王  
+##### 355#       发表于 2026-6-3 07:37
+
+精防拼刀一闪全有震动，这就拉完了，下个demo很难吗
+
+
+*****
+
+####  YukariK  
+##### 356#       发表于 2026-6-3 07:40
+
+整体还行，小精英和boss有点意思，小怪太一般了，跟纸糊的一样
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  灰色的狐狸  
+##### 357#       发表于 2026-6-3 07:41
+
+动作衔接的流畅度史无前例的
+
+但战斗系统怎么回事
+
+这难度调高两个等级还差不多
+
+
+*****
+
+####  Dorohedoro  
+##### 358#       发表于 2026-6-3 07:44
+
+demo就是个初始教程，教你一些基本操作和游戏机制，不过可以看出来这一作在战斗设计层面更接近生化4re而不是清版act，也没有必要把一闪系统之于这游戏说的多重要，玩老鬼武者通关都没用过一闪的人多了去了，不是谁都有闲心把时间全浪费在这种进阶技巧上
+
+
+*****
+
+####  葵  
+##### 359#       发表于 2026-6-3 07:50
+
+DEMO打完了，感觉就demo而言玩点全在各种架招和相持的动作上，可能制作方向也是希望表现在各种拼刀和相持上，然后精防和一闪的判定挺宽松的，稍微注意下敌人起手动作就能轻松按出来<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+战斗整个下来只有最后的小次郎BOSS战初见有点意思，各种套招和拼刀的动作捕捉做的挺丰富的，但是熟悉了他的动作以后发现只要按好精防就能轻松无伤，瞬间又觉得有点无聊了。。。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 360#       发表于 2026-6-3 08:19
+
+喂喂，拿到鬼武的傻不愣登的演武呢？
+
+
+*****
+
+####  缺德猫  
+##### 361#       发表于 2026-6-3 08:22
+
+好多系统都没用出来，只会无脑弹反然后砍砍砍
+
+*****
+
+####  otakun  
+##### 362#       发表于 2026-6-3 08:23
+
+手柄震动是试玩没加吧，太影响手感了，其他都还好。再老生常谈一句国内游戏配音的人来来去去就那几个，我就试玩看到有中配试了下，我上一个玩的现代中配游戏是如龙8，所以这次直接幻听成春日一番了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  conanoysq  
+##### 363#       发表于 2026-6-3 08:23
+
+一闪还在，伤害依然给力，demo道中的大刀精英怪，三次一闪即可闪死。一闪判定体感介于3代和新鬼之间，连续一闪还在，和朋友讨论下，条件应该是武藏附近存在1个以上失衡或者即将失衡的敌人，成功一闪后，然后其他镜头打到失衡敌人身上，并且出现红点，按下三角就自动接一闪，变成了有条件的qte，门槛**降低。·弹一闪变化，完美格挡只是让敌人中断敌人攻击，身体大幅度失衡，杂兵失衡条大幅度减少，需要再接一两次普通攻击才能处决，精英就算完美格挡也削减不了多少失衡条，但是可以创造反击机会。·振动反馈很棒，普通攻击并没有振动，但是普通格挡，完美格挡，一闪都有不同时常和频率的反馈，高情商说就是振动反馈主次分明。·面对敌人的攻击，你可以做决策的要素比前作多了些，除了老三样，还有瞬间闪避，拆投。因为普通杂兵也可以使出投机，在后面的小次郎也会使出前摇极短的投技，就需要你临场对策。瞬间闪避就是在不改变敌人姿态的情况下绕到敌人攻击死角，给自己创造反击机会，在面对小次郎的时候尤其有用。画面很拉，甚至有的树的贴图都是侧面对着我，纯纸片非常出戏。后面我换了PC版拉满特调，除了分辨率和帧数以外，并没有太大区别。
+
+
+*****
+
+####  JOJO42  
+##### 364#       发表于 2026-6-3 08:30
+
+讲道理，老卡现在的出品对攻击的震动和打击反馈普遍都很克制吧，虽然我个人是不太喜欢这个路线，但是玩下来，这个demo里对震动的克制，我觉得是挺适合的；兼顾了整体的写实风格，以及不同操作成功后反馈的区分
+
+
+*****
+
+####  thez  
+##### 365#       发表于 2026-6-3 08:34
+
+打完了还可以，会入实体盘
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 366#       发表于 2026-6-3 08:36
+
+小次郎：吃我绕背斩啊！
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 367#       发表于 2026-6-3 08:38
+
+默认键位方块防御不习惯，换成第二套键位闪避又跑到O键去了，只能调回默认键位。
+
+什么叫直观适合动作游戏玩家，什么又叫便于操作利于新手，卡婊知道自己在干什么吗？
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 368#       发表于 2026-6-3 08:38
+
+武藏刚健朴实的一声：滚！
+
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 369#       发表于 2026-6-3 08:42
+
+<img src="https://images.steamusercontent.com/ugc/13874711272481843111/A5376A7E5C35A44A7198ECFD97FCFC12963596A9/?imw=5000&amp;imh=5000&amp;ima=fit&amp;impolicy=Letterbox&amp;imcolor=%23000000&amp;letterbox=false" id="aimg_bHJtJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  otakun  
+##### 370#       发表于 2026-6-3 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69712399&amp;ptid=2210366" target="_blank">MR骑士道MKⅦ 发表于 2026-6-3 08:42</a></blockquote>
+宫本武藏:黑魂是什么……？.jpg
+
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 371#       发表于 2026-6-3 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69712404&amp;ptid=2210366" target="_blank">otakun 发表于 2026-6-3 08:44</a>
+
+宫本武藏:黑魂是什么……？.jpg</blockquote>
+这次的翻译很……活泼<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月光下的静寂  
+##### 372#       发表于 2026-6-3 08:47
+
+主角性能过强，各种手段轻松砍怪，这么丰富的系统应该有更高的难度，比如小兵进攻欲望再提高几级，数量再多一些，应该会更刺激更好玩
+
+*****
+
+####  缺德猫  
+##### 373#       发表于 2026-6-3 08:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69712430&amp;ptid=2210366" target="_blank">月光下的静寂 发表于 2026-6-3 08:47</a>
+
+主角性能过强，各种手段轻松砍怪，这么丰富的系统应该有更高的难度，比如小兵进攻欲望再提高几级，数量再多 ...</blockquote>
+感觉压力大一些才好玩，试玩纯无双，没劲啊
+
+*****
+
+####  卡拉德利姆  
+##### 374#       发表于 2026-6-3 08:49
+
+卡表会不做最高难度吗 怎么可能
+
+
+*****
+
+####  若菜  
+##### 375#       发表于 2026-6-3 08:52
+
+放心，只能用一闪杀敌的一闪模式都少不了
+
+
+*****
+
+####  千秋难诉  
+##### 376#       发表于 2026-6-3 09:07
+
+卡比奥什么时候把战略版端上来<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 377#       发表于 2026-6-3 09:14
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2026-6-3 09:20 编辑 
+
+玩法挺单调，老鬼武者除了一闪还有生化危机的ADV和资源管理玩法，DEMO把一闪拿走后剩下的东西就不多了，到时只能当个爆米花游戏玩。
+
+如果战斗能继续扩展，希望能给玩家加上体术，而不是只有敌人能用，例如最基本的一脚踹过去能让敌人撞墙上或另一个敌人身上，撞上了就削韧。
+
+还有其它武器变成偶尔才能用的技能了，看来要一把刀从头砍到尾，比起老鬼退步了。
+
+*****
+
+####  杀仁小登  
+##### 378#       发表于 2026-6-3 09:19
+
+只有一把主武器（可能后期有二刀流?）动作和交互更细腻的影之刃零
+
+
+*****
+
+####  夜雨秋水  
+##### 379#       发表于 2026-6-3 09:29
+
+小次郎这样子百分之九十是可控。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  银色天空  
+##### 380#       发表于 2026-6-3 09:43
+
+靠，直观型操作到底哪直观了，还适合动作游戏玩家，就因为可以一只手战斗吗…换回基础型了。
+
+画面看着挺舒服的。难度有点低，希望正式版开场可以选更难的。
+
+
+*****
+
+####  MRhythm  
+##### 381#       发表于 2026-6-3 10:53
+
+直观型喷了, 误导了我半天.
+
+
+*****
+
+####  TheOccuria  
+##### 382#       发表于 2026-6-3 11:05
+
+怎么感觉画面好差<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杀仁小登  
+##### 383#       发表于 2026-6-3 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713356&amp;ptid=2210366" target="_blank">TheOccuria 发表于 2026-6-3 11:05</a>
+
+怎么感觉画面好差</blockquote>
+卡婊写给忍者组的情书
+
+
+*****
+
+####  u2deack  
+##### 384#       发表于 2026-6-3 11:22
+
+好玩确实好玩但是试玩这难度打得也一点都不爽，而且怎么不能调fov啊镜头也太近了好难受
+
+
+*****
+
+####  Kenjin  
+##### 385#       发表于 2026-6-3 11:26
+
+一个demo版不出高难度也可以理解吧。基础系统还是很不错的，多种格挡操作+一闪（以及一闪的容错版 白刃战）组合起来几乎可以覆盖各种水平的用户了
+
+*****
+
+####  Leliel  
+##### 386#       发表于 2026-6-3 11:27
+
+ 本帖最后由 Leliel 于 2026-6-3 11:29 编辑 
+
+下来玩了一会，开低配置我电脑也能跑，不错<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+切人手感不错，符合预期
+
+不过这个精准格挡居然还有两种类型
+
+*****
+
+####  若菜  
+##### 387#       发表于 2026-6-3 11:29
+
+就一个教学关demo，难道给你上一闪模式？
+
+
+*****
+
+####  真蓝眼红Z  
+##### 388#       发表于 2026-6-3 11:44
+
+刚刚打完了，岩流弹了他几下莫名其妙就打死了，我还没燃起来呢，好迷；
+
+前面找绳子头探地图可以说巨无聊吧
+
+*****
+
+####  MRhythm  
+##### 389#       发表于 2026-6-3 11:46
+
+难度有点低了, 弹和闪判定都很宽松, 一闪稍有难度.
+
+目前目测体术只能闪, 刀可闪可弹. 弹有个缺点是弹失败了变防御敌人又是重击的话会崩出大硬直, 需要及时用闪取消.
+
+刃交击在杂兵战中即使很刻意也很难用出来, 早一点晚一点都不行. 对小次郎倒是出过很多次. 需要及时变招. 轻刀触发的变重刀, 反之亦然.
+
+拼刀没啥好说的, 连打就行. 就是感觉难度有点不对劲, 我手速不算慢了, 没拼赢过小次郎.
+
+另外对小次郎也是能触发特殊处决的. 打完红条的时候如果小次郎血比较少的话, 武藏会收刀然后一个很帅的居合结束战斗.
+
+
+*****
+
+####  Nosgoth  
+##### 390#       发表于 2026-6-3 12:04
+
+连续闪避槽满了后那个连斩直接让我想到了十连斩。
+
+另外这个demo里好像没说，我之前看媒体试玩看到的，对飞行道具一直防御，要打到的时候按x能弹回去。
+
+*****
+
+####  isa2456  
+##### 391#       发表于 2026-6-3 12:09
+
+细节只记得小次郎叫岩流<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">弹反的判定挺宽的就吃了一下投技，不然可以无伤打过，纯度还是太低了
+
+
+*****
+
+####  otakun  
+##### 392#       发表于 2026-6-3 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713806&amp;ptid=2210366" target="_blank">Nosgoth 发表于 2026-6-3 12:04</a>
+连续闪避槽满了后那个连斩直接让我想到了十连斩。
+
+另外这个demo里好像没说，我之前看媒体试玩看到的，对飞 ...</blockquote>
+有说，四个远程兵那里会提起，RB+A会弹会箭矢
+
+
+*****
+
+####  不见不散  
+##### 393#       发表于 2026-6-3 12:21
+
+卡普空怎么还能搞出纸片树叶侧面对着人这种活来？现在二游的树叶都已经普遍是可以自动旋转始终正对镜头了。虽然在极少数情况下近景会看到树叶自动旋转有点出戏，但是在绝大多数远景下，效果是比较好的。
+
+*****
+
+####  57042711  
+##### 394#       发表于 2026-6-3 12:21
+
+试玩那肯定随便砍砍了，要难度肯定在幻魔空间吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Leliel  
+##### 395#       发表于 2026-6-3 12:23
+
+其实所谓剑戟难度其实就是标准难度吧，另一个就是纯看剧情的难度了
+
+要上强度还不简单，数值一拉，判定一减，再开个一闪模式<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MRhythm  
+##### 396#       发表于 2026-6-3 12:28
+
+为了让更多人能通关, 难度上妥协了吧. 其实也不是什么大事, 正式版加难度就是了.
+
+又去打了遍, 看了下如果不利用弹和闪直接进攻其实难度还是不低的, 敌人的反击欲望非常强, 挨了玩家一刀以后就开始用各种刮蹭刀凭着霸体反击了. 小次郎哪怕抓到大硬直也很难砍完一整套.
+
+
+*****
+
+####  otakun  
+##### 397#       发表于 2026-6-3 12:34
+
+我记得以前的鬼武者，除了一闪模式之外，本身通关就没多大难度的吧
+
+
+*****
+
+####  储安平  
+##### 398#       发表于 2026-6-3 12:49
+
+这也太无聊了，手感好差
+
+
+*****
+
+####  缺德猫  
+##### 399#       发表于 2026-6-3 12:57
+
+主机版用出了好几次一闪，还出了连闪，但不知道怎么触发的，这套东西压力大的话会很爽啊
+
+*****
+
+####  Nosgoth  
+##### 400#       发表于 2026-6-3 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714101&amp;ptid=2210366" target="_blank">缺德猫 发表于 2026-6-3 12:57</a>
+
+主机版用出了好几次一闪，还出了连闪，但不知道怎么触发的，这套东西压力大的话会很爽啊 ...</blockquote>
+连闪现在只有多个敌人在一起力动没了才能发动，比如团战那里一门板踹过去一片，真一闪我现在只能对发动攻击的单个敌人用。
+
+
+*****
+
+####  缺德猫  
+##### 401#       发表于 2026-6-3 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714111&amp;ptid=2210366" target="_blank">Nosgoth 发表于 2026-6-3 12:59</a>
+
+连闪现在只有多个敌人在一起力动没了才能发动，比如团战那里一门板踹过去一片，真一闪我现在只能对发动攻 ...</blockquote>
+不是那个，我就是出了真一闪的连闪
+
+*****
+
+####  缺德猫  
+##### 402#       发表于 2026-6-3 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713274&amp;ptid=2210366" target="_blank">MRhythm 发表于 2026-6-3 10:53</a>
+
+直观型喷了, 误导了我半天.</blockquote>
+繁中两种操作方式叫进攻型和防御型
+
+
+*****
+
+####  FBC档案部专员  
+##### 403#       发表于 2026-6-3 13:08
+
+demo的难度好温柔，优化也不错
+
+买了
+
+*****
+
+####  Nosgoth  
+##### 404#       发表于 2026-6-3 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714135&amp;ptid=2210366" target="_blank">缺德猫 发表于 2026-6-3 13:03</a>
+
+不是那个，我就是出了真一闪的连闪</blockquote>
+看到了真连闪视频，自己在敌人堆里还是用不出来，只能一闪攻击的敌人。
+
+
+*****
+
+####  壳壳牛  
+##### 405#       发表于 2026-6-3 13:41
+
+感觉佐佐木的下砸特别容易闪
+
+
+*****
+
+####  Leliel  
+##### 406#       发表于 2026-6-3 14:12
+
+还有真连锁一闪吗，我得去试试<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  退行  
+##### 407#       发表于 2026-6-3 14:21
+
+连锁一闪是在一闪后的瞬间再攻击，可以一直持续
+
+*****
+
+####  Cranberries  
+##### 408#       发表于 2026-6-3 14:22
+
+这战斗确实有点爽，而且感觉很多动作都还不会用。
+除了画面黑不拉几的有点拉，优化啥的都OK。
+剩下的就怕卡表经典流程短了。
+
+
+*****
+
+####  Sliurus  
+##### 409#       发表于 2026-6-3 14:33
+
+中午试了下真有说法，只要你想可以打得非常帅，武藏的性能非常离谱
+
+就是杂兵战有点昏睡，不知道是不是demo的原因。打佐佐木才需要运用到各种系统
+
+
+*****
+
+####  缺德猫  
+##### 410#       发表于 2026-6-3 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714468&amp;ptid=2210366" target="_blank">Cranberries 发表于 2026-6-3 14:22</a>
+
+这战斗确实有点爽，而且感觉很多动作都还不会用。
+
+除了画面黑不拉几的有点拉，优化啥的都OK。
+
+剩下的就怕卡 ...</blockquote>
+第一遍完全不爽，第二遍纯爽
+
+
+*****
+
+####  otakun  
+##### 411#       发表于 2026-6-3 14:43
+
+连闪出了一次，爽了一中午<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">。打道中一堆怪，有一只会怪翻滚转过来，贴身刚好触发了一闪，之后按攻击自动跑过去闪死了第二只，跟着跑过去第三只怪那里踩怪跳起来登龙剑，真下头，我喜欢<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kazami1004  
+##### 412#       发表于 2026-6-3 14:44
+
+ 真连闪操作方式——真一闪成功闪白光的时候再按攻击键，不要连按。
+
+
+*****
+
+####  杀仁小登  
+##### 413#       发表于 2026-6-3 15:53
+
+<img src="https://img.stage1st.com/forum/202606/03/154951gvg61loflq6fvxvz.jpg" referrerpolicy="no-referrer">
+
+<strong>HJ2KE9wbUAAbWjI.jpg</strong> (847.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 15:49 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/155209tevm1hmzm1meez7z.jpg" referrerpolicy="no-referrer">
+
+<strong>images.steamusercontent.jpg</strong> (30.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 15:52 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/155323d6oo9twiu0ozngu4.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20260603155316.png</strong> (130.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 15:53 上传
+
+
+*****
+
+####  byisme001  
+##### 414#       发表于 2026-6-3 16:11
+
+这部完全没明星脸了吗
+
+*****
+
+####  kuarwbwe  
+##### 415#       发表于 2026-6-3 16:12
+
+<blockquote>byisme001 发表于 2026-6-3 16:11
+这部完全没明星脸了吗</blockquote>
+宫本武藏用的三船敏郎的脸。说实话完全没看出来。
+
+
+*****
+
+####  缺德猫  
+##### 416#       发表于 2026-6-3 16:23
+
+<img src="https://img.stage1st.com/forum/202606/03/162325ppwj7j0zpca5hepp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 16:23 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/162332qop4m8q80p088qwj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 16:23 上传
+
+
+*****
+
+####  猫将军  
+##### 417#       发表于 2026-6-3 16:42
+
+怎么建模脸跟火星蟑螂一样<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卡拉德利姆  
+##### 418#       发表于 2026-6-3 16:55
+
+第一个片子出来我就没看出来哪里像三船了 脸莫名其妙的被拉长了
+
+
+*****
+
+####  RinC  
+##### 419#       发表于 2026-6-3 17:03
+
+这代boss是没办法连闪了吗，试了几次都没摁出来第二下
+
+
+*****
+
+####  lbb3313725  
+##### 420#       发表于 2026-6-3 17:14
+
+真连闪长啥样，不是QTE连闪的那种？
+
+*****
+
+####  新庄運切  
+##### 421#       发表于 2026-6-3 17:15
+
+手感还可以，就是这画面26年的游戏感觉质感有点差，预购了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  紫沙狐  
+##### 422#       发表于 2026-6-3 17:24
+
+优化不错啊 4K极高开FSR4.1 帧数能到150 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asikies  
+##### 423#       发表于 2026-6-3 17:25
+
+刚开始玩，节奏是不是太慢了？
+
+*****
+
+####  时空之旅  
+##### 424#       发表于 2026-6-3 17:26
+
+总感觉打击感有点绵，不是节奏比较爽快的那种
+
+
+*****
+
+####  RinC  
+##### 425#       发表于 2026-6-3 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715282&amp;ptid=2210366" target="_blank">lbb3313725 发表于 2026-6-3 17:14</a>
+
+真连闪长啥样，不是QTE连闪的那种？</blockquote>
+没有按键提示只有一个锁定红点提示，就是第一个一闪之后刀砍完停住那下最大发光的时候按攻击会冲过去自动处决，接第三下同理。这代连闪判定相当宽松的，宁愿晚按也别早按
+
+
+*****
+
+####  葵  
+##### 426#       发表于 2026-6-3 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714998&amp;ptid=2210366" target="_blank">kuarwbwe 发表于 2026-6-3 16:12</a>
+
+宫本武藏用的三船敏郎的脸。说实话完全没看出来。</blockquote>
+说是用三船的脸，但是游戏里面像甄子丹，笑起来和插科打诨的时候特别像<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时空之旅  
+##### 427#       发表于 2026-6-3 17:35
+
+虽然中文配音要支持也好评，但是这配音质量真的不太行，声线太差了
+
+我觉得现在的这些配音真的不如8，90年代甚至更早那些配音来的好，以前的配音你不会分心觉得这是其他人配音，你会觉得这就是角色说的话，现在的配音一听就觉得这是人在配，而且是捏着嗓音装腔作势的配音，和角色根本就融不到一起
+
+以前觉得魔兽世界的配音可以，最近就是黑神话里面的糜道人配音可以
+
+
+*****
+
+####  plok201  
+##### 428#       发表于 2026-6-3 17:44
+
+鬼武器就全成技能了么，从头到尾一把刀会很无聊吧，虽然以前为了一闪也是一把打刀用到尾
+
+回去看了下宣传片，除了变身和射箭，其他都在试玩版有了，大关刀应该也是鬼武器技能，有点担心流程了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  asikies  
+##### 429#       发表于 2026-6-3 18:01
+
+这么短？感觉这系统一眼到头啊，除了战斗演出脚本流畅外感觉跟卧龙一个水平，不过也符合现在卡婊10小时内小而精的作风。
+
+
+*****
+
+####  lbzlxx  
+##### 430#       发表于 2026-6-3 18:30
+
+新鬼武者8月登录ps,没错，就是你想那部游戏
+
+*****
+
+####  紫沙狐  
+##### 431#       发表于 2026-6-3 18:32
+
+连一闪也太爽了吧 理解为啥上一堆怪了 根本不够砍啊<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xyq075898  
+##### 432#       发表于 2026-6-3 18:45
+
+佐佐木严流是不是松田翔太？
+
+*****
+
+####  千本blur  
+##### 433#       发表于 2026-6-3 18:47
+
+感觉就是我梦想中的游戏，把所有动作游戏的系统融合在一起，动作精细程度无与伦比。但他又把这套系统简化成了判断什么时候按abxy，打起打起来非常符合直觉。
+
+除了难绷的配音吧。
+
+
+*****
+
+####  nage560  
+##### 434#       发表于 2026-6-3 18:53
+
+师爷给我翻译翻译什么叫力动，这简中翻译又拉了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  otakun  
+##### 435#       发表于 2026-6-3 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715654&amp;ptid=2210366" target="_blank">千本blur 发表于 2026-6-3 18:47</a>
+感觉就是我梦想中的游戏，把所有动作游戏的系统融合在一起，动作精细程度无与伦比。但他又把这套系统简化成 ...</blockquote>
+你这么一说就想通为什么基础按键是把四个战斗操作按键放ABXY一起了
+
+*****
+
+####  我王  
+##### 436#       发表于 2026-6-3 18:57
+
+[https://www.famitsu.com/article/202503/37453](https://www.famitsu.com/article/202503/37453)
+
+上年的采访，说是20小时通关的程度
+
+
+*****
+
+####  nage560  
+##### 437#       发表于 2026-6-3 19:03
+
+崩一闪现在的操作是LB+A键，能防御保底旧鬼武者亲民了很多，不过这不就是卧龙的化劲嘛，卡表有你的。
+
+
+*****
+
+####  Leliel  
+##### 438#       发表于 2026-6-3 19:19
+
+<blockquote>nage560 发表于 2026-6-3 18:53
+师爷给我翻译翻译什么叫力动，这简中翻译又拉了</blockquote>
+力动 就是直接照搬的日文原文的汉字
+
+
+*****
+
+####  杀仁小登  
+##### 439#       发表于 2026-6-3 19:30
+
+<blockquote>xunit 发表于 2024-12-13 15:28
+不是，PV里的动作戏怎么都在“哐哐”格挡啊，还有疑似处决/背刺的动作也不够干净利落 ...</blockquote>
+动捕癌写实癌入脑是这样的
+
+
+*****
+
+####  姬茧墨  
+##### 440#       发表于 2026-6-3 20:22
+
+连锁一闪有点难按，一闪对那些大开大合的招式很好触发，比如各类下劈
+
+
+*****
+
+####  HellMaster  
+##### 441#       发表于 2026-6-3 20:44
+
+【教你们打打剑之道，一闪和呼吸一样简单（鬼武者）-哔哩哔哩】 [https://b23.tv/iv9w6qF](https://b23.tv/iv9w6qF)
+
+这一闪的效果延迟看这其实有点不舒服的…
+
+
+*****
+
+####  nage560  
+##### 442#       发表于 2026-6-3 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715811&amp;ptid=2210366" target="_blank">Leliel 发表于 2026-6-3 19:19</a>
+
+力动 就是直接照搬的日文原文的汉字</blockquote>
+照搬还行，太懒了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JOJO42  
+##### 443#       发表于 2026-6-3 20:54
+
+在佐佐木那里练了几把一闪，这作动作脚本确实多，各种情况下都给了不同的动作动画，包括攻击防御状态敌人被其弹刀的话，按键准确也可以立刻弹回去，而且佐佐木的投机也能通过一闪（或者说攻击）拆投，也有不一样的动画
+
+
+*****
+
+####  超极巨鲨鲨  
+##### 444#       发表于 2026-6-3 21:03
+
+太帅了，虽然不太按得出一闪但是打起来也好爽<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  姬茧墨  
+##### 445#       发表于 2026-6-3 21:10
+
+基本上熟练连闪了，主要是第一下需要目押，第一刀卡肉白光最亮的瞬间按攻击，二闪就很简单了，目押命中就能打出第三刀了
+
+有点像忍龙4的虎搏的放帧手感
+
+
+*****
+
+####  纯爱战士段正淳  
+##### 446#       发表于 2026-6-3 21:17
+
+没玩过前作，这默认键位是前作就这么反人类的吗
+
+*****
+
+####  姬茧墨  
+##### 447#       发表于 2026-6-3 21:22
+
+找到窗口后连闪已经像呼吸一般简单了，重点就是第一刀，除了目押白光还可以通过切肉的声音和轻微的卡肉感来判断时机，现在基本有90左右的连闪成功率了
+
+
+*****
+
+####  司马千晶  
+##### 448#       发表于 2026-6-3 21:44
+
+一闪打boss收益不怎么样，化劲亮刀加攻击，然后是平砍，还是用l+x那个弹，效率都高。
+
+
+*****
+
+####  若菜  
+##### 449#       发表于 2026-6-3 21:49
+
+以前是可以连一闪boss的，不知道后面技能树有没有对boss的连一闪，有的话那还是一闪收益最高，而且不需要任何资源
+
+*****
+
+####  Eadric  
+##### 450#       发表于 2026-6-3 21:53
+
+打boss一闪有点难 化劲好简单
+
+
+*****
+
+####  姬茧墨  
+##### 451#       发表于 2026-6-3 22:15
+
+直接全一闪把小次郎打死了，不敢想能对boss连闪能简单成什么样
+
+
+*****
+
+####  Yugao  
+##### 452#       发表于 2026-6-3 22:20
+
+这demo不支持dse的震动搞得我很烦，手头也没有其他手柄能用
+
+
+*****
+
+####  Piano-Forest  
+##### 453#         楼主| 发表于 2026-6-3 22:40
+
+グッズ同梱版『鬼武者 Way of the Sword - Art &amp; Music Collection』が登場！✨
+
+本編楽曲の中から珠玉の14曲を収録したアナログ盤「Vinyl Soundtrack」（LP/1枚）と、ビジュアルアートや貴重な設定画などを大ボリュームで収録した「Art Book」がセットに！
+
+「Art Book」の中身を一部紹介！✨
+
+登場キャラクター、幻魔、装備品ディティール、背景や浮世絵まで盛りだくさんのビッグサイズ64ページ仕上げです📖
+
+※一部ネタバレを含む内容となっております。ゲームクリア後にご覧いただくことをおすすめいたします。
+<img src="https://p.sda1.dev/32/45dc4ac0faed0a985061f524dc5e5f5b/20260603_223804.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/06895906ee842c108ea54bc6f70f56ed/20260603_223812.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/32/6896a8103300059c536f41f1d42e02cb/20260603_223813.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/57e89e3e440451736ee310f4c91739b0/20260603_223815.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  catabridge  
+##### 454#       发表于 2026-6-3 22:48
+
+这体积雾太瞎眼了，整个游戏基本上灰蒙蒙一片，仁王3的画面都显得眉清目秀了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+感觉这卖相，销量真的可能会暴死（
+
+*****
+
+####  lbb3313725  
+##### 455#       发表于 2026-6-3 22:50
+
+玩着挺爽的，就是画面有点差。正式版连锁一闪最后一下不会固定都是跳砍吧，那样就太单调了。
+
+
+*****
+
+####  无动于衷  
+##### 456#       发表于 2026-6-3 22:56
+
+还有黑白滤镜？
+
+
+*****
+
+####  zqqwe  
+##### 457#       发表于 2026-6-3 23:00
+
+笼手妹的马脸还能高情商说有特色（神似牙狼第一部的邪美），阿国这脸和发型甚至想起鬼佬那个中世纪dei女主，太下头了。相比之下仁3的演员脸都能算绝色<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  姬茧墨  
+##### 458#       发表于 2026-6-3 23:09
+
+说实话这代确实不是主推一闪了，这个化劲的动作演出明显是整个游戏最下功夫的地方
+
+特别是那几个反手架开的动作，简直划时代的流畅性演出，玩家不管处于怎样的身位和动作都能自然带入多样的架招动作，纯纯的炫技
+
+进拼刀后的反击运镜流畅而且种类繁多，如果只玩一闪确实会错过太多这个鬼武者重启之作给你带来的全新乐趣
+
+*****
+
+####  汪达  
+##### 459#       发表于 2026-6-3 23:09
+
+敌人的各种动作都有相应的交互动画，弹反和处决的动作好丰富，还有打破防的体术处决，反制敌方投技的投技，惊了
+
+*****
+
+####  魂淡放我出去  
+##### 460#       发表于 2026-6-3 23:11
+
+鼠标侧键的力动瓦解那个键是干嘛用的？
+
+*****
+
+####  汪达  
+##### 461#       发表于 2026-6-3 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716337&amp;ptid=2210366" target="_blank">纯爱战士段正淳 发表于 2026-6-3 21:17</a>
+
+没玩过前作，这默认键位是前作就这么反人类的吗</blockquote>
+虽然不知道为什么默认键位这么奇葩，但是选另外一个键位就正常多了
+
+
+*****
+
+####  杀仁小登  
+##### 462#       发表于 2026-6-3 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716718&amp;ptid=2210366" target="_blank">zqqwe 发表于 2026-6-3 23:00</a>
+
+笼手妹的马脸还能高情商说有特色（神似牙狼第一部的邪美），阿国这脸和发型甚至想起鬼佬那个中世纪dei女主 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仁王也有阿国
+
+*****
+
+####  舌怪  
+##### 463#       发表于 2026-6-3 23:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715374&amp;ptid=2210366" target="_blank">葵 发表于 2026-6-3 17:34</a>
+说是用三船的脸，但是游戏里面像甄子丹，笑起来和插科打诨的时候特别像 ...</blockquote>
+其实我听着配音一直觉得是细谷佳正本人<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  57042711  
+##### 464#       发表于 2026-6-3 23:44
+
+这个对砍还挺有意思的，鬼泣那个拼刀pro版<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  杀仁小登  
+##### 465#       发表于 2026-6-3 23:46
+
+主要还是看料堆了多少。
+
+现在官网的boss有小次郎，酒吞，1代肥仔，戴面具的女幻魔，大鵺
+
+小兵除了demo里的，还有demo里没打的满身符，鸟人，分裂怪，肿包头
+
+20260603220841_1.jpg
+(377.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 23:42 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/234231iv20cmlb4m32ycm4.jpg" referrerpolicy="no-referrer">
+
+20260603221118_1.jpg
+(466.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 23:42 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/234231cix6c80xhca88i8x.jpg" referrerpolicy="no-referrer">
+
+20260603221037_1.jpg
+(286.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 23:42 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/234231gkccw99q1lldluhl.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新庄運切  
+##### 466#       发表于 2026-6-3 23:57
+
+demo支持振动么，重打一遍demo用ps5的手柄也没振动，我看设置里开着的啊，而且ps5好像pc也不对应按键图标，图标还是xbox的
+
+*****
+
+####  Nosgoth  
+##### 467#       发表于 2026-6-3 23:59
+
+<blockquote>新庄運切 发表于 2026-6-3 23:57
+demo支持振动么，重打一遍demo用ps5的手柄也没振动，我看设置里开着的啊，而且ps5好像pc也不对应按键图标， ...</blockquote>
+有震动，图标要在设置里选。
+
+
+*****
+
+####  Yugao  
+##### 468#       发表于 2026-6-4 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716906&amp;ptid=2210366" target="_blank">新庄運切 发表于 2026-6-3 23:57</a>
+
+demo支持振动么，重打一遍demo用ps5的手柄也没振动，我看设置里开着的啊，而且ps5好像pc也不对应按键图标， ...</blockquote>
+给dse发声权限的话过场动画会有震动，但是游戏里其他部分无论如何都没有，并且这个demo声音偏小十分严重
+
+*****
+
+####  新庄運切  
+##### 469#       发表于 2026-6-4 00:01
+
+怪了我第一遍用xbox手柄也没啥振动，写ps5也没振动，啥情况下会有振动，我去试试
+
+
+*****
+
+####  放大镜  
+##### 470#       发表于 2026-6-4 00:09
+
+这丫头居然是阿国………………
+
+
+*****
+
+####  恋妖壶  
+##### 471#       发表于 2026-6-4 00:36
+
+【因为玩到了中意的战斗导致只能痛苦的等待3个月这件事【鬼武者DEMO】】 [https://www.bilibili.com/video/B ... 5fb3b1c96074dc5a400](https://www.bilibili.com/video/BV1vH7R6tEhR/?share_source=copy_web&amp;vd_source=8905ada96d20d5fb3b1c96074dc5a400)
+
+系统熟悉后打的太爽了随便录了一段，还要等3个月真的太煎熬了啊！<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pu  
+##### 472#       发表于 2026-6-4 01:46
+
+会不会有3个可控人物 武藏!小次郎!(火箭队)阿国!
+
+
+*****
+
+####  终极答案42  
+##### 473#       发表于 2026-6-4 02:08
+
+一闪根本就不闪…………
+
+
+*****
+
+####  姬茧墨  
+##### 474#       发表于 2026-6-4 03:07
+
+自己录的一些回放
+[https://www.bilibili.com/video/BV1Pw7X6eEjk](https://www.bilibili.com/video/BV1Pw7X6eEjk)
+
+战点连闪
+[https://www.bilibili.com/video/BV1vs7R6xEjZ](https://www.bilibili.com/video/BV1vs7R6xEjZ)
+
+无伤小次郎
+
+今晚打了挺多小次郎无伤，但都没有特别满意的，有几个前半段观赏性打得非常好的，但因为一些失误不小心被蹭一刀没打出无伤，明天不知道能不能打出一个比较满意的无伤视频
+
+
+*****
+
+####  姬茧墨  
+##### 475#       发表于 2026-6-4 03:07
+
+自己录的一些回放
+[https://www.bilibili.com/video/BV1Pw7X6eEjk](https://www.bilibili.com/video/BV1Pw7X6eEjk)
+
+战点连闪
+[https://www.bilibili.com/video/BV1vs7R6xEjZ](https://www.bilibili.com/video/BV1vs7R6xEjZ)
+
+无伤小次郎
+
+今晚打了挺多小次郎无伤，但都没有特别满意的，有几个前半段观赏性打得非常好的，但因为一些失误不小心被蹭一刀没打出无伤，明天不知道能不能打出一个比较满意的无伤视频
+
+*****
+
+####  bwsusaga  
+##### 476#       发表于 2026-6-4 05:39
+
+只会崩反和闪反，一闪好难出。
+
+
+*****
+
+####  斯托雷加  
+##### 477#       发表于 2026-6-4 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69717453&amp;ptid=2210366" target="_blank">赤井稻妻 发表于 2026-6-4 08:55</a>
+
+感觉敌人的攻击欲望有点低，在强调防反的游戏里会陷入被动等敌人攻击的状态，可能卡普空也不想把难度弄得太 ...</blockquote>
+鬼武者可以通过吸魂动作来提高仇恨
+
+
+*****
+
+####  纯爱战士段正淳  
+##### 478#       发表于 2026-6-4 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716764&amp;ptid=2210366" target="_blank">汪达 发表于 2026-6-3 23:11</a>
+
+虽然不知道为什么默认键位这么奇葩，但是选另外一个键位就正常多了</blockquote>
+右边是正常act键位
+
+左边太奇特了让我以为是不是初代键位
+
+不知道什么高手用左边的
+
+可以主动控制吸魂真是太好了（看看隔壁忍者
+
+*****
+
+####  lbb3313725  
+##### 479#       发表于 2026-6-4 09:47
+
+最烦L3奔跑按键，最近玩的死亡搁浅2、识质存在都是这样设置还不能改。。
+
+
+*****
+
+####  svmkty  
+##### 480#       发表于 2026-6-4 09:58
+
+现在这种类型的太多了，感觉要想出头太难
+
+
+*****
+
+####  catabridge  
+##### 481#       发表于 2026-6-4 10:01
+
+<blockquote>lbb3313725 发表于 2026-6-4 09:47
+最烦L3奔跑按键，最近玩的死亡搁浅2、识质存在都是这样设置还不能改。。</blockquote>
+该用背键手柄了
+
+
+*****
+
+####  mai6696  
+##### 482#       发表于 2026-6-4 10:07
+
+ 本帖最后由 mai6696 于 2026-6-4 10:08 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69717753&amp;ptid=2210366" target="_blank">lbb3313725 发表于 2026-6-4 09:47</a>
+
+最烦L3奔跑按键，最近玩的死亡搁浅2、识质存在都是这样设置还不能改。。</blockquote>
+左背键映射R3，右背键映射L3。
+
+以握持姿势来看右手不用搭着摇杆，下方手指握持比较紧，背键跑步更顺手。
+
+而且如果有L3+R3的操作我甚至单手就可以搞定。
+
+除了MH以外，大部分动作游戏TPS游戏跑步都是L3了。毕竟比起其他功能来说，跑步只在起步时按，相对来说频率较低。
+
+仁王3也干了。
+
+*****
+
+####  lbb3313725  
+##### 483#       发表于 2026-6-4 10:09
+
+关键我是PS5玩的没有精英手柄。。
+
+
+*****
+
+####  kuarwbwe  
+##### 484#       发表于 2026-6-4 10:14
+
+说实话，现在手柄早就该把按下摇杆这个设计取消，换背键了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yugao  
+##### 485#       发表于 2026-6-4 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69717878&amp;ptid=2210366" target="_blank">mai6696 发表于 2026-6-4 10:07</a>
+
+左背键映射R3，右背键映射L3。
+
+以握持姿势来看右手不用搭着摇杆，下方手指握持比较紧，背键跑步更顺手。
+
+ ...</blockquote>
+仁王实际上因为一些接近里技的进阶操作，都会选择以前长按闪避当跑步的，不过目前确实大部分游戏都会把跑步下蹲这种操作频率不高的放L3和R3，对于习惯长按而不是切换的玩家来说确实不友好
+
+
+*****
+
+####  wthall  
+##### 486#       发表于 2026-6-4 10:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">半小时打完，直接买了，卡表我再信你一次，9月底好漫长啊，之前不知道怎么活
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 487#       发表于 2026-6-4 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69717927&amp;ptid=2210366" target="_blank">kuarwbwe 发表于 2026-6-4 10:14</a>
+
+说实话，现在手柄早就该把按下摇杆这个设计取消，换背键了。</blockquote>
+所以任天堂是神<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我的理想是除了背键外，还得加上PS的触控板
+
+
+*****
+
+####  慕兰  
+##### 488#       发表于 2026-6-4 11:03
+
+化劲直接中断boss动作，还能打一套是不是有点太强了，随随便便封出手或者挡一弹二感觉都无脑乱**oss。招架倒是不会中断动作，但是弹三下就清空boss体力……不知道这游戏怎么做难度设计，demo实在是太简单了
+
+
+*****
+
+####  57042711  
+##### 489#       发表于 2026-6-4 11:10
+
+这出来一大群人围住主角然后一个个上来送死真的有点源氏吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  缺德猫  
+##### 490#       发表于 2026-6-4 11:19
+
+又打了一遍，目前就那个反弹远程安不出来，具体是什么按的啊？不是按住防御，然后等箭过来按攻击吗？
+
+
+*****
+
+####  pointer243  
+##### 491#       发表于 2026-6-4 11:25
+
+问一下像一代那样疯狂按吸魂引招打一闪在demo还有没有用
+
+—— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  月光下的静寂  
+##### 492#       发表于 2026-6-4 11:26
+
+<blockquote>缺德猫 发表于 2026-6-4 11:19
+又打了一遍，目前就那个反弹远程安不出来，具体是什么按的啊？不是按住防御，然后等箭过来按攻击吗？ ...</blockquote>
+用弹开那个操作
+
+
+*****
+
+####  MRhythm  
+##### 493#       发表于 2026-6-4 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69718434&amp;ptid=2210366" target="_blank">缺德猫 发表于 2026-6-4 11:19</a>
+
+又打了一遍，目前就那个反弹远程安不出来，具体是什么按的啊？不是按住防御，然后等箭过来按攻击吗？ ...</blockquote>
+凶盒系是LB+A
+
+PS系是L1+X
+
+
+*****
+
+####  汪达  
+##### 494#       发表于 2026-6-4 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69718434&amp;ptid=2210366" target="_blank">缺德猫 发表于 2026-6-4 11:19</a>
+
+又打了一遍，目前就那个反弹远程安不出来，具体是什么按的啊？不是按住防御，然后等箭过来按攻击吗？ ...</blockquote>
+不是按攻击键，是按调查键，而且不只能反弹弓箭，对近战攻击也有效，作用和化劲不大一样，是大幅削减体力，杂兵都是一下弹空体力
+
+
+*****
+
+####  雨昼斯基  
+##### 495#       发表于 2026-6-4 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69717753&amp;ptid=2210366" target="_blank">lbb3313725 发表于 2026-6-4 09:47</a>
+最烦L3奔跑按键，最近玩的死亡搁浅2、识质存在都是这样设置还不能改。。</blockquote>
+L3 就是最烦的按键，只是因为其他功能分配到这更烦，所以只好给奔跑切换了。
+我只能说背键就是用来代替 L3 R3 的，现代手柄没有背键就是不合格的手柄。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  renkan119  
+##### 496#       发表于 2026-6-4 12:12
+
+没玩过以前的鬼武者 一闪是指什么 好像也没看到教程
+
+*****
+
+####  thez  
+##### 497#       发表于 2026-6-4 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69718844&amp;ptid=2210366" target="_blank">renkan119 发表于 2026-6-4 12:12</a>
+
+没玩过以前的鬼武者 一闪是指什么 好像也没看到教程</blockquote>
+敌人快攻击到你的瞬间按攻击键，窗口比较短，没跳教程但是进到菜单里看有说
+
+*****
+
+####  Asukalangley33  
+##### 498#       发表于 2026-6-4 12:15
+
+预购肯定是预购了
+
+但是这新●新鬼武者的画面，感觉是卡婊最近几个游戏里最屎的啊
+
+全拉满都很糙
+
+尤其前段时间刚打完PRAGMATA，很难想象是同一个公司的人，用同一个引擎做的游戏
+
+然后默认键位有点奇怪，格挡在方块，捡东西放L1，闪避放X太神秘了
+
+格挡放L1，跑步闪避共用一个键，拾取范围判定调宽松一点，跟轻攻击共用一个键
+
+不是会简略很多么？
+
+后面变身大概率也是现在游戏最爱的L3+R3摁住，没必要把键位弄这么散啊
+
+
+*****
+
+####  缺德猫  
+##### 499#       发表于 2026-6-4 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69718593&amp;ptid=2210366" target="_blank">汪达 发表于 2026-6-4 11:36</a>
+
+不是按攻击键，是按调查键，而且不只能反弹弓箭，对近战攻击也有效，作用和化劲不大一样，是大幅削减体力 ...</blockquote>
+原来是A，我一直按轻攻击，操
+
+最近换的PS手柄，提示X老以为是XBOX的X
+
+
+*****
+
+####  八云的式神  
+##### 500#       发表于 2026-6-4 13:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">好玩，但不过瘾，等正式版
+
+
+*****
+
+####  葵  
+##### 501#       发表于 2026-6-4 13:07
+
+ 本帖最后由 葵 于 2026-6-4 13:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716683&amp;ptid=2210366" target="_blank">lbb3313725 发表于 2026-6-3 22:50</a>
+
+玩着挺爽的，就是画面有点差。正式版连锁一闪最后一下不会固定都是跳砍吧，那样就太单调了。 ...</blockquote>
+何止最后一刀，我玩熟了连闪以后发现3刀都是固定动作脚本，第一刀侧身斩，第二刀奔跑伏身斩，第三刀跳劈，如果正式版也这样的话。。。<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+*****
+
+####  慕容断月  
+##### 502#       发表于 2026-6-4 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69717729&amp;ptid=2210366" target="_blank">纯爱战士段正淳 发表于 2026-6-4 09:45</a>
+右边是正常act键位
+
+左边太奇特了让我以为是不是初代键位
+
+不知道什么高手用左边的</blockquote>
+主动吸魂很烦的，该玩玩旧作了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KOS_MO  
+##### 503#       发表于 2026-6-4 13:20
+
+还是好玩，就是难度不高，敌人攻击欲望不强，正式版能不能多给几档难度调整
+
+
+*****
+
+####  zqqwe  
+##### 504#       发表于 2026-6-4 13:22
+
+【【鬼武者 剑之道】DEMO 庭院杂兵战 连锁一闪无伤-哔哩哔哩】【视频标记点 00:21】 [https://b23.tv/NYCSaz0](https://b23.tv/NYCSaz0)
+这个演示里第二闪明显穿透两个敌人但只有被锁定的那只受到伤害，这作的一闪/连闪更像是投技判定的演出而不是以前的高伤害斩击，以前是会卡地形挥空/一击波及多个敌人的
+
+
+*****
+
+####  恋妖壶  
+##### 505#       发表于 2026-6-4 14:11
+
+ 本帖最后由 恋妖壶 于 2026-6-4 14:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69717753&amp;ptid=2210366" target="_blank">lbb3313725 发表于 2026-6-4 09:47</a>
+
+最烦L3奔跑按键，最近玩的死亡搁浅2、识质存在都是这样设置还不能改。。</blockquote>
+阿杰，2026啦还在用没有背键的电子垃圾啊<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">，该买edge了
+
+话说，逛NGA和小黑盒总看见好多男大吹DS5多好多好秒杀一切，而且很多甚至没有PS5只是PC联线DS5玩过几个。我只能说按现在的游戏路数，原始DS5没背键就一票否决了，背键可比什么不一定哪个游戏有适配的震动要刚需太多了
+
+
+*****
+
+####  机动三轮  
+##### 506#       发表于 2026-6-4 14:20
+
+我对化劲有ptsd你懂我意思吗<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舌怪  
+##### 507#       发表于 2026-6-4 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719184&amp;ptid=2210366" target="_blank">慕容断月 发表于 2026-6-4 13:10</a>
+
+主动吸魂很烦的，该玩玩旧作了</blockquote>
+没玩过老鬼武者，这个主动吸魂是只有干站着吸魂这一个功能吗？还是向忍龙那样通过某些操作可以在战斗中起到什么作用？
+
+
+*****
+
+####  流浪地球  
+##### 508#       发表于 2026-6-4 14:34
+
+老鬼武者只能干站着吸魂，但是吸魂本身也是游戏性的一环，需要玩家对时机做取舍
+
+老鬼武者里按 X 键不放开一次性吸魂是有奖励的，而且给的奖励很多，拿 1 代举例最多时可以达到吸 1000 送 1000
+
+而魂是有时间限制的，这就需要玩家判断什么时候开始吸，分开吸还是一次性吸。并且吸的魂里还有黄魂蓝魂等有利战斗的资源，更需要玩家拿捏吸魂时机
+
+到了 2 代之后，还加入了速度极慢的紫魂，一方面需要长时间站住不动吸魂风险很大，但是吸到之后可以累计获得无敌的鬼武者时间，这也是让玩家进行资源管理的机制
+
+这次的次世代鬼武者把站住不动吸魂改成了可以跑动吸魂，算是配合时代的妥协，可以理解。另外看下来连续吸魂的奖励仍然健在，只不过可以一边跑的远远的一边吸魂了。
+
+
+*****
+
+####  汪达  
+##### 509#       发表于 2026-6-4 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719159&amp;ptid=2210366" target="_blank">葵 发表于 2026-6-4 13:07</a>
+
+何止最后一刀，我玩熟了连闪以后发现3刀都是固定动作脚本，第一刀侧身斩，第二刀奔跑伏身斩，第三刀跳劈， ...</blockquote>
+第一刀的一闪根据敌人方位有变化，第二刀有正常跑动出刀和滑铲出刀的变化，从官网的图能看到连闪次数上去了，中间的动作也有出刀方位的变化
+
+跳劈应该是固定的终结动作
+
+
+*****
+
+####  pointer243  
+##### 510#       发表于 2026-6-4 14:41
+
+手柄能改L2防御吗，玩猛汉和旧作玩了这么久然后你给我整个X/□防御太反直觉了
+
+
+*****
+
+####  汪达  
+##### 511#       发表于 2026-6-4 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719586&amp;ptid=2210366" target="_blank">pointer243 发表于 2026-6-4 14:41</a>
+
+手柄能改L2防御吗，玩猛汉和旧作玩了这么久然后你给我整个X/□防御太反直觉了 ...</blockquote>
+选另一套手柄按键布局就是L1防御了
+
+*****
+
+####  zqqwe  
+##### 512#       发表于 2026-6-4 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719487&amp;ptid=2210366" target="_blank">舌怪 发表于 2026-6-4 14:25</a>
+没玩过老鬼武者，这个主动吸魂是只有干站着吸魂这一个功能吗？还是向忍龙那样通过某些操作可以在战斗中起 ...</blockquote>
+1代后期有个道具叫吸阵符，一定时间圆形范围内吸魂可以直接秒杀非boss敌人，魔空空间（挑战图）后面几层可以快速清场。过于强大以至于后面都没有了
+
+
+*****
+
+####  pointer243  
+##### 513#       发表于 2026-6-4 14:58
+
+卡了佐佐木几回，主要是手抓投技退的不够快容易被抓，但是打通第一遍以后读存档再打居然能够2分钟内解决佐佐木，感觉有些招式闪比化更好处理。但是化劲还是太过op了，砍人的时候随时防御就能化，反而弹一闪的没怎么触发过。
+
+
+*****
+
+####  57042711  
+##### 514#       发表于 2026-6-4 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69718434&amp;ptid=2210366" target="_blank">缺德猫 发表于 2026-6-4 11:19</a>
+又打了一遍，目前就那个反弹远程安不出来，具体是什么按的啊？不是按住防御，然后等箭过来按攻击吗？ ...</blockquote>
+要推摇杆的，直接弹不行<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  汪达  
+##### 515#       发表于 2026-6-4 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719676&amp;ptid=2210366" target="_blank">pointer243 发表于 2026-6-4 14:58</a>
+
+卡了佐佐木几回，主要是手抓投技退的不够快容易被抓，但是打通第一遍以后读存档再打居然能够2分钟内解决佐 ...</blockquote>
+投技可以用精准闪避反击，会有一个反制投技的投技，不同怪的投技反制的动作还不一样
+
+*****
+
+####  汪达  
+##### 516#       发表于 2026-6-4 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719795&amp;ptid=2210366" target="_blank">57042711 发表于 2026-6-4 15:19</a>
+
+要推摇杆的，直接弹不行
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, 鹅球 v3.5.99</blockquote>
+不用推摇杆吧，我昨天晚上玩的时候没推摇杆
+
+*****
+
+####  pointer243  
+##### 517#       发表于 2026-6-4 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719799&amp;ptid=2210366" target="_blank">汪达 发表于 2026-6-4 15:20</a>
+
+投技可以用精准闪避反击，会有一个反制投技的投技，不同怪的投技反制的动作还不一样 ...</blockquote>
+对，后来打佐佐木就靠闪避把跳砍闪了然后一套连招直接连死
+
+
+*****
+
+####  ryle  
+##### 518#       发表于 2026-6-4 15:35
+
+<blockquote>汪达 发表于 2026-6-4 15:21
+不用推摇杆吧，我昨天晚上玩的时候没推摇杆</blockquote>
+游戏设置里有两套方案，一种防御键加调查键，另一种是方向加防御键。
+
+*****
+
+####  姬茧墨  
+##### 519#       发表于 2026-6-4 15:36
+
+除非你要打全一闪通关，那分配好不同招式的对策会让你打起来更舒服
+
+拿小次郎举例子
+
+冲刺攻击，普通突刺，和一些起手不明显的快速反击，这些就用化劲，因为存在延迟出手和快慢刀的情况，一闪风险太高高
+
+跳跃下踢，一阶段会接回旋斩，二阶段接投技，最好是用闪避，化劲对体术打不出踉跄效果，闪避攒槽出反击是更优的处理，可以一闪处理，但因为下踢的攻击判定非常延后而且快，一闪要抓的时机比较苛刻
+
+跳跃下劈，蓄力突刺，反手横斩，这三招都是非常好用一闪处理的招式，因为有明显的起手动作，同时攻击判定持续帧久，基本可以靠直觉一闪
+
+投技，投技时机固定，出蓝光直接往前闪避，反投的判定非常宽松
+
+
+*****
+
+####  astrayveller  
+##### 520#       发表于 2026-6-4 15:44
+
+[https://www.bilibili.com/video/BV15T7d6oEF5/](https://www.bilibili.com/video/BV15T7d6oEF5/)
+
+简单打了个无伤+居合处决
+
+弹开比化劲强太多了 对boss的韧性伤害快和一闪一样高就离谱……
+
+
+*****
+
+####  电风扇  
+##### 521#       发表于 2026-6-4 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719487&amp;ptid=2210366" target="_blank">舌怪 发表于 2026-6-4 14:25</a>
+
+没玩过老鬼武者，这个主动吸魂是只有干站着吸魂这一个功能吗？还是向忍龙那样通过某些操作可以在战斗中起 ...</blockquote>
+旧作吸魂视作嘲讽，可以加大杂兵攻击欲望，方便练习一闪
+
+这作还没玩，不知道有没有保留这个设定
+
+
+*****
+
+####  舌怪  
+##### 522#       发表于 2026-6-4 15:59
+
+说起来试玩版比正式版难还挺常见的，像这次搞个这么简单的demo还真没怎么见过
+
+
+*****
+
+####  汪达  
+##### 523#       发表于 2026-6-4 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719883&amp;ptid=2210366" target="_blank">ryle 发表于 2026-6-4 15:35</a>
+
+游戏设置里有两套方案，一种防御键加调查键，另一种是方向加防御键。</blockquote>
+原来如此，我直接选的经典键位
+
+
+*****
+
+####  紫沙狐  
+##### 524#       发表于 2026-6-4 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719948&amp;ptid=2210366" target="_blank">astrayveller 发表于 2026-6-4 15:44</a>
+
+https://www.bilibili.com/video/BV15T7d6oEF5/
+
+简单打了个无伤+居合处决
+
+弹开比化劲强太多了 对boss的韧性 ...</blockquote>
+弹开1500 一闪960  弹开无责且判定宽松 简直imba
+
+
+*****
+
+####  Dreammask  
+##### 525#       发表于 2026-6-4 18:55
+
+怎么按LT都没反应，但是找测试网站测试了LT后又完全正常，有漏油碰到类似的问题吗
+
+*****
+
+####  慕容断月  
+##### 526#       发表于 2026-6-4 18:58
+
+ 本帖最后由 慕容断月 于 2026-6-4 19:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719487&amp;ptid=2210366" target="_blank">舌怪 发表于 2026-6-4 14:25</a>
+没玩过老鬼武者，这个主动吸魂是只有干站着吸魂这一个功能吗？还是向忍龙那样通过某些操作可以在战斗中起 ...</blockquote>
+几乎只能站着干吸，以及薛定谔的挑衅敌人，挑衅这个也就在xbox独占的幻魔鬼武者里有非常大的重要性，别的作品没有幻魔那么重要
+
+这玩意有点像生化4的站位-瞄准-射击的流程，鬼武者就是攻击出魂-站位-吸魂，确实位置如果没选好，就会出现和生化4同款情况，某种意义上确实是游戏性的一部分，所以这个站定吸魂贯穿了之前的4部鬼武者
+
+
+*****
+
+####  姬茧墨  
+##### 527#       发表于 2026-6-4 19:14
+
+【【鬼武者 剑之道 DEMO】佐佐木岩流 特殊演出全触发 无伤】 [https://www.bilibili.com/video/BV1HNEw6pEPJ](https://www.bilibili.com/video/BV1HNEw6pEPJ)
+
+打了个更满意的无伤，demo展示的战斗系统差不多就到这了，在没有对单个敌人连闪之前，一闪在boss战的优先级并不高，不过打群战一直连闪还是爽的
+
+
+*****
+
+####  流浪地球  
+##### 528#       发表于 2026-6-4 19:20
+
+所以其实我觉得制作组可以不用那么激进的改成跑动吸魂，而是让吸魂时可以缓步移动就行了
+
+
+*****
+
+####  otakun  
+##### 529#       发表于 2026-6-4 19:27
+
+大概就跟怪猎喝药一样，现代化妥协吧，也不是什么坏事。
+
+
+*****
+
+####  巨魔已被忠诚  
+##### 530#       发表于 2026-6-4 19:35
+
+跑动吸魂动画混合还是太呆了，没调教好    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  lovepenny  
+##### 531#       发表于 2026-6-4 21:57
+
+还挺好玩的，就是还没过瘾就没了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+----发送自 [realme RMX3800,Android 15](http://stage1.5j4m.com/?1.48)
+
+
+*****
+
+####  我是快乐小马甲  
+##### 532#       发表于 2026-6-4 22:36
+
+记忆力鬼武3和新鬼都是很爽快的游戏，怎么现在一股仁王味
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 533#       发表于 2026-6-4 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69721685&amp;ptid=2210366" target="_blank">我是快乐小马甲 发表于 2026-6-4 22:36</a>
+记忆力鬼武3和新鬼都是很爽快的游戏，怎么现在一股仁王味</blockquote>
+别碰瓷仁王，用卧龙、对马岛、只狼对标就差不多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Leliel  
+##### 534#       发表于 2026-6-4 22:44
+
+<blockquote>我是快乐小马甲 发表于 2026-6-4 22:36
+记忆力鬼武3和新鬼都是很爽快的游戏，怎么现在一股仁王味</blockquote>
+因为鬼武者也魂化了
+
+*****
+
+####  我是快乐小马甲  
+##### 535#       发表于 2026-6-4 22:45
+
+哦哦哦。对，是卧龙，说错了。不过仁王2也挺卧龙的
+
+
+*****
+
+####  白河响剑  
+##### 536#       发表于 2026-6-4 23:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经不记得上次遇见这么简单的demo是什么时候了
+
+预购的心蠢蠢欲动 好爽
+
+
+*****
+
+####  汪达  
+##### 537#       发表于 2026-6-4 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69721685&amp;ptid=2210366" target="_blank">我是快乐小马甲 发表于 2026-6-4 22:36</a>
+
+记忆力鬼武3和新鬼都是很爽快的游戏，怎么现在一股仁王味</blockquote>
+以前的鬼武者招牌是一闪，防守反击的玩法，现在鬼武者的核心思路依然是防守反击，只不过不再只是各种一闪，而是用现代技术进行了拓展，什么化劲、白刃相交、角力、投技反制之类的，可以说敌人的任何动作都有一两套反制动作甚至更多，而且不同敌人攻击方式不同，反制的动画也不同，非常丰富
+
+至于仁王，除了都是战国武士砍妖怪，色调都黑咕隆咚的外，五香干
+
+
+*****
+
+####  银色天空  
+##### 538#       发表于 2026-6-4 23:56
+
+最近玩了鬼武者1，我觉得这游戏很有1代的味道，完美的现代化也莫过如此。你说像别的游戏，你们才是后来者。
+
+唯一比较不满的是一闪变这么宽松了还有化劲这么bt的防御系统，怪物的难度却不增加，起码攻击欲望要更高点才好。
+
+*****
+
+####  电风扇  
+##### 539#       发表于 2026-6-4 23:57
+
+除了动作有点绵软白光有点糙之外挺好的，动作系统比旧作丰富多了
+
+
+*****
+
+####  karastar  
+##### 540#       发表于 2026-6-5 00:00
+
+怪物的攻击欲望还需要上调一下
+
+
+*****
+
+####  hkguty  
+##### 541#       发表于 2026-6-5 00:11
+
+感觉拓展有些过头，主角有太多回避反击的手段导致难度偏低，以及场景感觉不是很大，我觉得不会上调太多怪的攻击欲望，可能慢吞吞的等怪砍过来才是剑戟片那味？顶多正式版困难难度给怪伤害翻个两三倍吧。不过没想到主角CV是团长，有点出戏。
+
+
+*****
+
+####  西瓜田里的飞鱼  
+##### 542#       发表于 2026-6-5 00:16
+
+Boss战给的的对策和演出都很多样，卡表的底力还是太雄厚了。
+
+杂兵可能难度给的太简单，交互和调度过于呆板，等正式版再观察观察吧。
+
+不光是攻击欲望，还有围攻时的走位，要装作一副大家都很忙的样子，忙忙碌碌又一事无成是ACT杂兵的自我修养。
+
+
+*****
+
+####  格林卡罗尔  
+##### 543#       发表于 2026-6-5 01:52
+
+主动吸魂太烦了，我几乎注意不到魂是什么颜色的，以后有没有可能通过打特定连段之类的办法被动吸魂
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  CswStar  
+##### 544#       发表于 2026-6-5 02:13
+
+这动作流畅性无敌了，系统也不错，希望卡普空别太抠门，多堆点料，能有鬼泣5的内容丰富度我就满足了，流程短一点无所谓，终盘内容一定要爽。
+
+
+*****
+
+####  CswStar  
+##### 545#       发表于 2026-6-5 02:13
+
+这动作流畅性无敌了，系统也不错，希望卡普空别太抠门，多堆点料，能有鬼泣5的内容丰富度我就满足了，流程短一点无所谓，终盘内容一定要爽。
+
+*****
+
+####  ef6270  
+##### 546#       发表于 2026-6-5 05:59
+
+要命了，最近刚好在玩仁王，总是忍不住来个残心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  巨魔已被忠诚  
+##### 547#       发表于 2026-6-5 08:24
+
+知道为什么我觉得怪异了。
+
+武藏非防御状态韧性很低，被突刺打中的时候是会后退，并且做后退距离匹配突刺范围的。
+
+小次郎常驻霸体，因为BOSS无法被位移推开，武藏每次攻击又是往前位移顶着的，观感有点别扭。
+
+拼刀招架反而是类似处决的演出倒还行。
+
+*****
+
+####  zaozaoxx  
+##### 548#       发表于 2026-6-5 08:24
+
+demo手感非常好，整个判定对新玩家友好太多，直接预购。不过豪华版好像给的东西也不多<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LMR-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  杀仁小登  
+##### 549#       发表于 2026-6-5 08:33
+
+其他都还好，最难蹦的是敌人一个一个过来送，其他人就原地罚站，杀阵演出这块完全摆烂了
+
+
+*****
+
+####  格林卡罗尔  
+##### 550#       发表于 2026-6-5 08:53
+
+也就是说战斗演出太好，反而让敌人受击没有反应显得违和了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  chensquare  
+##### 551#       发表于 2026-6-5 08:57
+
+这个佐佐木，让我觉得浪客行的角色动了起来。话说佐佐木的虽然是虚拟人物，但在小说和日本传说中的造型有具体定型么？我感觉就是《浪客行》里的佐佐木一个造型呀？
+
+
+*****
+
+####  hkguty  
+##### 552#       发表于 2026-6-5 09:05
+
+我还是更喜欢天下一里的佐佐木，这种疯狗佐佐木太捞了，剧情其实也一眼看到头了，三木真一郎应该才是最终boss，为什么没人吐槽这游戏的女角色长得比索游还难看？
+
+
+*****
+
+####  格林卡罗尔  
+##### 553#       发表于 2026-6-5 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69722625&amp;ptid=2210366" target="_blank">hkguty 发表于 2026-6-5 09:05</a>
+我还是更喜欢天下一里的佐佐木，这种疯狗佐佐木太捞了，剧情其实也一眼看到头了，三木真一郎应该才是最终bo ...</blockquote>
+因为demo里没有女人<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 554#       发表于 2026-6-5 09:29
+
+和护手女拌嘴挺有意思，但想到鬼武者2里鬼妈的外形<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  汪达  
+##### 555#       发表于 2026-6-5 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69722595&amp;ptid=2210366" target="_blank">chensquare 发表于 2026-6-5 08:57</a>
+
+这个佐佐木，让我觉得浪客行的角色动了起来。话说佐佐木的虽然是虚拟人物，但在小说和日本传说中的造型有具 ...</blockquote>
+考虑到最有名的是吉川英治的《宫本武藏》，而其描写的岩流岛决斗细节，佐佐木小次郎是被宫本武藏利用太阳方位晃眼睛，一个跳劈爆头死掉的
+
+而这游戏里的佐佐木带了个铁斗笠来找宫本武藏，感觉是搞笑成分居多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leia_rolando  
+##### 556#       发表于 2026-6-5 10:00
+
+总结一下。这游戏策略要素大于动作要素。所有平a，闪避，格挡都是为了那套化劲，一闪，拆投。平时玩惯仁王，被打中后，下意识防御闪避一起按，发现这闪避性能实在太弱，大概就知道这游戏逻辑了。
+
+*****
+
+####  x分裂者  
+##### 557#       发表于 2026-6-5 10:01
+
+这格挡性能那么强，小怪还像旧作一样呆确实不太合适，而且吸魂嘲讽一次只能一个人了？
+
+*****
+
+####  otakun  
+##### 558#       发表于 2026-6-5 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69722994&amp;ptid=2210366" target="_blank">leia_rolando 发表于 2026-6-5 10:00</a>
+总结一下。这游戏策略要素大于动作要素。所有平a，闪避，格挡都是为了那套化劲，一闪，拆投。平时玩惯仁王 ...</blockquote>
+所以默认操作就把闪避格挡攻击都放在右边按钮，本质无按键提示策略音游<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，让你一个手选择应对操作。当然大部分玩家觉得操作别扭是另一回事。
+
+
+*****
+
+####  pu  
+##### 559#       发表于 2026-6-5 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69722558&amp;ptid=2210366" target="_blank">格林卡罗尔 发表于 2026-6-5 08:53</a>
+
+也就是说战斗演出太好，反而让敌人受击没有反应显得违和了
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, 鹅 ...</blockquote>
+格挡招架闪避反馈模组做足了 没受击反馈没就很出戏 如果对面是大型boss到还说得过去 人形boss这样就很怪
+
+不是20年前了 这点我觉得得有进步
+
+
+*****
+
+####  karastar  
+##### 560#       发表于 2026-6-5 10:32
+
+我还是觉得小怪群的攻击频率要高一点，最好轮流发起进攻，不然一直站桩有点发挥不出来系统的优势
+
+
+*****
+
+####  leia_rolando  
+##### 561#       发表于 2026-6-5 10:37
+
+对了，白刃相交环节，轻重攻击要怎么按，昨天打小次郎，就没一次成功。
+
+
+*****
+
+####  汪达  
+##### 562#       发表于 2026-6-5 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723145&amp;ptid=2210366" target="_blank">pu 发表于 2026-6-5 10:21</a>
+
+格挡招架闪避反馈模组做足了 没受击反馈没就很出戏 如果对面是大型boss到还说得过去 人形boss这样就很怪
+
+ ...</blockquote>
+佐佐木的受击反馈动画是有的，用一闪每刀都能打出来，只是普通攻击打不出受击硬直而已
+
+从宣传PV来看佐佐木吸收了人类的灵魂，比武藏强，也算是个剧情上的解释吧
+
+*****
+
+####  otakun  
+##### 563#       发表于 2026-6-5 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723255&amp;ptid=2210366" target="_blank">leia_rolando 发表于 2026-6-5 10:37</a>
+对了，白刃相交环节，轻重攻击要怎么按，昨天打小次郎，就没一次成功。</blockquote>
+你按轻攻击触发的，弹开后，下一刀就按重攻击，就是交换攻击方式。
+
+*****
+
+####  不见不散  
+##### 564#       发表于 2026-6-5 10:40
+
+玩家是宫本武藏，上来就打小次郎。那这小次郎最后肯定是要复活，然后做个最终BOSS或者守关BOSS的吧？这剧情感觉也就一眼看到头了。
+
+
+*****
+
+####  zqqwe  
+##### 565#       发表于 2026-6-5 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723283&amp;ptid=2210366" target="_blank">不见不散 发表于 2026-6-5 10:40</a>
+玩家是宫本武藏，上来就打小次郎。那这小次郎最后肯定是要复活，然后做个最终BOSS或者守关BOSS的吧？这剧情 ...</blockquote>
+小次郎明显是历代都有的那种多次登场逐渐加强的boss，初代马塞拉斯、二代魔剑士、三代森兰丸，也是一种经典风味
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 566#       发表于 2026-6-5 10:51
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2026-6-5 10:53 编辑 
+
+ [新闻] 新鬼武者，不过是网飞
+[https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2153568](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2153568)
+
+可能有人不知道有后传动画，本篇未出后传先行，还出在本篇首次公布前，迷惑行为。
+
+应该能通过后传动画知道本篇剧情基调吧。
+
+
+*****
+
+####  zqqwe  
+##### 567#       发表于 2026-6-5 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723343&amp;ptid=2210366" target="_blank">Dai-Dai-Dai-Dai 发表于 2026-6-5 10:51</a>
+[新闻] 新鬼武者，不过是网飞
+
+https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2153568</blockquote>
+游戏早期访谈就澄清过和这个动画无关了，只是武藏题材撞车
+
+
+*****
+
+####  wzh5555  
+##### 568#       发表于 2026-6-5 11:24
+
+ 本帖最后由 wzh5555 于 2026-6-5 11:26 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723255&amp;ptid=2210366" target="_blank">leia_rolando 发表于 2026-6-5 10:37</a>
+
+对了，白刃相交环节，轻重攻击要怎么按，昨天打小次郎，就没一次成功。</blockquote>
+拼刀之后注意看敌人持刀动作，他单手攻击，你就按双手攻击（重）。他双手，你就按单手。
+
+如果你按失误一次的话，会再拼一次（有一次容错）
+
+*****
+
+####  小修  
+##### 569#       发表于 2026-6-5 11:26
+
+卡普空现在流程长度控的很死。有点讨厌。
+生化用佣兵模式撑长度，新鬼不知道用啥。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zqqwe  
+##### 570#       发表于 2026-6-5 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723597&amp;ptid=2210366" target="_blank">小修 发表于 2026-6-5 11:26</a>
+卡普空现在流程长度控的很死。有点讨厌。
+生化用佣兵模式撑长度，新鬼不知道用啥。</blockquote>
+给个100层带分叉的魔空空间完事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SergeGlenn  
+##### 571#       发表于 2026-6-5 11:31
+
+目前的难度感觉像鬼泣普通一周目一样，纯消灭敌人难度偏低，一闪连闪也相对好按很多
+
+
+*****
+
+####  pointer243  
+##### 572#       发表于 2026-6-5 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723283&amp;ptid=2210366" target="_blank">不见不散 发表于 2026-6-5 10:40</a>
+玩家是宫本武藏，上来就打小次郎。那这小次郎最后肯定是要复活，然后做个最终BOSS或者守关BOSS的吧？这剧情 ...</blockquote>
+这demo大概率是第二章的一节。按照demo的演出，第一章应该有小次郎的相关剧情
+
+—— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Cranberries  
+##### 573#       发表于 2026-6-5 11:42
+
+这游戏还是动作做得太丝滑了，不说是动作慢就一定好，快就一定差。
+
+主要还是动作衔接的很舒服，和boss做的交互动作够多。
+
+
+*****
+
+####  黑酒杯  
+##### 574#       发表于 2026-6-5 13:17
+
+现在才玩上，动作手感很棒啊，不懂那些说手感差的什么原理，但敌人攻击欲望确实太低了，还有就是这demo全是狭窄阴郁的场景玩的头疼
+
+
+*****
+
+####  美军冲滩了吗？  
+##### 575#       发表于 2026-6-5 13:23
+
+这么好的游戏，竟然还有那么多挑刺是真看不明白。
+
+虽然不知道游戏全貌，但是从demo看来，动作的流畅性和互动性可以说是跨时代级别的牛逼了。
+
+
+*****
+
+####  chris1987  
+##### 576#       发表于 2026-6-5 13:36
+
+玩了下Demo感觉很不错，小兵攻击欲望是低了点，但精英怪和boss攻击欲望还可以啊，追着我打，逼你格挡闪避，然后还有架势条恢复也是要你进攻破势
+
+
+*****
+
+####  plok201  
+##### 577#       发表于 2026-6-5 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69724286&amp;ptid=2210366" target="_blank">美军冲滩了吗？ 发表于 2026-6-5 13:23</a>
+
+这么好的游戏，竟然还有那么多挑刺是真看不明白。
+
+虽然不知道游戏全貌，但是从demo看来，动作的流畅性和互 ...</blockquote>
+只能说有得有失吧，从PV来看所有交互都那么一把太刀了
+
+PV有试玩没有的，一个是弓箭，这个从历代经验来看偏鸡肋，PV也就射个油桶，鬼武者变身没啥好说的，双棒槌和大关刀，目前来看和试玩的双刀一样，一键战技，还有一个就是闪黄光的回旋斩
+
+试玩版BAN了2个按键，RT和方向键的右，我估计方向键是切换鬼武器，RT如果是射箭那整套动作系统真的一眼到头了，希望和黄光那个回旋斩有关系吧
+
+可惜试玩没解锁升级也没解包不知道红魂用在哪
+
+
+*****
+
+####  loveumlj  
+##### 578#       发表于 2026-6-5 16:20
+
+难道只有我一人觉得这游戏神似阿三的那个释放阿凡达吗
+
+
+*****
+
+####  wthall  
+##### 579#       发表于 2026-6-5 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69725283&amp;ptid=2210366" target="_blank">loveumlj 发表于 2026-6-5 16:20</a>
+
+难道只有我一人觉得这游戏神似阿三的那个释放阿凡达吗</blockquote>
+是的，只有你觉得，老ass都在狂喜总算有新料了
+
+
+*****
+
+####  姬茧墨  
+##### 580#       发表于 2026-6-5 16:42
+
+无所谓了，在别的地方还看到说假如不是挂了卡表名号这动作要被喷爆的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就现在这个半死不活的ACT界，横空出世一个这个水平的动作表现和流畅衔接的制作组，怕是第二天已经登上神坛世不二出了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+很多人根本理解不了在一个反击动作中体现出重心的摇晃感和攻击的重量感是多么困难的事情，上一个看到在慢速战斗中体现这方面设计的还是荣耀战魂的招架
+
+
+*****
+
+####  sgssk  
+##### 581#       发表于 2026-6-5 17:22
+
+昨天玩下来的主要感想反而是进攻端手段单一，是不是有点太依赖后手弹反/一闪了，以至于轻重攻击的最大用途疑似是随便砍一刀逼小次郎霸体反击<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只狼好歹也有蝴蝶夫人和义父这种需要花心思抉择怎么主动攻击的，不至于说鬼武者反而全是弹弹弹吧……
+然后双刀战技竟然是全程霸体无敌，有点不理解了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">买归买，这demo看不出游戏深度阿
+
+
+*****
+
+####  萌萌地镜头  
+##### 582#       发表于 2026-6-5 18:47
+
+打完demo感觉就没有x键对策不了的，手段倒是挺丰富但是别的也用不太上，看了操作说明直接打小次郎三遍过
+
+
+*****
+
+####  汪达  
+##### 583#       发表于 2026-6-5 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69725636&amp;ptid=2210366" target="_blank">sgssk 发表于 2026-6-5 17:22</a>
+
+昨天玩下来的主要感想反而是进攻端手段单一，是不是有点太依赖后手弹反/一闪了，以至于轻重攻击的最大用途 ...</blockquote>
+双刀那个不能视作魂的战技，魂被几条狗围住撕咬到死是常有的事，这种全程无敌的必杀技更多是帮你被围殴的时候脱困用的，古老的街机智慧
+
+普攻除了蹭伤害外还有两个作用，一个是打出蓝魂用来放必杀技，另一个是防止敌人回体力，就和魂普攻/丢飞刀续韧性的作用差不多
+
+另外也可以触发一下白刃相交，或者重击破防御架势接体术处决，看看不同的演出，算是一种玩法上的点缀
+
+还有就是普攻动作的硬直期间也能发动一闪，熟练后普攻并不会和弹弹弹冲突，高手完全可以做到普攻穿插一闪，一闪穿插普攻，所以即便核心玩法是抓敌人动作时机，也不会有特别被动的感觉，一样可以实现疯狗式打法（【以防你不知道轻重连段中也能一闪】 [https://www.bilibili.com/video/BV12LEA6eEGy/](https://www.bilibili.com/video/BV12LEA6eEGy/)）
+
+
+*****
+
+####  Jabeck  
+##### 584#       发表于 2026-6-5 19:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723283&amp;ptid=2210366" target="_blank">不见不散 发表于 2026-6-5 10:40</a>
+
+玩家是宫本武藏，上来就打小次郎。那这小次郎最后肯定是要复活，然后做个最终BOSS或者守关BOSS的吧？这剧情 ...</blockquote>
+小次郎封面二号位，说不定能操控呢<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我王  
+##### 585#       发表于 2026-6-5 21:04
+
+哎，刚上去试画面模式打小次郎使出了专属处决，太几把帅了，猛猛预购<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chensquare  
+##### 586#       发表于 2026-6-5 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723255&amp;ptid=2210366" target="_blank">leia_rolando 发表于 2026-6-5 10:37</a>
+
+对了，白刃相交环节，轻重攻击要怎么按，昨天打小次郎，就没一次成功。</blockquote>
+如果是轻攻击白刃相交，下一刀就要换重攻击。反之亦然。
+
+
+*****
+
+####  紫沙狐  
+##### 587#       发表于 2026-6-5 21:12
+
+把帧数固定30帧 能大幅提升一闪判定 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  otakun  
+##### 588#       发表于 2026-6-5 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69726698&amp;ptid=2210366" target="_blank">紫沙狐 发表于 2026-6-5 21:12</a>
+把帧数固定30帧 能大幅提升一闪判定</blockquote>
+想起ns怪猎崛起太刀看破比pc版长<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，祖传艺能
+
+
+*****
+
+####  千本blur  
+##### 589#       发表于 2026-6-6 00:37
+
+看隔壁配音贴才发现，小次郎这里叫岩流，而且日配台词里明确说两个人都死过一次了，而且决斗胜负未分。那故事很有可能发生在岩流岛决战之后吧。
+
+
+*****
+
+####  pu  
+##### 590#       发表于 2026-6-6 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69727569&amp;ptid=2210366" target="_blank">千本blur 发表于 2026-6-6 00:37</a>
+
+看隔壁配音贴才发现，小次郎这里叫岩流，而且日配台词里明确说两个人都死过一次了，而且决斗胜负未分。那故 ...</blockquote>
+新预告片了有小次郎狂砍没笼手的武藏 还有武藏死地上的镜头 
+
+基本决斗后死小次郎拿到笼手复活 然后打死武藏 233
+
+
+*****
+
+####  美军冲滩了吗？  
+##### 591#       发表于 2026-6-6 03:07
+
+<blockquote>plok201 发表于 2026-6-5 15:50
+只能说有得有失吧，从PV来看所有交互都那么一把太刀了
+
+PV有试玩没有的，一个是弓箭，这个从历代经验来看 ...</blockquote>
+宫本武藏没有二天一流还是说不过去，后期肯定会有双刀形态的，不可能就是试玩里这个双刀鬼战术。
+
+
+*****
+
+####  美军冲滩了吗？  
+##### 592#       发表于 2026-6-6 03:10
+
+<blockquote>姬茧墨 发表于 2026-6-5 16:42
+无所谓了，在别的地方还看到说假如不是挂了卡表名号这动作要被喷爆的
+
+就现在这个半死不活的ACT界，横空出世 ...</blockquote>
+我第一反应也是荣耀战魂，这种符合现实逻辑运动规律的打斗真是仅此一家（单机）。
+
+
+*****
+
+####  crazyleeyr  
+##### 593#       发表于 2026-6-6 03:41
+
+试了下demo有点想把hd化的那几作补一下，大佬推荐吗？
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  MRhythm  
+##### 594#       发表于 2026-6-6 07:14
+
+ 本帖最后由 MRhythm 于 2026-6-6 07:16 编辑 
+
+最好玩的3没有HD, 其他的都不推荐
+
+非要玩的话就玩个1代吧...
+
+
+*****
+
+####  Leliel  
+##### 595#       发表于 2026-6-6 07:22
+
+<blockquote>crazyleeyr 发表于 2026-6-6 03:41
+试了下demo有点想把hd化的那几作补一下，大佬推荐吗？
+
+论坛助手,iPhone</blockquote>
+hd的只有1和2
+
+1的流程很短，系统也还不完善（比如没去连锁一闪）
+
+所以一定要选的话选2
+
+
+*****
+
+####  zqqwe  
+##### 596#       发表于 2026-6-6 09:05
+
+终于有时间玩通demo，虽然动画很细腻但不喜欢这反馈。基本和旧作反着来，平a不怎么卡肉+没震动，一闪命中反而带一点滞重，连闪还强制有个慢镜启动演出<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+不过一闪判定宽松和拆投是好改进
+
+
+*****
+
+####  汪达  
+##### 597#       发表于 2026-6-6 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69727884&amp;ptid=2210366" target="_blank">crazyleeyr 发表于 2026-6-6 03:41</a>
+
+试了下demo有点想把hd化的那几作补一下，大佬推荐吗？
+
+论坛助手,iPhone</blockquote>
+除非抱着考古心态去玩，不然真不如重新玩一玩只狼、sifu<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+那时候一闪系统好新鲜好神奇，然而现在林克都有魔男时间了，类似设计早就烂大街了，时代太久远了，内容跟新游戏没得比的，随便云一下算了
+
+
+*****
+
+####  lbzlxx  
+##### 598#       发表于 2026-6-6 11:47
+
+感觉这优化不太行啊，和仁王3差不多，只能全默认设置，随便拉高一点就爆显存，但拉低又没低多少显存，4060ti，
+
+
+*****
+
+####  霖岚_  
+##### 599#       发表于 2026-6-6 11:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说起来我记得小时候玩鬼武者还真没怎么用过一闪，光靠平A防御打的，后面上网看人讲解才知道还有这玩意，瞬间感觉少玩了3块的（印象当时包机房6块一小时）
+
+这作demo玩下来更像高配只狼，防反闪避都是成熟的玩法没啥好说的，白刃拼刀和一闪秒怪还算是有点新意，但这作应该只有太刀一把主武，其他武器都成了得蓄能的一次性技能了，没多种武器能使用还是有点遗憾，应该也是卡婊为了控制成本减少武器动作设计的操作了，至于说demo难度低，想解决多简单啊，人均快慢刀就完事了呗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有感觉卡婊最近总喜欢在游戏里加各种惯性小动作，4re各种拖泥带水的踉跄，荒野里倒地爬起都不利索，这作更是各种挥刀后的惯性动作，虽说能取消并不实际影响操作，可总感觉别扭得很，像专门做出来看而不是玩的，倒也算是符合这个流媒体时代的宣传手段，只能说是大势所趋吧
+
+
+*****
+
+####  adretyu67.  
+##### 600#       发表于 2026-6-6 12:00
+
+ 本帖最后由 adretyu67. 于 2026-6-6 12:04 编辑 
+
+旧鬼武系列我还是推荐3，一闪的判断应该是最宽松的，不过3的一闪我记得火力好像也削了，算是平衡？但是3没做HD，就只有当年那个老PC版吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不过旧鬼武者其实更像战国版生化危机？就是把坦克式操作开枪的动作部分变成了近战。
+
+
+*****
+
+####  zqqwe  
+##### 601#       发表于 2026-6-6 12:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69729831&amp;ptid=2210366" target="_blank">adretyu67. 发表于 2026-6-6 12:00</a>
+旧鬼武系列我还是推荐3，一闪的判断应该是最宽松的，不过3的一闪我记得火力好像也削了，算是平衡？但是3没 ...</blockquote>
+初代是最生化的，尤其是连通性很高的馆/城地图解谜部分，2和3的地图就拆分得很散落
+
+
+*****
+
+####  SyjmchZ  
+##### 602#       发表于 2026-6-6 15:29
+
+感觉不错，期待。
+
+
+*****
+
+####  LucidasH  
+##### 603#       发表于 2026-6-6 16:16
+
+demo很不错啊，战斗中的环境交互，破解投技的动作流畅度，都是一顶一的强。不过要吐槽一下这帧生成什么破玩意，不开感觉有120，开了跟30帧差不多卡
+
+
+*****
+
+####  水風船  
+##### 604#       发表于 2026-6-6 16:39
+
+demo没打够，爽是挺爽，但感觉也看不出什么
+
+
+*****
+
+####  电风扇  
+##### 605#       发表于 2026-6-6 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69727884&amp;ptid=2210366" target="_blank">crazyleeyr 发表于 2026-6-6 03:41</a>
+试了下demo有点想把hd化的那几作补一下，大佬推荐吗？
+
+论坛助手,iPhone</blockquote>
+打开鬼泣3或者5，全程rg，也可以当代餐
+
+
+*****
+
+####  放大镜  
+##### 606#       发表于 2026-6-7 00:21
+
+鬼武者？还有喷怪猎动作僵硬的嘞～
+
+实际上这就是表达失准，他们想说的不是“僵硬”，而是“缓慢”
+
+很多人要的其实也不是动作游戏，而是能动的游戏
+
+那快一些自然是好的
+
+
+*****
+
+####  nage560  
+##### 607#       发表于 2026-6-7 01:38
+
+出招缓慢这个，卡表从鬼泣5开始不就这么干了，无论鬼泣5还是龙之信条2比起前作动作都偏慢了（其实就是卡表换RE引擎后开始向写实风靠拢故意为之），当年鬼泣5出预告我就这么说过了不过无人在意，怎么到鬼武者开始就这么多人在意起来了？
+
+
+*****
+
+####  SyjmchZ  
+##### 608#       发表于 2026-6-7 12:47
+
+又打了十几把佐佐木，一闪是真的爽吧，而且优先级有点高，出招过程、被打硬直、甚至是被佐佐木化劲出刀时都能闪。这游戏玩起来比看起来好太多了，现在的讨论环境我看评价是好不了了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+话说30帧真能提高一闪成功率么。
+
+
+*****
+
+####  shimotsuki14  
+##### 609#       发表于 2026-6-7 18:10
+
+中午玩了一遍，体感怎么比以前玩鬼武者简单多了
+小次郎也好打，初见一遍过
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  shimotsuki14  
+##### 610#       发表于 2026-6-7 18:10
+
+中午玩了一遍，体感怎么比以前玩鬼武者简单多了
+小次郎也好打，初见一遍过
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  conanoysq  
+##### 611#       发表于 2026-6-9 09:00
+
+[推链接](https://x.com/i/status/2064067438736556256)
+
+“大家好，我是制作人门胁。首先，衷心感谢大家游玩《鬼武者 Way of the Sword》的体验版。我们确实听到了一些声音说"感觉不够有挑战性"。不过，这首先是因为我们只截取了故事的开篇部分，再加上为了让玩家能享受到更丰富的武藏野动作变化，<strong>我们特意把后期才会习得的技能提前配置到了体验版中</strong>。因此，可能有些玩家会觉得手感上欠缺一些难度。但请放心——无论是强敌还是杂兵，在正式版中都会向您发起极具挑战性的战斗，敬请期待正式版的乐趣。请多关照。”
+
+那么我就拭目以待了，要是正常难度的怪还是demo里面弱智的样子，我特么喷爆<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  迷途lite  
+##### 612#       发表于 2026-6-9 09:18
+
+感觉这个招架的性能太恐怖了，起码是点了两级强化的程度，属于是我这种残疾人都能百分百化劲一把过小次郎，甚至后面试招练一闪的时候只要不被打死就能按着防御随便吊打boss
+
+一闪按早点还出角力逃课，这代简直太适合引流新玩家（比如我）了，动作也足够精致，打起来有点享受的，就是不知道这演出占了多少流程的预算<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+有预购冲动了
+
+希望影之刃能有本作7成的演出功力
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 613#       发表于 2026-6-9 10:48
+
+现在已经是把后期才会习得的技能提前配置，系统一眼看到头的忧虑更深了
+
+
+*****
+
+####  otakun  
+##### 614#       发表于 2026-6-9 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69742925&amp;ptid=2210366" target="_blank">迷途lite 发表于 2026-6-9 09:18</a>
+感觉这个招架的性能太恐怖了，起码是点了两级强化的程度，属于是我这种残疾人都能百分百化劲一把过小次郎， ...</blockquote>
+啊，这角力原来不是怪猎荒野那样随缘出的吗
+
+
+*****
+
+####  迷途lite  
+##### 615#       发表于 2026-6-9 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69743679&amp;ptid=2210366" target="_blank">otakun 发表于 2026-6-9 10:58</a>
+
+啊，这角力原来不是怪猎荒野那样随缘出的吗</blockquote>
+我说的是那个那个，X拼刀按Y Y拼刀按X的那个机制，记不清叫什么了
+
+
+*****
+
+####  57042711  
+##### 616#       发表于 2026-6-10 12:07
+
+看演示甚至能和触手怪刀剑相击的，有点可怕啊这游戏<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+还以为只要敌人体型差距大就没法用了呢…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  57042711  
+##### 617#       发表于 2026-6-10 12:07
+
+看演示甚至能和触手怪刀剑相击的，有点可怕啊这游戏<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+还以为只要敌人体型差距大就没法用了呢…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  霖岚_  
+##### 618#       发表于 2026-6-11 07:27
+
+fami通的新demo把笼手女真名静御前爆出来了，不是你立本人怎么净逮着这几个人名做文章的……
+还有这游戏到底开发了几年啊，看这演示应该是打的只是一个主线小boss，都跟岩流一样塞一大堆的敌我交互的动作模组，之前demo就觉得boss战打得太快少看太多动作演出有点浪费，处决都不想打头出高伤而是特地选身体，这次演示也是各种专属的拼刀拆防处决动作，看着也不像是能复用成精英怪的敌人做这么多一次性的动作模组也太奢侈了，原来把副武改成单独技能是把功夫全花在敌我交互上了么
+
+
+*****
+
+####  conanoysq  
+##### 619#       发表于 2026-6-11 07:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757180&amp;ptid=2210366" target="_blank">汪达 发表于 2026-6-11 07:52</a>
+【【GameSpot】《鬼武者：剑之道》夏日游戏节体验版全新Boss战实机游玩展示 | 机翻中文】 https://www.bili ...</blockquote>
+看完只感觉化劲实在是太强了，一招鲜吃遍天，就没有不能打断的近战攻击<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Piano-Forest  
+##### 620#         楼主| 发表于 2026-6-11 14:20
+
+几日前，我们受邀在夏日游戏节（SGF）期间体验了两段《鬼武者 剑之道》的全新内容，分别是小黑屋剧场“阿国歌舞伎”关卡演示以及一次大约 1 个小时的实机试玩，都和目前大家能够玩到的 DEMO 内容没有任何重叠，游戏体验也有所不同。
+[https://weibo.com/ttarticle/x/m/show#/id=2309405308597139013665](https://weibo.com/ttarticle/x/m/show#/id=2309405308597139013665)
+
+【新作】『鬼武者 Way of the Sword』最新プレイ映像。ボス“羅掌願”との戦いは緊張感と歯応えのある剣劇アクションは必見【SGF2026】
+[https://youtu.be/JDMQGnS9Cns](https://youtu.be/JDMQGnS9Cns)
+
+
+*****
+
+####  杀仁小登  
+##### 621#       发表于 2026-6-11 14:31
+
+<img src="https://img.stage1st.com/forum/202606/11/143136eiyyngoiz64ix8sx.jpg" referrerpolicy="no-referrer">
+
+<strong>HKgQWUZaIAAYfL5.jpg</strong> (300.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 14:31 上传
+
+
+*****
+
+####  lbb3313725  
+##### 622#       发表于 2026-6-11 14:35
+
+这么多只手白长了
+
+
+*****
+
+####  姬茧墨  
+##### 623#       发表于 2026-6-11 15:22
+
+这个拆投也太爽了，这么看每个boss战估计都有专属交互演出
+
+
+*****
+
+####  葵  
+##### 624#       发表于 2026-6-11 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757123&amp;ptid=2210366" target="_blank">霖岚_ 发表于 2026-6-11 07:27</a>
+
+fami通的新demo把笼手女真名静御前爆出来了，不是你立本人怎么净逮着这几个人名做文章的……
+
+还有这游戏到 ...</blockquote>
+估计是和RE2，3差不多时代的东西，我玩着demo感觉画面明显比后面用RE引擎的生8，生9，实质存在这些画面差一档，就和RE2那会一样的灰蒙蒙，脏兮兮的感觉，而且感觉有些日本建筑和竹林的素材是用的怪猎崛起的，贫穷的一逼～<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杀仁小登  
+##### 625#       发表于 2026-6-11 21:31
+
+牛若丸作为主角的ONIMUSHA ORIGIN什么的也已经在做了吧
+
+
+*****
+
+####  斯托雷加  
+##### 626#       发表于 2026-6-12 08:53
+
+话说这一代的幻魔是改设定了么，我印象里幻魔是西方的怪物，来到东方之后消灭了日本本土的鬼。我看这一代幻魔都是日本妖魔了
+
+
+*****
+
+####  hkguty  
+##### 627#       发表于 2026-6-12 09:01
+
+但是静御前太丑了，虽然远藤绫的女王音还是很顶
+
