@@ -2459,3 +2459,10 @@ ffe6e28a9991709efbc41ba94c182e7c_720.jpg
 
 这个战斗演示不如不放，要不横导以后别放战斗演示了，纯剪剧情，扬长避短<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+*****
+
+####  u2deack  
+##### 254#       发表于 2026-6-15 19:43
+
+今天这龙tv怎么一来就是横导吹逼自己的美国之行，不过游戏还有大半年估计也不会有太多新内容
+
