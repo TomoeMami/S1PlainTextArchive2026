@@ -2759,3 +2759,13 @@ Y隐喻
 
 如果骗久点大概meta味道也可以做出来。
 
+*****
+
+####  saturnus  
+##### 237#       发表于 2026-6-19 11:25
+
+昨天在飞机上补完了第一章，还是那个味儿啊<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+出渊你虽然搞了金属口红这坨大的，但老本还在啊，作为中年社畜真是喜欢这种披着萝卜外衣的职场片啊，太戳我了。
+
+第一话感觉普通，第二话渐入佳境，对日常摸鱼、不安分的刻画不就是作为中登的自己么，超好评。第三话太田 广美回归，两人一把年纪了还是那个样子，凑到一起就要搞得鸡飞狗跳，看得我一路上都在大笑<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
