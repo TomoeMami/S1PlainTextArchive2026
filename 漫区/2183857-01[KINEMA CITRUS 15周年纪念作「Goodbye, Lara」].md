@@ -1148,3 +1148,153 @@ op的名字也是再见拉拉，很有感觉
 
 人鱼公主的设定并没有一开始就定下来还有点意外，毕竟童话原作就是小美人鱼十五岁发生的故事，正好对应kc十五周年，这一年龄设定动画里也顺理成章沿用并强调。感觉还是考虑和琵琶湖的设定并非自然契合，不知道最后有没有合理的设计解释。
 
+*****
+
+####  Piano-Forest  
+##### 73#         楼主| 发表于 2026-6-20 17:06
+
+PV3：[https://youtu.be/gjq7xyVdv5I](https://youtu.be/gjq7xyVdv5I)
+
+2026年7月5日放送開始
+
+スタッフ
+
+原作：キネマシトラス
+
+監督：小出卓史
+
+シリーズ構成：川原杏奈
+
+キャラクターデザイン：谷紫織
+
+美術監督：藤野真里（studio Pablo）
+
+色彩設計：相澤里佳
+
+撮影監督：出水田和人（T2studio）
+
+編集：黒澤雅之
+
+グラフィックデザイン：濱祐斗、山口真生
+
+深海イメージ：MON
+
+ウォーターアーティスト：吉邉尚希
+
+音響監督：山田陽
+
+音楽：yuma yamaguchi
+
+音楽制作：KADOKAWA
+
+シニアプロデューサー：小笠原宗紀
+
+チームプロデューサー：石川祥気
+
+クリエイティブプロデューサー：森山菜月
+
+アニメーション制作：キネマシトラス
+
+製作：「さよならララ」製作委員会
+
+キャスト
+
+ララ：菱川花菜
+
+大津茉里：川石奈奈
+
+グレイス：深見梨加
+
+ルカ：村瀬歩
+
+大津祥弥：大野智敬
+
+大津誠：真殿光昭
+
+大津江万：住友七絵
+
+ローワン：てらそままさき
+<img src="https://p.sda1.dev/33/15c31db66ecd3cc93afe8c248c21859c/1000168474.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moeful  
+##### 74#       发表于 2026-6-20 18:00
+
+琵琶湖……………………？
+
+你怎么还是淡、淡水人鱼？？？
+
+骨头比海里的多吗？
+
+
+*****
+
+####  堆雪若叶  
+##### 75#       发表于 2026-6-20 19:03
+
+海巫婆怎么本体和鱼都出场了，有点牌面。蓝毛是四姐的话轮椅红毛应该是五姐，俩鱼在拉拉出生的时候也是最小的。四姐跟班侧脸有露出裂纹缝合，和拉拉舌头上的缝合应该类似。
+
+
+*****
+
+####  暗黑能乐  
+##### 76#       发表于 2026-6-20 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69806170&amp;ptid=2183857" target="_blank">堆雪若叶 发表于 2026-6-20 19:03</a>
+海巫婆怎么本体和鱼都出场了，有点牌面。蓝毛是四姐的话轮椅红毛应该是五姐，俩鱼在拉拉出生的时候也是最小 ...</blockquote>
+应该没七姐妹，我感觉大蓝毛是妈，女儿就五个，女主最小老五
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  堆雪若叶  
+##### 77#       发表于 2026-6-20 19:24
+
+ 本帖最后由 堆雪若叶 于 2026-6-20 19:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69806227&amp;ptid=2183857" target="_blank">暗黑能乐 发表于 2026-6-20 19:19</a>
+
+应该没七姐妹，我感觉大蓝毛是妈，女儿就五个，女主最小老五
+
+—— 来自 HONOR BVL-AN00, Android 16, 鹅 ...</blockquote>
+海的女儿原作就是六姐妹啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且人鱼妈没出场感觉也是坑，原作也没有人鱼王明令禁止和人类接触的设定，这之间估计有点联系。
+
+
+*****
+
+####  暗黑能乐  
+##### 78#       发表于 2026-6-20 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69806242&amp;ptid=2183857" target="_blank">堆雪若叶 发表于 2026-6-20 19:24</a>
+海的女儿原作就是六姐妹啊而且人鱼妈没出场感觉也是坑，原作也没有人鱼王明令禁止和人类接触的设定，这之 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥意思，还能被牛了不成
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  堆雪若叶  
+##### 79#       发表于 2026-6-20 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69806375&amp;ptid=2183857" target="_blank">暗黑能乐 发表于 2026-6-20 19:55</a>
+
+啥意思，还能被牛了不成
+
+—— 来自 HONOR BVL-AN00, Android 16, 鹅球 v3.4.98</blockquote>
+怎么就快进到牛了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和海贼王鱼人岛的情节差不多也可以
+
+
+*****
+
+####  Rhantolk  
+##### 80#       发表于 2026-6-20 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69806424&amp;ptid=2183857" target="_blank">堆雪若叶 发表于 2026-6-20 20:05</a>
+
+怎么就快进到牛了和海贼王鱼人岛的情节差不多也可以</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为你说没出场，如果人类只是危险杀死了妈的话，爹好像没理由瞒着女儿不说，那不就是答案是妈和人类跑了，所以爹很恨人类吗。。
+
