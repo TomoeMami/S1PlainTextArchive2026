@@ -58,3 +58,12 @@ llll：为什么你这个流水能活下去而我就得死
 【【中字搬运】LoveLive最后一款手游即将停服：开发公司破产，万代恐成 ...</blockquote>
 IP真死的时候会有人说赛人娘继承了她的技术<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  两个路人  
+##### 835#       发表于 2026-6-24 03:02
+
+哎，没想到这就熬到5周年了，虽然产量基本算没有
+
+【偶像榮耀5週年紀念「それを人は“青春”と呼んだ」」-哔哩哔哩】 https://b23.tv/RNaiJfu
+
