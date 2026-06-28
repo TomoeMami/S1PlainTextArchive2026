@@ -831,3 +831,11 @@ https://prem ...</blockquote>
 
 <img src="https://p.sda1.dev/32/f4d3e54f82845d8bcc6e98df90f1f0a7/1000165948.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 89#         楼主| 发表于 2026-6-25 23:17
+
+新PV（明日公开）
+[https://youtu.be/q0zQNh0wSb0](https://youtu.be/q0zQNh0wSb0)
+
