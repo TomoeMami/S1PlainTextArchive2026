@@ -625,3 +625,45 @@ BLUE REFLECTION Quartet（2026）
 
 <img src="https://p.sda1.dev/32/e3e76f27d32b746ef93ee46b74eb3770/1000167270.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 55#         楼主| 发表于 2026-6-22 10:22
+
+PV2：[https://youtu.be/KJus0JA8wkM](https://youtu.be/KJus0JA8wkM)
+
+
+*****
+
+####  wzm96816  
+##### 56#       发表于 2026-6-23 12:12
+
+新pv里能看出，即使“高清化”，也是画质太老了前几作。
+
+也就合集算便宜了，248吧好像。
+
+*****
+
+####  Leona_Akari  
+##### 57#       发表于 2026-6-23 12:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不贵，不过啥时出反和谐补丁或者mod啥时再买
+
+
+*****
+
+####  Xenor  
+##### 58#       发表于 2026-6-25 23:25
+
+记成6月30号了，还要等一个月<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">不会跟heman一起上吧
+
+
+*****
+
+####  forgetit  
+##### 59#       发表于 2026-6-26 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69830860&amp;ptid=2276830" target="_blank">Xenor 发表于 2026-6-25 23:25</a>
+记成6月30号了，还要等一个月不会跟heman一起上吧</blockquote>
+heman。。。。是啥<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
