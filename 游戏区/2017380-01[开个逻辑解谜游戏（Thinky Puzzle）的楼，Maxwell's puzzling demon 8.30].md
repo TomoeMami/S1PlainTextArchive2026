@@ -4474,3 +4474,10 @@ The Message from Deep Space
 完整的全部关卡是放在实体书里了
 [https://www.amazon.com/dp/1454961791](https://www.amazon.com/dp/1454961791)
 
+*****
+
+####  lzz  
+##### 330#       发表于 2026-7-3 00:29
+
+哎哟我去，玩DITTORI电脑风扇转的比沉星之序还快
+
