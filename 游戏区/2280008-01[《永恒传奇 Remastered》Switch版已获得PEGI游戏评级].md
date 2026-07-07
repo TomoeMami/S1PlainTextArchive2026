@@ -2492,3 +2492,69 @@ TOE的那个隐藏要素是从召唤元素晶灵麦克斯韦开始的八段派�
 名叫疯狂彗星派生的是TOD2的隐藏要素，是博士发动疯狂彗星晶术后可以再追加三段，总共四段
 
 
+*****
+
+####  空洞骑士  
+##### 227#       发表于 2026-7-4 19:32
+
+[https://www.youtube.com/watch?v=cVtSxcf4VB8](https://www.youtube.com/watch?v=cVtSxcf4VB8)
+[https://www.bilibili.com/video/BV1ttMw63ELh](https://www.bilibili.com/video/BV1ttMw63ELh)
+
+复刻版的OP公布了。对比了几个B站民间制作的4K OP，感觉是更清晰了。
+
+
+*****
+
+####  纯夏  
+##### 228#       发表于 2026-7-4 22:00
+
+官方这个4K的OP真的太高清了 仔细看了好几遍 这肯定不是AI修复的
+
+OP都高清化了 那像素小人就不能也高清化一下嘛<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  强尼高达  
+##### 229#       发表于 2026-7-4 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69870880&amp;ptid=2280008" target="_blank">纯夏 发表于 2026-7-4 22:00</a>
+官方这个4K的OP真的太高清了 仔细看了好几遍 这肯定不是AI修复的
+
+OP都高清化了 那像素小人就不能也高清化一 ...</blockquote>
+这不就是AI修复的么……你是信AI逐帧给你waifu2x一下还是从东京湾底下捞出来油纸包好的画师和CG师给你逐帧手画一个高清版本的出来
+
+
+*****
+
+####  戏言学者  
+##### 230#       发表于 2026-7-4 23:04
+
+一眼ai啊，和b站up主一个水平，甚至还不如
+
+
+*****
+
+####  Xenor  
+##### 231#       发表于 2026-7-5 05:17
+
+清晰个鬼这劣质油画感…草是更清晰了有何用还不如之前的远景模糊效果
+
+<img src="https://img.stage1st.com/forum/202607/05/051424o2tn772ppmoi9mq9.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (72.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-5 05:14 上传
+
+什么外星人<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202607/05/051425o1iuezn72xq201n7.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (114.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-5 05:14 上传
+
