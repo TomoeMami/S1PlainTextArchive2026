@@ -4540,3 +4540,28 @@ COS服还是廉价了
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69783976&amp;ptid=2282782" target="_blank">蓝雉 发表于 2026-6-16 09:58</a></blockquote>
 别逗你伊芙姐渡鸦姐红莲姐甚至百合姐笑了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 434#         楼主| 发表于 2026-7-6 13:21
+
+PV中的配乐
+
+【Make Up My Mind - 《Stellar Blade: BLOOD RAIN》预告片中OST】 
+[https://b23.tv/dFN7Ouq](https://b23.tv/dFN7Ouq)
+
+🎶音乐制作：Youngjee Lee (SHIFT UP), Aejin Kwon
+
+
+*****
+
+####  Piano-Forest  
+##### 435#         楼主| 发表于 2026-7-6 19:30
+
+PV中的另一首
+
+【Off The Line - 《Stellar Blade: BLOOD RAIN》预告片中OST】 
+[https://b23.tv/tmyEYIY](https://b23.tv/tmyEYIY)
+
+音乐制作： Youngjee Lee (SHIFT UP) 
+
