@@ -3110,3 +3110,36 @@ AI确实很猛，而且打AI一个是很消耗资源还一个是容易吸引其�
 测试的时候玩了一下，感觉难度很高，不知道是不是我的问题，我单排连人机都打不过，感觉ai强度比真人还高， ...</blockquote>
 小兵可以直接刀，小兵以外的绕
 
+*****
+
+####  TANA  
+##### 282#       发表于 2026-7-12 14:15
+
+最近运营得如何了
+
+
+*****
+
+####  Sorastlos  
+##### 283#       发表于 2026-7-12 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69907686&amp;ptid=2135998" target="_blank">TANA 发表于 2026-7-12 14:15</a>
+最近运营得如何了</blockquote>
+21号更新pve<img src="https://static.stage1st.com/image/smiley/carton2017/246.gif" referrerpolicy="no-referrer">
+现在已经没有人了
+
+
+*****
+
+####  FBC档案部专员  
+##### 284#       发表于 2026-7-13 05:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69907686&amp;ptid=2135998" target="_blank">TANA 发表于 2026-7-12 14:15</a>
+
+最近运营得如何了</blockquote>
+日均6k左右吧
+
+新血很少
+
+赛季中更新估计也没救了，得试试转免费了
+
