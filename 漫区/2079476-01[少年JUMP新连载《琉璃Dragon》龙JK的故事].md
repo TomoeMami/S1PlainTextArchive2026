@@ -1440,3 +1440,10 @@ http://m.muwai.com/info/64259.html
 
 真藤雅兴『琉璃龙龙』单行本1~5卷累计发行138万部。
 
+*****
+
+####  v22325  
+##### 163#       发表于 2026-7-13 11:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这一转战斗感觉好看很多啊，好久没看怎么还能用三种属性战斗了
+
