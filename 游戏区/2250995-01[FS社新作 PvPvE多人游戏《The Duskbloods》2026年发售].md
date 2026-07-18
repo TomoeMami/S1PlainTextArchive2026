@@ -699,3 +699,62 @@ pvpve嗎……小高搜打撒？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+*****
+
+####  Piano-Forest  
+##### 74#         楼主| 发表于 2026-7-15 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747825&amp;ptid=2250995" target="_blank">Piano-Forest 发表于 2026-6-9 22:42</a>
+
+26年夏网络测试</blockquote>
+8月21日～8月24日
+
+*****
+
+####  Piano-Forest  
+##### 75#         楼主| 发表于 2026-7-15 22:17
+
+[https://campaign.theduskbloods.jp/p/event/networktest/](https://campaign.theduskbloods.jp/p/event/networktest/)
+
+測試者報名期間
+
+2026年7月22日（三）22：00～7月28日（二）21：59
+
+獲選通知
+
+2026年8月7日（五）
+<img src="https://p.sda1.dev/33/cc6344fdf3dbc75270e2d26ec628b6e0/20260715_221415.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/509e6b6510ba274b5d05fbe217beb812/20260715_221421.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  牛奶笛  
+##### 76#       发表于 2026-7-15 22:56
+
+不知道中选率如何
+
+
+*****
+
+####  asikies  
+##### 77#       发表于 2026-7-15 23:24
+
+我觉得会是个鹅鸭杀。。。
+
+
+*****
+
+####  kuarwbwe  
+##### 78#       发表于 2026-7-15 23:44
+
+回头申一个看看。
+
+
+*****
+
+####  佛罗伦萨  
+##### 79#       发表于 2026-7-15 23:55
+
+老头环网络测试离发售3个月多一点，这么看还是有希望年内发售的
+
