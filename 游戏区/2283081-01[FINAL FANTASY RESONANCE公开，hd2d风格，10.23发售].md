@@ -976,3 +976,18 @@ BE幻影就是新出時用在PVP，因為能抽的角色使用的魔法都能被
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+*****
+
+####  Piano-Forest  
+##### 90#       发表于 2026-7-16 10:06
+
+PV2：[https://youtu.be/IFqpz8GHmKk](https://youtu.be/IFqpz8GHmKk)
+
+
+*****
+
+####  YukariK  
+##### 91#       发表于 2026-7-16 10:38
+
+原来豪华版那个钥匙是陆行鸟换装，那那个秘籍是提前获得还是说付费独占？
+
