@@ -1107,3 +1107,12 @@ DOTA是为PVP设计的，要缝进来的话缝太重了，其实我认为KR能�
 电疗是哪个塔呀？</blockquote>
 兽人萨满
 
+*****
+
+####  Adrenaline!!!  
+##### 105#       发表于 2026-7-25 03:03
+
+<img src="https://p.sda1.dev/34/e9722c4b906d2dfc289cdac257d88224/image.jpg" referrerpolicy="no-referrer">
+
+听劝这一块
+
