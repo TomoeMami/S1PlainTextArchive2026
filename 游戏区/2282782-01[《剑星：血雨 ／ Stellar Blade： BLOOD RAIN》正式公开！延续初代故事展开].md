@@ -4565,3 +4565,126 @@ PV中的另一首
 
 音乐制作： Youngjee Lee (SHIFT UP) 
 
+*****
+
+####  Piano-Forest  
+##### 436#         楼主| 发表于 2026-7-31 11:19
+
+AI MV……
+
+【《剑星：血雨》「Wanna be in LOVE」音乐视频】 
+[https://b23.tv/X2NgawM](https://b23.tv/X2NgawM)
+
+
+*****
+
+####  牙狼GARO  
+##### 437#       发表于 2026-7-31 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990749&amp;ptid=2282782" target="_blank">Piano-Forest 发表于 2026-7-31 11:19</a>
+
+AI MV……
+
+【《剑星：血雨》「Wanna be in LOVE」音乐视频】 </blockquote>
+挺不错的，b part开始各种吃的eve可爱捏。
+
+最好笑的是结束了还有ai幕后花絮
+
+
+*****
+
+####  江戸前ルナ  
+##### 438#       发表于 2026-7-31 12:13
+
+有生活表情后可爱娇艳多了
+
+
+*****
+
+####  Rary  
+##### 439#       发表于 2026-7-31 16:10
+
+感觉这MV跟B站上的AI同人视频差不多
+
+
+*****
+
+####  Jabeck  
+##### 440#       发表于 2026-7-31 16:44
+
+也就韩国人敢这么厚着脸皮明着把这种Ai作品拿出来当宣传了吧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xzzfft  
+##### 441#       发表于 2026-7-31 16:52
+
+金大师费那么大功夫打造的长马尾就这么扔了可惜了
+
+
+*****
+
+####  simonroam  
+##### 442#       发表于 2026-7-31 17:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这MV纯属没用心做吧，跟海外网页黄油一个水平，别人连中英日语言都做了
+
+
+*****
+
+####  nage560  
+##### 443#       发表于 2026-7-31 18:00
+
+弄个AI味爆表的MV来宣传确定不会反效果吗？
+
+
+*****
+
+####  缺德猫  
+##### 444#       发表于 2026-7-31 18:43
+
+韩国人也不敢，只有金亨泰敢
+
+
+*****
+
+####  鳄鱼亮爪  
+##### 445#       发表于 2026-7-31 21:49
+
+ls没有骂ai的我都标记了，下次我喜欢的游戏/厂商/主创用ai你们敢骂我就甩出来反击<img src="https://static.stage1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  精英级自演乙  
+##### 446#       发表于 2026-7-31 22:57
+
+ai是对的，劣质ai不行，但这个MV的呈现效果很好
+
+
+*****
+
+####  寂长无星夜  
+##### 447#       发表于 2026-7-31 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993176&amp;ptid=2282782" target="_blank">xzzfft 发表于 2026-7-31 16:52</a>
+金大师费那么大功夫打造的长马尾就这么扔了可惜了</blockquote>
+感觉游戏里效果不好，不如短马尾
+
+
+*****
+
+####  diamo  
+##### 448#       发表于 2026-7-31 23:45
+
+花絮那部分比正片好多了
+
+
+*****
+
+####  永远的访客  
+##### 449#       发表于 2026-8-1 07:06
+
+至少麻子是去掉了，看着清爽多了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
