@@ -667,3 +667,89 @@ PV2：[https://youtu.be/KJus0JA8wkM](https://youtu.be/KJus0JA8wkM)
 记成6月30号了，还要等一个月不会跟heman一起上吧</blockquote>
 heman。。。。是啥<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 60#         楼主| 发表于 2026-7-30 09:53
+
+【《BLUE REFLECTION Quartet: 少女们的奇迹》发售宣传片】 
+[https://b23.tv/92oeYgH](https://b23.tv/92oeYgH)
+
+
+*****
+
+####  Piano-Forest  
+##### 61#         楼主| 发表于 2026-7-30 17:55
+
+<img src="https://p.sda1.dev/34/f6b6ca8a265693a2d712accaa8db4e82/HNpBSl-aMAA1OuU-1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/f65c939a86b2f1ded4887b3583ecc5b2/HN_bujPakAAqEjF.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/f963cb7a49b5c17921b071e624227765/HKDXRrrboAAbOzd.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/87dcf5c3072690778a39e313d3a1eda4/1785405126326.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 62#         楼主| 发表于 2026-7-30 19:37
+
+＼#ブルリフQ 本日発売！／  
+
+岸田メルさん描き下ろしの発売記念イラストをお届けします♪
+
+#ブルリフ 4作品の魅力がぎゅっと詰まった本作。
+
+ブルリフを遊んだことがある方も、初めての方もぜひ、彼女たちの想いや絆を一緒に体験してください！
+<img src="https://p.sda1.dev/34/c63b552df4262434bfffb7db54871102/1000171353.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 63#         楼主| 发表于 2026-7-30 19:39
+
+褒贬不一
+[https://store.steampowered.com/a ... REFLECTION_Quartet/](https://store.steampowered.com/app/3825390/BLUE_REFLECTION_Quartet/)
+
+
+*****
+
+####  Piano-Forest  
+##### 64#         楼主| 发表于 2026-7-30 21:11
+
+#ブルリフ裏話
+<img src="https://p.sda1.dev/34/aec3e32e9132f42ff6e0ae30654f57ae/HMl-pcQa4AAAd4M.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/d8f8374cb2096d524e98f83243e45e44/HMmH7RhbUAAhDrz.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/7f49d02bf3a12a02dd33218db49c1ac7/HMmH7RaboAAhQJG.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/29866507109368899f5619d91a6369d7/HMnDG2fasAAUa9y.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/111752b27d8ac5507997019ef2355dd7/HMnDJE2a8AAxC8O.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/29f5f4920055c17c4fd6935f90b20a3d/HMtgwRjaUAAWdEY.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/c0c448e5ec7e5fc4075b8f005552fc7b/HMtg0ntbcAAOyJR.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/2c2860aa591cd062550a449e936ed542/HNGhxvLaQAAebh7.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/2beba8c0b79f882b0fa7e9f597aae813/HNGhznXakAAJymt.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/050ae66af081ac6d708e5b9c1d0755a5/HN6fa6-a8AAjr3T.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/82d0578d8e1f125ed71385c557aa2501/HN6fdYQasAEYh2Q.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Xenor  
+##### 65#       发表于 2026-7-30 22:09
+
+PC版压缩档就有32.7G…<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看着也没多高清，再观望观望
+
+
+*****
+
+####  Piano-Forest  
+##### 66#         楼主| 发表于 2026-7-31 20:18
+
+ファミ通４０周年記念で寄稿させてもらったブルリフのイラストです！
+<img src="https://p.sda1.dev/34/29c35de534f0f04b283b3f3ea92363e5/HOi3BdTbUAA7w-r.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 67#         楼主| 发表于 2026-8-1 13:46
+
+<img src="https://p.sda1.dev/34/4dc486e3b6e9ce29d18f95b0e976f07b/1000171467.jpg" referrerpolicy="no-referrer">
+
