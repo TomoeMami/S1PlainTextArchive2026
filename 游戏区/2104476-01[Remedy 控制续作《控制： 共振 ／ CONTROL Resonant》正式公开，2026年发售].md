@@ -966,3 +966,11 @@ DMC鬼泣
 这大黑大红比仁王还瞎眼，我看头晕了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+*****
+
+####  Piano-Forest  
+##### 102#         楼主| 发表于 2026-8-6 23:10
+
+从太古屋到曼哈顿废墟：《控制：共振》的颠覆之路
+[https://weibo.com/ttarticle/x/m/show#/id=2309405328982077210760](https://weibo.com/ttarticle/x/m/show#/id=2309405328982077210760)
+
