@@ -674,3 +674,20 @@ bd丰富度肯定跟那些老牌游戏没法比，但作为一个刚开始ea的�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">红月对面数值增长的好快，感觉早点找个开大触发终点开刷，正好难度高也好找组件。低难度反而是一堆白色垃圾里找蓝色啥都凑不齐
 
+*****
+
+####  sodah  
+##### 64#       发表于 2026-8-9 11:32
+
+ 本帖最后由 sodah 于 2026-8-9 11:34 编辑 
+
+新难度多了些战痕和弹幕更密集感觉也没啥了，打了两把还是成长叠起来宰猪。其中一把
+
+<img src="https://img.stage1st.com/forum/202608/09/113236i64ll334ujd4lh36.png" referrerpolicy="no-referrer">
+
+<strong>1234.png</strong> (103.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-9 11:32 上传
+
