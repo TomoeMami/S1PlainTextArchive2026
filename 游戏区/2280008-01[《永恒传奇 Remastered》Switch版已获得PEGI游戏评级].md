@@ -2558,3 +2558,235 @@ OP都高清化了 那像素小人就不能也高清化一 ...</blockquote>
 
 2026-7-5 05:14 上传
 
+*****
+
+####  LMBS  
+##### 232#       发表于 2026-8-7 16:43
+
+圣恩骨折买了份，只靠自带的限时任务指引能补完所有限时任务吗？
+如果可以还真能玩玩老传说，阻止我玩老传说就是那一大堆限时支线。这个功能是圣恩冷饭才开始有吧，薄暮冷饭我的二周目就是被限时烦到弃了。
+
+
+*****
+
+####  qiyu1234  
+##### 233#         楼主| 发表于 2026-8-7 16:53
+
+ 本帖最后由 qiyu1234 于 2026-8-7 16:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030504&amp;ptid=2280008" target="_blank">LMBS 发表于 2026-8-7 16:43</a>
+
+圣恩骨折买了份，只靠自带的限时任务指引能补完所有限时任务吗？
+
+如果可以还真能玩玩老传说，阻止我玩老传 ...</blockquote>
+TOGF的限时支线的话，我的建议是
+
+少年篇，一定要看攻略，首先这个进度比较短，而且二周目可以主动跳过这个阶段，所以最好是全部拿满，以后不用回来
+
+其次少年篇有个支线（其实算EVENT收集，缺了事件列表就少一个，没有特别的奖励，但是可能对称号有影响）的限制时间非常的短，几乎是触发下一个主线就会卡掉的那种，你可以按右摇杆确认大地图某个场景上的限时支线（限时支线不在当前场景的时候只会在这里显示），但是像这种超短限时支线玩家一般不会在这个阶段去主动看
+
+青年篇冗余稍微大一点，但还是建议确认一下，官方攻略本对各个支线列表有个出现时间段标注，一般来说你主线过掉一个BOSS以后就可以稍微确认一下留个印象
+
+比起限时支线，更麻烦的其实还是苏菲的专属称号，就是需要收集齐95%SKIT的那个，那个我复刻版是本篇基本没看攻略/但也根据以前的印象打，未来篇一个不漏，最后是卡点（最后一个SKIT触发完）解锁称号，错过就下个周目见了，不看攻略的话其实还是相当危险的
+
+
+*****
+
+####  alucardcz  
+##### 234#       发表于 2026-8-7 19:25
+
+圣恩怎么突然40块了？ 我也赶紧去收藏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Xenor  
+##### 235#       发表于 2026-8-7 20:06
+
+这被子玩过最后悔的游戏就是圣恩<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">直接耗了我220+个小时，而且还没刷出个结果来，手柄按键的硅胶垫都按烂了……后悔死了，我有这时间我玩什么不好<img src="https://static.stage1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 236#       发表于 2026-8-7 23:29
+
+既然顶上来了借帖一问，TOB REMASTER和TOX REMOSTER二选一买哪一个？作为游戏哪一个好玩？剧情上有什么雷点或缺陷？
+
+*****
+
+####  alucardcz  
+##### 237#       发表于 2026-8-7 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033545&amp;ptid=2280008" target="_blank">不灭的旋律 发表于 2026-8-7 23:29</a>
+
+既然顶上来了借帖一问，TOB REMASTER和TOX REMOSTER二选一买哪一个？作为游戏哪一个好玩？剧情上有什么雷点 ...</blockquote>
+根本不用选 b全方面完爆x
+
+tox本身还有2代。。他没出
+
+
+*****
+
+####  qiyu1234  
+##### 238#         楼主| 发表于 2026-8-7 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033545&amp;ptid=2280008" target="_blank">不灭的旋律 发表于 2026-8-7 23:29</a>
+
+既然顶上来了借帖一问，TOB REMASTER和TOX REMOSTER二选一买哪一个？作为游戏哪一个好玩？剧情上有什么雷点 ...</blockquote>
+X1最近几年在海外有翻案倾向（剧情+系统），不过这跟我们拆尼斯新玩家来说没啥关系
+
+（不过这游戏在系列里属于相对适合那种浅尝辄止的玩法的作品，如果时间不多只想浅玩一下选个中低难度那其实TOX1的体验会比TOAR更好更现代一点）
+
+认真玩的话基本TOB 一择，综合来说也是TO在本世代平台上目前已经登陆的作品里相对短板少的，而且Remastered解决了原版的一些用户体验上的问题
+
+
+*****
+
+####  X9999  
+##### 239#       发表于 2026-8-7 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033545&amp;ptid=2280008" target="_blank">不灭的旋律 发表于 2026-8-7 23:29</a>
+
+既然顶上来了借帖一问，TOB REMASTER和TOX REMOSTER二选一买哪一个？作为游戏哪一个好玩？剧情上有什么雷点 ...</blockquote>
+闭着眼睛当然选TOB，TOX本身就是个半成品玩着玩着会发现。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咦？怎么就这样结束了。。
+
+
+*****
+
+####  不灭的旋律  
+##### 240#       发表于 2026-8-8 00:19
+
+好的，趁打折还没结束就买TOB了
+
+
+*****
+
+####  chaosp  
+##### 241#       发表于 2026-8-8 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70031421&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-8-7 19:25</a>
+
+圣恩怎么突然40块了？ 我也赶紧去收藏了</blockquote>
+请问哪个平台打折到40了？
+
+
+*****
+
+####  alucardcz  
+##### 242#       发表于 2026-8-8 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033965&amp;ptid=2280008" target="_blank">chaosp 发表于 2026-8-8 01:18</a>
+
+请问哪个平台打折到40了？</blockquote>
+小黑盒。。。。。。。。
+
+
+*****
+
+####  chaosp  
+##### 243#       发表于 2026-8-8 01:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033998&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-8-8 01:33</a>
+
+小黑盒。。。。。。。。</blockquote>
+谢谢，叠了盒币32拿下，买完发现忘了领极赏星球的支付券
+
+
+*****
+
+####  alucardcz  
+##### 244#       发表于 2026-8-8 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70034045&amp;ptid=2280008" target="_blank">chaosp 发表于 2026-8-8 01:50</a>
+
+谢谢，叠了盒币32拿下，买完发现忘了领极赏星球的支付券</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要慌 反正也是几毛
+
+
+*****
+
+####  LMBS  
+##### 245#       发表于 2026-8-8 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030573&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-8-7 16:53</a>
+
+TOGF的限时支线的话，我的建议是
+
+少年篇，一定要看攻略，首先这个进度比较短，而且二周目可以主动跳过这个 ...</blockquote>
+我就玩了一点，回到村里提示有谢丽亚的限时对话，就是不知这种提示完不完整，还是只有当前地图的提示，如果其他地图的限时也能有个界面能看到，那么勤点查看感觉不靠攻略也能顺利玩下去
+
+以前玩PS3版时对着攻略wiki玩实在太痛苦了，尤其TOV事件还特别多
+
+
+*****
+
+####  qiyu1234  
+##### 246#         楼主| 发表于 2026-8-8 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036363&amp;ptid=2280008" target="_blank">LMBS 发表于 2026-8-8 15:14</a>
+
+我就玩了一点，回到村里提示有谢丽亚的限时对话，就是不知这种提示完不完整，还是只有当前地图的提示，如 ...</blockquote>
+GF的整体规模比V小，限时支线相对也要少一点
+
+R3切大地图界面有限时任务的城镇会增加标记，复刻加了这个功能
+
+但SKIT这种收集是没有提示的，这个想100%基本就得靠攻略了，95%的话难度其实也挺大的，哪怕玩家比较仔细
+
+
+*****
+
+####  LMBS  
+##### 247#       发表于 2026-8-8 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036432&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-8-8 15:24</a>
+
+GF的整体规模比V小，限时支线相对也要少一点
+
+R3切大地图界面有限时任务的城镇会增加标记，复刻加了这个 ...</blockquote>
+谢谢，限时任务不漏就行，小对话太难全收集，只能随缘了
+
+
+*****
+
+####  Xenor  
+##### 248#       发表于 2026-8-9 07:13
+
+TOB原来是TALES OF BERSERIA REMASTERED<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">很多年前电脑上玩了半小时就永久消失了，试了下NS版重置照样玩不动，出了屋就狂晕3D，而且这人设也太丑了，一副苦大仇深的，战斗简直是垃中之极…宁肯去玩RPG了没撑过20分钟图都懒得截了
+
+TOX也是垃…玩了半小时就觉得不对劲了，怎么会有这么无聊的传说游戏，剧情对话还有逻辑根本没法看，尴尬之极，不过TOX的几个女主人设还是挺好的，像鸵鸟一样跑的女主，还有后面遇到一个拿咬人人偶的LOLI以及在OP里看到头上有花的短发妹子。。冲着莫名其妙的女主人设接着玩了4小时，现在也快撑不下去了，满地图爬上跳下开宝箱各种没意思，战斗系统僵硬死板，毫无爽感，唯一爽点是看女主那像鸡窝一样的头发<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">男主也是个怪人，一开始就像鼻涕一样跟着女主，甩都甩不掉救命啊，还动不动就柯南模式显得很机智的样子，另一个佣兵同伴也是强行塞入，仿佛智障一样还跟男主一块尴聊666
+
+问题这竟然还是MAXWELL，老头啥时候变美少女了…还有TOP里魔科学的影子
+<img src="https://p.sda1.dev/34/8489461ecdab093ab5de28259c7991d6/d.jpg" referrerpolicy="no-referrer">
+
+这头发…我要是鸟绝对会选择在里面做窝
+<img src="https://p.sda1.dev/34/73ef280946cd7556f15397343cf1c241/e.jpg" referrerpolicy="no-referrer">
+
+惊奇的是地位还挺高的，传说里能操作大佬主角还是头一回见到
+<img src="https://p.sda1.dev/34/2f9dfab89d188324c19e4574f8614e91/a.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/243624ae41ae35fe4e80fd5f284469bb/b.jpg" referrerpolicy="no-referrer">
+
+前面还觉得男主像鼻涕甩不掉，后面女主竟然真的掉鼻涕了<img src="https://static.stage1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">槽点神多
+<img src="https://p.sda1.dev/34/bbd7c21902802e68193dc03bae5a65b1/c.jpg" referrerpolicy="no-referrer">
+
+堂堂难梦公百代怎么混成这个样子，对比之下法老控简直天使
+
+
+*****
+
+####  qiyu1234  
+##### 249#         楼主| 发表于 2026-8-9 07:33
+
+菜不是问题，菜还不自知就是自己的问题了
+
+另外没人愿意看你的强制拉宽模拟器截图，自己看着这比例不恶心吗
+
+别像个自我意识过剩的老登似的在论坛发癫
+
+
+*****
+
+####  Xenor  
+##### 250#       发表于 2026-8-9 07:43
+
+确实很菜，特别是还浪费了几个小时时间，所以我很佩服能坚持把它们玩完还说好的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
