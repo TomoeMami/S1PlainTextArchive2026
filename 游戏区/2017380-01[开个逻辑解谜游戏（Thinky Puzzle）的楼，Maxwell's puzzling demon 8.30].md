@@ -4521,3 +4521,10 @@ The Message from Deep Space
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+*****
+
+####  elleryasimov  
+##### 333#       发表于 2026-8-12 10:21
+
+前段时间和朋友组队打了北大的 pnku3，感觉玩到很多 Thinky Puzzle 的梗，甚至有 Sokobond 这种相对小众的游戏梗。想知道国内打 Puzzle Hunt 的群体和玩 Thinky Puzzle 的群体重合度是不是还挺高的。
+

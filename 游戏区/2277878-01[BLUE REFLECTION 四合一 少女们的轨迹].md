@@ -855,3 +855,913 @@ NS2没有实体版就算了
 
 那样怎么推进啊
 
+*****
+
+####  那由  
+##### 100#       发表于 2026-7-31 18:07
+
+湿身还存活吗
+
+
+*****
+
+####  zergcs  
+##### 101#       发表于 2026-7-31 21:52
+
+冲灿当新游戏来玩沟槽的咋缩得这么离谱4个多小时就通了，我还以为能把手游剧情全塞进来让我看个够
+
+
+*****
+
+####  无动于衷  
+##### 102#       发表于 2026-8-1 02:35
+
+乐死我了，叫你们信KT信现在的GUST，这就是应得的
+
+
+*****
+
+####  蔷薇下  
+##### 103#       发表于 2026-8-1 12:58
+
+<blockquote>新HGCG 发表于 2026-7-31 07:01
+结果澪灿帝还是没一个能用驹川诗？</blockquote>
+啊，连巨魔诗都没有吗
+
+追加究竟是加了啥
+
+
+*****
+
+####  whzfjd  
+##### 104#       发表于 2026-8-1 13:25
+
+草，才发现原来我已经在 gust 品鉴过最潮最 in 的 薇欧拉了
+
+
+*****
+
+####  grox133  
+##### 105#       发表于 2026-8-1 13:36
+
+有人能说下和谐了什么吗，我有蓝反的原版
+
+
+*****
+
+####  DARK_HGCG  
+##### 106#       发表于 2026-8-1 15:57
+
+<blockquote>grox133 发表于 2026-8-1 13:36
+有人能说下和谐了什么吗，我有蓝反的原版</blockquote>
+蓝反初代？
+
+
+*****
+
+####  grox133  
+##### 107#       发表于 2026-8-1 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997357&amp;ptid=2277878" target="_blank">DARK_HGCG 发表于 2026-8-1 15:57</a>
+
+蓝反初代？</blockquote>
+对，我steam之前买了1代，如果这版有和谐我是不是玩原版就行了
+
+
+*****
+
+####  新HGCG  
+##### 108#         楼主| 发表于 2026-8-1 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996839&amp;ptid=2277878" target="_blank">蔷薇下 发表于 2026-8-1 12:58</a>
+
+啊，连巨魔诗都没有吗
+
+追加究竟是加了啥</blockquote>
+幻舞啥都没加
+
+帝里面加了澪和灿的角色
+
+
+*****
+
+####  crazyleeyr  
+##### 109#       发表于 2026-8-1 18:47
+
+只能说感谢分享和谐情报的大佬，准备买，正好刷到这个贴。
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Xenor  
+##### 110#       发表于 2026-8-1 20:05
+
+试了下，意外还蛮好的<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">确实有高清化，不仅幻舞剑，跟单帝比合集帝也有高清
+
+NS版幻剑：
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUq1qbdr2-GVQCdfNN2AkEtXsElM4FgAC5SMAAh7GcVf6iHzTzO286T0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUq5qbdr6Gl8is_3GJdt-R9ooZw9DjgAC5iMAAh7GcVeFA_EDpuerqz0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUq9qbdr9baLQRoNMNHsVUhLGncMSLAAC5yMAAh7GcVdlw33BWHKtmz0E.jpg" referrerpolicy="no-referrer">
+
+帝的标题动画变了感觉没之前的蓝天白云大海四少女飞好看…
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUspqbdygyStEk3-mvrPaUcau4-RsowACCyQAAh7GcVfdbdFCF0qLuD0E.jpg" referrerpolicy="no-referrer">
+
+NS版合集帝
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUstqbdykR1HX3QOXM02Vy2epBZ1R-AACDSQAAh7GcVfIKWnu0CWrPj0E.jpg" referrerpolicy="no-referrer">
+
+NS版单帝
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUs5qbdytGcGWvrVb7B5P0WJyV3iqHQACECQAAh7GcVdx2ecGyn27ED0E.jpg" referrerpolicy="no-referrer">
+
+PSV版：
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUrFqbdsDTBWouSqrbpq5b8t85bfoCgAC6SMAAh7GcVfoUtzyXM1RDz0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUrJqbdsGfVoZy9UndX73XDVjZAndpQAC6iMAAh7GcVeERWWMlcN4iT0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUrNqbdsJnSyItWdiIaoURvXUqPUi8QAC6yMAAh7GcVcldchbRjAVzD0E.jpg" referrerpolicy="no-referrer">
+
+也才发现官中竟然和PSV民汉是一样的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+再就是NS官中用的说明图片竟是英文的，不如PSV日版
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUsxqbdyn75tOfuLa1JuA8ereiFBsRQACDiQAAh7GcVehNhk611NFKj0E.jpg" referrerpolicy="no-referrer">
+
+现在唯一不明的就是DLC，PSV版的各种DLC打全要确定3分钟，单帝的DLC也要确定半分钟，这个合集好像没有内置DLC的信息。
+
+总之只要核心的帝没删减，那就赚了，其他三作都当是附送的<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUslqbdyesSyBAAHl6eTANfKk45y_x54AAgokAAIexnFXybDdvtf2ptU9BA.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wzm96816  
+##### 111#       发表于 2026-8-1 23:38
+
+高清是高清了，如果民间没反和谐补丁，体验还是差点。
+
+幻舞剑纯高清。
+
+灿剧情似乎微调了点。
+
+
+*****
+
+####  DARK_HGCG  
+##### 112#       发表于 2026-8-2 12:36
+
+！！！！
+
+<img src="https://img.stage1st.com/forum/202608/02/123638cpwfolv3hffltvl4.jpg" referrerpolicy="no-referrer">
+
+<strong>27960.jpg</strong> (403.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 12:36 上传
+
+
+*****
+
+####  达达葱2  
+##### 113#       发表于 2026-8-2 14:01
+
+居然有没被和谐的
+
+
+*****
+
+####  Xenor  
+##### 114#       发表于 2026-8-2 21:42
+
+玩了一章半，合集版的体验明显更好很多，多了跳过和快进，调节设定起来也更顺手，细节比老版强，特别这光线的赋予，徐徐生辉
+
+什么湿身根本是多此一举，完全就没什么看头，这本是个异常纯洁的游戏，多余了
+
+但是合集版的木内是不是太大了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不仅高清化后的缝隙…战斗中还带正面俯视的，图我都不敢戴反而搞得更SEX了
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYXw1qb0ZNm_xFLMasVTRFfNfNCBbWjQACbiMAAh7GeVeKBDm5Wi44YT0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYXw9qb0ZUm151V03lgIu4IrbZfpYXjwACcCMAAh7GeVflda6KhsdWhT0E.jpg" referrerpolicy="no-referrer">
+
+原版湿身也就这样根本没啥意思，反而猥琐
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYXxBqb0ZXQTZXao2QSmRV-2XOo4qVcgACcSMAAh7GeVerlLn1niUf1D0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYXxJqb0ZeBf**9r-zcgwcaXM0eSIAACdCMAAh7GeVdcutuHulgGQD0E.jpg" referrerpolicy="no-referrer">
+
+PSV版细节少不仅不明显视角还远远的，NS版可好直接正面特写图就不截了
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYXxNqb0ZlgCp6d1DZF_GE5RZzjm5a4gACdSMAAh7GeVcYzZm_lMDRTD0E.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CURE_HGCG  
+##### 115#       发表于 2026-8-3 08:41
+
+其实我有一点在意
+
+就是四个作品里其他主角都是短发，就灿是长发
+
+什么你说灿的主角是林登
+
+哦那就都是短发了
+
+
+*****
+
+####  江口夕  
+##### 116#       发表于 2026-8-3 08:58
+
+原来当年我吃这么好，哎
+
+
+*****
+
+####  净水计划  
+##### 117#       发表于 2026-8-3 12:24
+
+几年前试过原版风扇转得比全高2077还要响，这个合集版有没有改善
+
+
+*****
+
+####  WGTCorp  
+##### 118#       发表于 2026-8-3 12:49
+
+SD纹理中，开抗锯齿和环境光遮蔽，其他全低，系统锁30帧，整机功耗大概12W，感觉还行，过几天带出去看看续航什么水平。
+
+
+*****
+
+####  Xenor  
+##### 119#       发表于 2026-8-3 19:07
+
+果然PC版才是最终版<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">PSV版可以直接删了
+
+这细节，这才是水湿的正常光反射效果，穿的衣服又不是雨衣…面料没那么差
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYbkZqcHPu6BUO37IsCwYw7YOh5aD3fAACCy4AApvPgVcg4afZSmNFnD0E.jpg" referrerpolicy="no-referrer">
+
+半朦胧最佳
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYbkdqcHP1BtCLJazce9qEEh_3DDjDDAACDC4AApvPgVdeeZBPtuuqbz0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYbkhqcHP-1iaYkEZ_2Jvzy6pzxhjpQgACDS4AApvPgVdxeBjAPFbxQz0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYbkpqcHQETCVwhYL5JdeRWekBzyzaxwACDy4AApvPgVe-C8U7UF9qbT0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYbk1qcHQN5OfF0kT75roTJYD2CZ6-oQACEi4AApvPgVffZqaEINIO-z0E.jpg" referrerpolicy="no-referrer">
+
+过场竟然也能看到胖吃裤……太快了没截到
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYbk5qcHQSSjTEv-CiImyGXO2MB6JMzAACEy4AApvPgVftCDUvkRmmGD0E.jpg" referrerpolicy="no-referrer">
+
+什么都好就是体积太大了，50多G！虽然一寸大一寸强。。。也是玩过最大的手机游戏了，还害我现在看20G都觉得不大了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  crosz1985  
+##### 120#       发表于 2026-8-3 20:04
+
+ns1版在switch2上体验如何啊
+
+
+*****
+
+####  新HGCG  
+##### 121#         楼主| 发表于 2026-8-3 20:34
+
+由纪子这妹子感觉不错
+
+但是变身后不好看
+
+
+*****
+
+####  达达葱2  
+##### 122#       发表于 2026-8-4 09:27
+
+<blockquote>Xenor 发表于 2026-8-3 19:07
+果然PC版才是最终版PSV版可以直接删了
+
+这细节，这才是水湿的正常光反射效果，穿的衣服又不是雨衣…面料没那 ...</blockquote>
+Pc版那么大吗
+
+
+*****
+
+####  新HGCG  
+##### 123#         楼主| 发表于 2026-8-4 11:26
+
+啊哦！
+<img src="https://p.sda1.dev/34/290de90e0fa940c02a70ccf7dd9dd579/image.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DARK_HGCG  
+##### 124#       发表于 2026-8-4 16:56
+
+<img src="https://p.sda1.dev/34/8c8fce0f89de61a3cef3cf8951cb68d6/27980.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Xenor  
+##### 125#       发表于 2026-8-4 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009413&amp;ptid=2277878" target="_blank">达达葱2 发表于 2026-8-4 09:27</a>
+
+Pc版那么大吗</blockquote>
+又大又值<img src="https://static.stage1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">安装档32G相当于中日英三版合集
+
+
+*****
+
+####  wzm96816  
+##### 126#       发表于 2026-8-5 15:31
+
+额，如果是玩过的，可以把幻舞剑 和帝开头打了，等几天吧。
+
+贴吧正在尝试制作mod，包括视角解锁，雨滴穿衣效果等，毕竟现在是四合一没法直接移植。
+
+
+*****
+
+####  9smttb78  
+##### 127#       发表于 2026-8-6 21:39
+
+好像没人提，大妈已经有佬捣鼓出了补丁。
+不过我新玩家，不知道内容全不全，老玩可以去鉴定下
+
+
+*****
+
+####  Xenor  
+##### 128#       发表于 2026-8-7 00:11
+
+又转战NS版了PC版实在是HOLD不住删掉立省38G<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+合集帝优化得真好，比起单帝不仅细节更好更清晰速度也更快了玩了2小时全程满帧稳得一地，这放以前单帝想都不敢想，而且各种光影简直美哭了……还是得官方出马<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">单帝可以删了
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYswpqdK-1B9fjSp1EfCy6s319rjWjOwAC4x8AAtsbqFeDy-4qAwzLnj0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYswtqdK-4xbpsnsjrAjZo9hjFYZR5-gAC5B8AAtsbqFegBQritKLCFD0E.jpg" referrerpolicy="no-referrer">
+
+总算又解锁衣服了，大差不差主要少了配件，可能得后面才会解锁吧，NS有没有MOD也无所谓了
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYswxqdK-7FvaHTdRawJbi0I0K2ILj_wAC5R8AAtsbqFc1VUR_Snd5dT0E.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iceddd  
+##### 129#       发表于 2026-8-7 06:03
+
+想玩蓝反1 之前帝玩到那个澪反派jk的内心世界卡关了，12感觉有了合集也不会打折了，看了一眼1上次打折还是24年<img src="https://static.stage1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer"> 
+所以这个合集推荐买吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  宛若青空  
+##### 130#       发表于 2026-8-7 07:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70026871&amp;ptid=2277878" target="_blank">iceddd 发表于 2026-8-7 06:03</a>
+想玩蓝反1 之前帝玩到那个澪反派jk的内心世界卡关了，12感觉有了合集也不会打折了，看了一眼1上次打折还是2 ...</blockquote>
+如果你能接受内容阉割和谐的话那可以买，然而这合集更过分的是连DLC都不全收录，不纯割凯子吗？要我说就不能纵容暗耻这种辣鸡操作<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjd  
+##### 131#       发表于 2026-8-7 19:24
+
+<img src="https://img.stage1st.com/forum/202608/07/192315xluyxtcyk9ayh0ya.jpg" referrerpolicy="no-referrer">
+
+<strong>1000788182.jpg</strong> (197.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 19:23 上传
+
+给光荣的一封道歉信
+
+
+*****
+
+####  Xenor  
+##### 132#       发表于 2026-8-7 19:45
+
+有和谐？木油DLC？都是假象，面包总是有的<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+https://bbs.3dmgame.com/thread-6689385-1-1.html
+https://bbs.3dmgame.com/thread-6690564-1-1.html
+
+
+*****
+
+####  新HGCG  
+##### 133#         楼主| 发表于 2026-8-8 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70031411&amp;ptid=2277878" target="_blank">whzfjd 发表于 2026-8-7 19:24</a>
+
+给光荣的一封道歉信</blockquote>
+居然有这种BUG
+
+
+*****
+
+####  达达葱2  
+##### 134#       发表于 2026-8-9 09:49
+
+<blockquote>whzfjd 发表于 2026-8-7 19:24
+给光荣的一封道歉信</blockquote>
+不会连细节都有吧
+
+
+*****
+
+####  花海佑芽  
+##### 135#       发表于 2026-8-9 10:23
+
+和谐其实无所谓了，最大卖点JK，实在是太香了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+还有其它JK画的好的游戏推荐吗？制服女友画风也不错，但是纯gal有点玩不下去<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wzm96816  
+##### 136#       发表于 2026-8-9 15:02
+
+测试了一下3dm的补丁，单纯加dlc服装和反和协的话，目前对正版steam上得没问题。
+
+效果不错，可惜也只能对 幻和帝处理。
+
+
+*****
+
+####  新HGCG  
+##### 137#         楼主| 发表于 2026-8-9 16:09
+
+<img src="https://p.sda1.dev/34/7ad901c41fc728a274e89e19755b1946/image.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  WGTCorp  
+##### 138#       发表于 2026-8-9 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005201&amp;ptid=2277878" target="_blank">WGTCorp 发表于 2026-8-3 12:49</a>
+SD纹理中，开抗锯齿和环境光遮蔽，其他全低，系统锁30帧，整机功耗大概12W，感觉还行，过几天带出去看看续 ...</blockquote>
+这个画质设置似乎可以撑三个小时出头，之后试一下把画质调高点续航有多久。
+
+
+*****
+
+####  新HGCG  
+##### 139#         楼主| 发表于 2026-8-9 20:01
+
+原来灿就是百合破坏男为了女生牺牲自己把妹子都送给女海王的剧情吗
+<img src="https://p.sda1.dev/34/9518df43aa953ef3c175c97071e67777/28148.jpg" referrerpolicy="no-referrer">">
+<img src="https://p.sda1.dev/34/c05507e246bc613a0f16ea2c3f95798d/28149.jpg" referrerpolicy="no-referrer">
+
+这310姛怎么泡上动画版的妹子了
+<img src="https://p.sda1.dev/34/8ae5c6cd16f31743365cff1cbade74a3/28150.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/7dff33aff803a4f491a1d6c289608cc4/28151.jpg" referrerpolicy="no-referrer">
+
+澪就是直接动画截图拿来用啊包括人物立绘
+<img src="https://p.sda1.dev/34/acdf72f2c05216c3f4042c43044bd8de/28152.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/d0ac95f3e3232eebdbfa0148c084d9e3/28153.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/2ce88997db336d1f39c0a4002d77f9d5/28154.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/627ada18f6dd845829252e939068dbbd/28155.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/6e637b4f086cef5a442ffb419874a599/28156.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/ec6d626c33d0cb314ab8b476237d706a/28161.jpg" referrerpolicy="no-referrer">
+
+不过加了ED的CG
+<img src="https://p.sda1.dev/34/5bff7f79e85e27606d59cbe3c4ea3d5a/28157.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/06511b11f29dc1f135c7e75d25cbf102/28158.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/08266f73ce99b026b691d150724f2ea9/28159.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/a8ceda7e1d2468fd0db56e3497d194f1/28160.jpg" referrerpolicy="no-referrer">
+
+爱央：“阳樱莉听说你姐在你那里超勇的，但在我这里完全不一样哦”
+<img src="https://p.sda1.dev/34/5f1faaa77595b120fe13b19454c219fb/image.png" referrerpolicy="no-referrer">
+
+帝放到最后玩，现在玩幻
+<img src="https://p.sda1.dev/34/5673cdc12ce89fb28aee5313044d6166/image.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  达达葱2  
+##### 140#       发表于 2026-8-9 21:30
+
+<blockquote>WGTCorp 发表于 2026-8-9 16:52
+这个画质设置似乎可以撑三个小时出头，之后试一下把画质调高点续航有多久。 ...</blockquote>
+NS2 吗？
+
+
+*****
+
+####  moonmagian  
+##### 141#       发表于 2026-8-10 01:01
+
+中等价位的スペシャルコレクションボックス到了，还买了CD合集，东西不少，总共差不多40000日元，现在的汇率下还蛮划算的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/10/005800ql1yilld3c5z56ug.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786294678666_1.webp</strong> (254.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 00:58 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/005800cv0k60yi6tvvdg0g.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786294679091_2.webp</strong> (161.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 00:58 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/005800nc6ptsv6ksdtca21.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786294679588_3.webp</strong> (347.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 00:58 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/005800vgzggzsnnbxvgm4u.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786294680101_4.webp</strong> (137.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 00:58 上传
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  Xenor  
+##### 142#       发表于 2026-8-10 07:19
+
+EDCG真蓝，不过合集后反射系列是不是就此终结了…(不-要-啊)<img src="https://static.stage1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  WGTCorp  
+##### 143#       发表于 2026-8-10 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043399&amp;ptid=2277878" target="_blank">达达葱2 发表于 2026-8-9 21:30</a>
+NS2 吗？</blockquote>
+是steamdeck，我tdp锁了8w，开头半小时大概掉了15%多一点的电，不过中间大多时间是剧情和过场动画，性能压力不大。之后又用pc玩了一段，某个场景帧数直接掉了快一半，不知道后面这个tdp能不能稳住30帧。
+另外这游戏画质就算开到全高了，在sd的屏幕上也看不出什么区别，反而会导致帧数下降，感觉也没必要再调了。
+
+
+*****
+
+####  新HGCG  
+##### 144#         楼主| 发表于 2026-8-10 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70044943&amp;ptid=2277878" target="_blank">Xenor 发表于 2026-8-10 07:19</a>
+
+EDCG真蓝，不过合集后反射系列是不是就此终结了…(不-要-啊)</blockquote>
+这作4合1卖得好没准会有新作吧
+
+
+*****
+
+####  sniffer  
+##### 145#       发表于 2026-8-11 13:52
+
+ai好啊
+
+https://b23.tv/IshwlxA
+
+
+*****
+
+####  89clock  
+##### 146#       发表于 2026-8-11 16:54
+
+只玩过ns上的帝，话说我觉得DLC的服装都不咋地，还不如最普通的JK服装
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  DARK_HGCG  
+##### 71#       发表于 2026-7-29 23:01
+
+发售了发售了
+
+
+*****
+
+####  达达达达葱  
+##### 72#       发表于 2026-7-30 05:54
+
+好奇手游的单机改成啥样了
+
+
+*****
+
+####  wzm96816  
+##### 73#       发表于 2026-7-30 17:06
+
+重新打了幻舞剑开头，额，高清化在哪啊。
+
+我看了下以前的画面，建模好像没变，最多是光影，渲染和环境贴图细节变了点。
+
+
+*****
+
+####  宛若青空  
+##### 74#       发表于 2026-7-30 17:26
+
+看PV和截图就感觉没什么高清化….
+
+
+*****
+
+####  新HGCG  
+##### 75#         楼主| 发表于 2026-7-30 17:28
+
+<img src="https://img.stage1st.com/forum/202607/30/172821s3g6zrag61ghpgeh.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="648" zoomfile="https://img.stage1st.com/forum/202607/30/172821s3g6zrag61ghpgeh.png">
+
+<strong>da0436820bcebdaaec513292337e9c90.png</strong> (36.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 17:28 上传
+
+<img src="https://img.stage1st.com/forum/202607/30/172828n11y1xyxinon0idz.png" referrerpolicy="no-referrer">
+
+<strong>216b887adf056d2a35c7d56e8cfd31b5.png</strong> (40.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 17:28 上传
+
+*****
+
+####  宛若青空  
+##### 76#       发表于 2026-7-30 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986410&amp;ptid=2277878" target="_blank">新HGCG 发表于 2026-7-30 17:28</a></blockquote>
+呃，湿身效果没了？GUST疯了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 77#         楼主| 发表于 2026-7-30 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986422&amp;ptid=2277878" target="_blank">宛若青空 发表于 2026-7-30 17:30</a>
+
+呃，湿身效果没了？GUST疯了吧</blockquote>
+似乎河蟹了不少……
+
+
+*****
+
+####  达达达达葱  
+##### 78#       发表于 2026-7-30 18:39
+
+这和谐是为了配合任天堂还是索尼
+
+*****
+
+####  千秋难诉  
+##### 79#       发表于 2026-7-30 18:42
+
+又是和谐又是百破，光荣又暗耻了
+
+
+*****
+
+####  宛若青空  
+##### 80#       发表于 2026-7-30 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986802&amp;ptid=2277878" target="_blank">达达达达葱 发表于 2026-7-30 18:39</a>
+这和谐是为了配合任天堂还是索尼</blockquote>
+全平台都这样，怕不是是暗荣自己自作主张<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjd  
+##### 81#       发表于 2026-7-30 18:49
+
+国际化.global ，KT 英推评论区都被 anti-dei 的老外给三光了，也不知道能多卖给谁
+
+
+*****
+
+####  RainbowSealife  
+##### 82#       发表于 2026-7-30 19:24
+
+问一下帝的新增角色有约会剧情吗？如果没有，只是多了几个战斗或支援角色的话，那四合一我也没必要买了，帝24年五月份开始玩的，到现在玩了30h还没通关，太无聊了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  爱撕衣魔刃  
+##### 83#       发表于 2026-7-30 19:42
+
+女生们人人都有老头背心穿是吧……
+
+
+*****
+
+####  新HGCG  
+##### 84#         楼主| 发表于 2026-7-30 19:53
+
+为了这个特典特地从某垃圾网站买的
+<img src="https://p.sda1.dev/34/e4694434637957cfd36bcb207ed744e3/9657fdc2gy1ifm9dpzsxgj22bc3347wi.jpg" referrerpolicy="no-referrer">">
+
+<img src="https://img.stage1st.com/forum/202607/30/195238quqqxnsioujodncr.gif" referrerpolicy="no-referrer">
+
+<strong>20240925080826.gif</strong> (332.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 19:52 上传
+
+
+*****
+
+####  达达达达葱  
+##### 85#       发表于 2026-7-30 20:24
+
+灿里面是不是有一个310？
+
+
+*****
+
+####  新HGCG  
+##### 86#         楼主| 发表于 2026-7-30 20:42
+
+<img src="https://img.stage1st.com/forum/202607/30/204213rq585gmorq6jhtgg.gif" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="78" zoomfile="https://img.stage1st.com/forum/202607/30/204213rq585gmorq6jhtgg.gif">
+
+<strong>12343.gif</strong> (1.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 20:42 上传
+
+不能继承单独版的存档
+
+我帝要重打了……
+
+
+*****
+
+####  linhaitora  
+##### 87#       发表于 2026-7-30 22:09
+
+灿只有剧情和剧情战斗啊
+
+
+*****
+
+####  Xenor  
+##### 88#       发表于 2026-7-30 22:14
+
+希望NS版能控制在20G以内…
+
+
+*****
+
+####  新HGCG  
+##### 89#         楼主| 发表于 2026-7-30 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69988121&amp;ptid=2277878" target="_blank">Xenor 发表于 2026-7-30 22:14</a>
+
+希望NS版能控制在20G以内…</blockquote>
+下载版的话
+
+NS和NS2都是13.9GB
+
+任天堂官网上写的
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 90#       发表于 2026-7-30 22:38
+
+买ns卡带可以免费升级成ns2版吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  wzm96816  
+##### 91#       发表于 2026-7-30 23:33
+
+幻舞剑高清了一点点，表示的确高清。高速，也就还行吧。 
+
+澪和灿说是制作，其实挺敷衍的，但是其中一个毕竟有素材所以底子还是有。
+
+
+*****
+
+####  Xenor  
+##### 92#       发表于 2026-7-31 00:22
+
+NS的帝有8.5GB，剩下5.4G都给另三作…要这样还能…就谢天谢地了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 93#         楼主| 发表于 2026-7-31 07:01
+
+结果澪灿帝还是没一个能用驹川诗？
+
+
+*****
+
+####  达达葱2  
+##### 94#       发表于 2026-7-31 07:33
+
+NS和NS2一个大小的话，说明NS2也不会比NS画质好？
+
+
+*****
+
+####  新HGCG  
+##### 95#         楼主| 发表于 2026-7-31 07:41
+
+看到这潇美岐，想查查设定，结果手游官网停服后域名被赌博网站窃取了
+
+<img src="https://img.stage1st.com/forum/202607/31/074051fja188rrh8u1b188.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202607/31/074051fja188rrh8u1b188.png">
+
+<strong>image.png</strong> (208.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 07:40 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/074112yd2s866e18fbckdf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 07:41 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/074131qk6373kls6lzmlkf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (151.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 07:41 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/074141i6yd8yery7x2d442.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (120.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 07:41 上传
+
+
+*****
+
+####  达达葱2  
+##### 96#       发表于 2026-7-31 14:37
+
+tie以前的dlc都不通用吗
+
+
+*****
+
+####  CURE_HGCG  
+##### 97#       发表于 2026-7-31 16:16
+
+<img src="https://img.stage1st.com/forum/202607/31/161548q7yxwk8mvv0iiz4x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (355.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 16:15 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/161603keh7wpyzhxvvt4y6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (377.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 16:16 上传
+
+
+*****
+
+####  达达葱2  
+##### 98#       发表于 2026-7-31 17:49
+
+影子也不一样了
+
+
+*****
+
+####  花海佑芽  
+##### 99#       发表于 2026-7-31 18:03
+
+瑟瑟都被河蟹了吗<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

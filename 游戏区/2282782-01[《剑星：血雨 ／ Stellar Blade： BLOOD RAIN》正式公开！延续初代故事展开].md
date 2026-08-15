@@ -4688,3 +4688,11 @@ ai是对的，劣质ai不行，但这个MV的呈现效果很好
 
 至少麻子是去掉了，看着清爽多了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 450#         楼主| 发表于 2026-8-11 21:52
+
+<img src="https://p.sda1.dev/34/c74fb90a1cf3db2f352229906b1eaf10/1000172046.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/eda7a4d95ed9b00fa5e4021e12dfda18/1000172047.jpg" referrerpolicy="no-referrer">
+
