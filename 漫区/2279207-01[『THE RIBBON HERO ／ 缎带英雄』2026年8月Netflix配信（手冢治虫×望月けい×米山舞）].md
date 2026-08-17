@@ -746,3 +746,610 @@ CGディレクター：長嶺明音
 
 okama是当年那个做月面兔兵器米娜的okama？这位对我来说也基本算个失踪人口了……
 
+*****
+
+####  冰风血羽  
+##### 100#       发表于 2026-8-10 10:01
+
+网飞出品稳定发挥
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+
+*****
+
+####  蓝川澈  
+##### 101#       发表于 2026-8-10 10:23
+
+不至于难看，我看得还挺开心的，动作戏可圈可点（低情商：有特别拉跨的地方。同样是芭蕾，这动作节奏一坨。你看看隔壁q娃.jpg），就是俗。
+
+那个act幕布过场真是割裂。知道致敬宝冢也别这么明显啊，把致敬放到台面上对于主旨表达毫无意义，而且手冢那个年代的宝冢和现在也不是一个宝冢了（从时代背景和精神面貌上说，现在的宝冢消失了说不定更好→个人暴论）。可能是为了圈一波从动画了解宝冢的年轻观众，比如少歌粉。这类粉丝有些先入为主的刻板印象，宝冢=时髦=她力量=太厉害了
+
+手冢治虫的原作历史地位早有耳闻，但是没看过。即使如此，从老爷子其他作品的基调推测，也能料想肯定远超这部动画。第一次在没看过原作的前提下和原作党如此共鸣，这下非补原作不可了。
+
+
+*****
+
+####  whzfjd  
+##### 102#       发表于 2026-8-10 10:30
+
+僵硬的 ACT 幕布过场触发了我的逐梦演艺圈 PTSD，在电影里搞出综艺水平的报幕
+
+
+*****
+
+####  蓝川澈  
+##### 103#       发表于 2026-8-10 10:37
+
+音乐是神前晓和monaco，这个没得黑。纸片那个有点像小圆里面那个，魔女设定的团队，叫啥来着？
+
+
+*****
+
+####  reficul  
+##### 104#       发表于 2026-8-10 12:08
+
+<blockquote>蓝川澈 发表于 2026-8-10 10:37
+音乐是神前晓和monaco，这个没得黑。纸片那个有点像小圆里面那个，魔女设定的团队，叫啥来着？ ...</blockquote>
+是说剧团狗咖喱吗
+
+
+*****
+
+####  chenyedgg  
+##### 105#       发表于 2026-8-10 12:22
+
+跳着看了下，感觉给作豚能剪的地方都没多少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Junglemgs  
+##### 106#       发表于 2026-8-10 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70046008&amp;ptid=2279207" target="_blank">蓝川澈 发表于 2026-8-10 10:37</a>
+
+音乐是神前晓和monaco，这个没得黑。纸片那个有点像小圆里面那个，魔女设定的团队，叫啥来着？ ...</blockquote>
+叫剧团狗咖喱，的确有参与
+
+
+*****
+
+####  赤黑的假面  
+##### 107#       发表于 2026-8-11 08:42
+
+对这部作品最大的看法就是，没事不要瞎寄吧吹原作粉碎机式改法，这种爆改的方式上下限太大了，哪怕以原作粉碎机出名的京都动画／押井守，都没少做垃圾动画。
+
+
+*****
+
+####  kltsgjy  
+##### 108#       发表于 2026-8-11 09:34
+
+沾米山舞和望月けい这种网红噱头拉满的东西能出啥正经好作品<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  幽香  
+##### 109#       发表于 2026-8-11 14:00
+
+看完想说把布料回收一下吧，应该值不少钱呢<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  嘉术2015  
+##### 110#       发表于 2026-8-14 08:01
+
+内山这个角色到底是男的还是女的
+
+还是说他和主角男装女骑士对应的女装男娘
+
+
+*****
+
+####  cs0111  
+##### 111#       发表于 2026-8-14 09:46
+
+<blockquote>嘉术2015 发表于 2026-8-14 08:01
+天鹅绒这个角色到底是男的还是女的
+
+还是说他和主角男装女骑士对应的女装男娘 ...</blockquote>
+确认是男的
+
+*****
+
+####  Piano-Forest  
+##### 62#         楼主| 发表于 2026-7-27 22:50
+
+<img src="https://p.sda1.dev/34/d7a41bc478fa13cddecb4d2441104d06/HLu1qUQbMAAwWdI.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/15d974028df93fee742d199ce35991b1/HL0TuDDagAAZ7rT.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/c5ced6a42409f6c74dc551c5d5d265bd/HMDd89_WUAA42KM.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/a9fd97d61408455de6d49197c9736b34/HMS4_pxb0AA--dv.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/4b31a5614602a4a2c85a480e9ef611d3/HMX1u0VaMAAAQjL.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 63#         楼主| 发表于 2026-7-27 22:52
+
+<img src="https://p.sda1.dev/34/e42065cf28b46e028e99afe5df384e7a/HNbMQorb0AAOs5O.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/27c7787d2d163f536dabc16338239b1f/HOOoWKyaUAAmzUV.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/38272785a6c263bfaa1c7779effaa38a/1000171088.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KUMA  
+##### 64#       发表于 2026-7-28 04:36
+
+人设还不错 PV配歌也剪辑的不错，看样子预算还可以，Netflix有钱烧，突然期待起来了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 65#         楼主| 发表于 2026-7-30 21:00
+
+PV3：[https://youtu.be/HRlAGIcl2n0](https://youtu.be/HRlAGIcl2n0)
+
+Netflix：2026年8月8日（土）世界独占配信
+
+スタッフ
+
+脚本協力：香村純子
+
+キャラクター原案：望月けい
+
+キャラクター原案協力：米山舞
+
+アニメーションキャラクターデザイン：新垣一成
+
+アートディレクター：セドリック・エロール
+
+ネルガルデザイン：okama
+
+美術監督：野村正信
+
+色彩設計：渡部夏美
+
+CGディレクター：長嶺明音
+
+撮影監督：福田光
+
+編集：植松淳一
+
+音楽：神前暁（MONACA）、髙田龍一（MONACA）
+
+音響監督：三好慶一郎
+
+音響制作：東北新社
+
+製作：ツインエンジン
+
+制作：OUTLINE
+
+キャスト
+
+サファイア：サーヤ（ラランド）
+
+パイン：小林星蘭
+
+ベルベット：内山昂輝
+
+ジルコ：新谷真弓
+
+教皇：壤晴彦
+
+ロック：細谷佳正
+
+ヘケート：月ノ美兎
+
+チョロギ：手塚祐介
+
+チック：ルンルン
+
+タック：でびでび・でびる
+
+<img src="https://p.sda1.dev/34/4268379d0ec7b5fe2c7cbe817d56fbbb/HOeWRU5aMAAvvd5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/c9209f587a368139a32fc9885147b04b/HOeWx0vaQAAT7HF.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/cd29ae911ac9e0fa933a2df525382e48/HOeWt9eaEAA9Don.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/c465e0f8d5074f691827d0e432ab1fed/HOeBVllbYAA8fW2.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 66#       发表于 2026-7-30 22:23
+
+月之美兔嘛，虽然一看是配角但是，还是彩虹包装的能力强啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  28201  
+##### 67#       发表于 2026-7-31 01:46
+
+怎么做到所有配角都又潮又土的
+
+
+*****
+
+####  Eiyuu  
+##### 68#       发表于 2026-7-31 02:34
+
+月之美兔都来了吗？
+
+这pv做出来的东西画面表现力到是挺好，看到时候的剧情表现吧
+
+
+*****
+
+####  AraTurambar  
+##### 69#       发表于 2026-7-31 05:55
+
+ 本帖最后由 AraTurambar 于 2026-7-31 05:57 编辑 
+
+这感觉缎带太生硬了。
+
+
+*****
+
+####  dotiaffy  
+##### 70#       发表于 2026-7-31 18:55
+
+看实际表现吧，双引擎的片子作画有保障
+
+
+*****
+
+####  Piano-Forest  
+##### 71#         楼主| 发表于 2026-8-1 21:31
+
+変身シーン先行公開！
+[https://youtu.be/tpLQKVdwsPU](https://youtu.be/tpLQKVdwsPU)
+
+
+*****
+
+####  按时间灵活  
+##### 72#       发表于 2026-8-2 20:29
+
+‧˚₊•┈┈┈STAFFイラスト公開┈┈┈•‧₊˚⊹
+
+　　　　　　　illustration
+
+　アニメーションキャラクターデザイン
+
+　　　　　　　 新垣一成
+
+‧˚₊•┈┈┈┈┈┈┈୨୧┈┈┈┈┈┈┈•‧₊˚⊹
+
+配信まであと7日！
+
+<img src="https://img.stage1st.com/forum/202608/02/202925n7e8cfxf4f7fbhqa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (264.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 20:29 上传
+
+*****
+
+####  按时间灵活  
+##### 73#       发表于 2026-8-2 20:30
+
+‧˚₊•┈┈┈STAFFイラスト公開┈┈┈•‧₊˚⊹
+
+　　　　　　　illustration
+
+　　　メインアニメーター：河田泉
+
+‧˚₊•┈┈┈┈┈┈┈୨୧┈┈┈┈┈┈┈•‧₊˚⊹
+
+配信まであと６日！
+
+<img src="https://img.stage1st.com/forum/202608/02/203009vi7uth07xz68hivv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (166.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 20:30 上传
+
+
+*****
+
+####  chenyedgg  
+##### 74#       发表于 2026-8-5 20:10
+
+感觉女主还有伪娘的声音和角色形象不搭......
+
+
+*****
+
+####  按时间灵活  
+##### 75#       发表于 2026-8-6 22:23
+
+˚₊•┈┈┈STAFFイラスト公開┈┈┈•‧₊˚⊹
+
+　　　　　　　illustration
+
+アートディレクター：セドリック・エロール
+
+‧˚₊•┈┈┈┈┈┈┈୨୧┈┈┈┈┈┈┈•‧₊˚⊹
+
+配信まで、あと４日！
+
+<img src="https://img.stage1st.com/forum/202608/06/222313bnf9kkykf0ynify0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (139.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 22:23 上传
+
+*****
+
+####  按时间灵活  
+##### 76#       发表于 2026-8-6 22:23
+
+‧˚₊•┈┈┈STAFFイラスト公開┈┈┈•‧₊˚⊹
+
+　　　　　　　illustration
+
+　　　メインアニメーター：黄捷
+
+‧˚₊•┈┈┈┈┈┈┈୨୧┈┈┈┈┈┈┈•‧₊˚⊹
+
+配信まであと３日！
+
+<img src="https://img.stage1st.com/forum/202608/06/222356ggluwq4z6l71ou6e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 22:23 上传
+
+*****
+
+####  按时间灵活  
+##### 77#       发表于 2026-8-6 22:25
+
+ 本帖最后由 按时间灵活 于 2026-8-6 22:27 编辑 
+
+˚₊•┈┈┈STAFFイラスト公開┈┈┈•‧₊˚⊹
+
+　　　　　　　illustration
+
+  　　　総作画監督：古賀美裕紀
+
+‧˚₊•┈┈┈┈┈┈┈୨୧┈┈┈┈┈┈┈•‧₊˚⊹
+
+<img src="https://img.stage1st.com/forum/202608/06/222711ktum1j439k76aq01.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (749.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 22:27 上传
+
+
+*****
+
+####  千恋万花  
+##### 78#       发表于 2026-8-8 15:26
+
+[ToonsHub] THE RIBBON HERO (2026) 1080p NF WEB-DL DUAL DDP5.1 H.264 (Dual-Audio, Multi-Subs)
+[https://nyaa.si/view/2143339](https://nyaa.si/view/2143339)
+
+magnet:?xt=urn:btih:14d30084bca22779dc6a017654a526e6033ac63f
+
+
+*****
+
+####  按时间灵活  
+##### 79#       发表于 2026-8-8 17:02
+
+怎么能有这么难看的动画
+
+
+*****
+
+####  Lawliet.L  
+##### 80#       发表于 2026-8-8 17:17
+
+网飞动画的正常水平<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 81#       发表于 2026-8-8 17:23
+
+为啥网飞今年两部长篇动画的女主角都这么聒噪，辉夜和蓝宝石，这两部我都看到30分钟左右就承受不住了
+
+
+*****
+
+####  m0raji  
+##### 82#       发表于 2026-8-8 17:35
+
+看力竭了，非人类作品
+
+
+*****
+
+####  无证madam  
+##### 83#       发表于 2026-8-8 18:08
+
+浪费大火鸟的变身BANK 全片场能找出一个不是菜b的吗
+
+
+*****
+
+####  Redimercia  
+##### 84#       发表于 2026-8-8 20:12
+
+没看出在对经典的现代化诠释上有下什么功夫，更像是望月米山舞的粉丝向作品<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fengzijiang  
+##### 85#       发表于 2026-8-8 20:15
+
+看完了，男娘美丽，完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  aimbot  
+##### 86#       发表于 2026-8-8 21:47
+
+米山舞和泽野弘之，两大cjb
+
+
+*****
+
+####  ティグル  
+##### 87#       发表于 2026-8-8 22:19
+
+靠恁娘，对网飞的刻板印象又加深了
+
+
+*****
+
+####  cowgp01  
+##### 88#       发表于 2026-8-8 22:24
+
+全场望月粉丝卖单
+
+*****
+
+####  starring  
+##### 89#       发表于 2026-8-8 22:29
+
+看了30分钟顶不住关掉，主角的CV棒读程度已经严重影响观感
+
+
+*****
+
+####  leommoo  
+##### 90#       发表于 2026-8-8 23:02
+
+后半段直接整段垮掉，监督脚本演出可以一起枪毙了
+
+
+*****
+
+####  UnrealApartheid  
+##### 91#       发表于 2026-8-8 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70038819&amp;ptid=2279207" target="_blank">starring 发表于 2026-8-8 22:29</a>
+看了30分钟顶不住关掉，主角的CV棒读程度已经严重影响观感</blockquote>
+Saaya本质就是搞笑艺人，这是她第一次担任声优，棒读是必然的结果
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  以达天际  
+##### 92#       发表于 2026-8-9 01:25
+
+米山舞离贞本义行还差一个庵野秀明
+
+
+*****
+
+####  ヒトニナル  
+##### 93#       发表于 2026-8-9 10:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了点切片庆幸自己30分钟就撤退了，啥B玩意儿（直球）
+
+
+*****
+
+####  MONSTERS  
+##### 94#       发表于 2026-8-9 11:50
+
+ 本帖最后由 MONSTERS 于 2026-8-9 11:53 编辑 
+
+虽然今年还没结束，但年度最烂动画的候选人已经出现了，对比之下细田守近几年拍的那些动画电影都还算能看了
+
+还有女主的声优为什么选一个好像没有配任何动画经验的搞笑艺人，另外几个也是选的管人，演技好一些的内山还是个男娘<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 95#         楼主| 发表于 2026-8-9 13:19
+
+<img src="https://p.sda1.dev/34/0094879160a1b43556fb6e7f36cc3b54/HPLAH0zaAAE1z9M.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/f5369ca726851c2b150921a00165afeb/HPGA9ZkasAAWGtc.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/6d8fdf668e9bd6de0ebe4cc72d001a9b/HPBiC2xaAAAH4hf.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/c5434393ab3b6787c681b14734ad9833/HOsXQoWbIAATNSh.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/56690cd940e2df27a1f31a3d2e05305b/HO7pfWFbMAAvmoB.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/c5e036a1e728e15cc5b3d729e516df83/HO3oI9xa4AEa29x.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/e4324**35f62021e8174d95ae0daaf/HOxyepObIAARfnA.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/b8208139785489b9a7b59ea1fce8c590/HOm3vtFbEAAOiAu.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 96#         楼主| 发表于 2026-8-9 13:23
+
+<img src="https://p.sda1.dev/34/57163a71e6a5ee35b93673d14f085874/HOja4rNbIAAWyZm.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/4d8c1d00bee7cb618a19e30b8e549983/HOjgIZ4aQAAoxH1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/091ce87559da20d952c6283abae90131/HOjiPUMagAAwRnn.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/3b45becfd59ef362d0e7292ae9996aa4/HOy64h5a0AAw80_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/1f443d27b0963094e2b2694297308eda/HO8wjprboAEJLF2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/0513c729f234f0dc17f56b5da6113d19/HPCIY7naIAA2Rg0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/8e19d17092def30135e75f95ea219cec/HPHVlJTaIAA42KM.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/9ba37e8b2c0559119066a0959ad14912/HPIDSyUbwAA_WbW.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/e54fe6c7410394cd51d70cf65c2c27f0/HOy6ZtgbsAA8odk.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/fab993aca6e9724789600852e9bbaf1d/HPBhkvaaEAAWwSP.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/d72fcd00fe9bf3bdc29a4aa02d0e6ca8/HO8XqpeaMAAWznV.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/ef78e98b6518c02a81d5a3619e4b149d/HPMJbF_bAAATEwT.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mika-S  
+##### 97#       发表于 2026-8-9 14:44
+
+这最后部分也太难看了
+
+
+*****
+
+####  ayliarw  
+##### 98#       发表于 2026-8-9 18:02
+
+还可以，优缺点都很明显，人设我不太喜欢，但美术不错。配音我听着也还行。
+
+
+*****
+
+####  reficul  
+##### 99#       发表于 2026-8-10 08:57
+
+已经可以颁奖年度最难看动画了吧，概括起来非常简单的一个故事怎么做到拍了2小时还到处是跳跃的痕迹，连分镜的连贯都无法保证，例如劳妈一句话逼出大招。
+
+最终战不熟的伙伴突然勇气突然领便当突然爆种，进入幻想世界又突然开始搞怪。猜测是致敬但我无法理解。
+
+演出也想一出是一出，只管把潮的塞进去不管和剧情是否协调例如最终战的支援唱歌。
+
+外行配音也是灾难，但在荒诞的剧情前好像也没那么重要了
+
+我要不是在跑步机上看的话根本坚持不下去，纯烂片
+
+
