@@ -4528,3 +4528,10 @@ The Message from Deep Space
 
 前段时间和朋友组队打了北大的 pnku3，感觉玩到很多 Thinky Puzzle 的梗，甚至有 Sokobond 这种相对小众的游戏梗。想知道国内打 Puzzle Hunt 的群体和玩 Thinky Puzzle 的群体重合度是不是还挺高的。
 
+*****
+
+####  琦莉  
+##### 334#       发表于 2026-8-16 23:38
+
+现在才把DITTORI的demo打了，好强啊，隐藏、隐藏的隐藏，机制感觉能扩展出好多花了，已经预订下半年最期待的游戏之一了
+
