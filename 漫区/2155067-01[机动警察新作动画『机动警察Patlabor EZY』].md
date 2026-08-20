@@ -2769,3 +2769,188 @@ Y隐喻
 
 第一话感觉普通，第二话渐入佳境，对日常摸鱼、不安分的刻画不就是作为中登的自己么，超好评。第三话太田 广美回归，两人一把年纪了还是那个样子，凑到一起就要搞得鸡飞狗跳，看得我一路上都在大笑<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  DARK_HGCG  
+##### 238#       发表于 2026-8-14 09:46
+
+4
+
+缺了一发子弹，要在瞒住两个女队员的情况下、在领导知道前内部找出来
+
+点子不错，但是演绎得过于干涩，没有笑点
+
+5
+
+日本传统的怪力乱神环节，乱施工引发土地爷(萝莉)愤怒，这三集里唯一的机器人对打，进机战的话1号机大招就是大盾居合了罢
+
+6
+
+警察进山救人结果自己遭遇泥石流
+
+打戏是1号机大战野猪
+
+这电棍连野猪都打不死啊但这野猪也太大了，车一样大
+
+预告是有**用什么科学狠活劫持了全东京的机器人
+
+似乎因为特车二课的机子用的是游马新开的公司的系统所以逃过一劫，所以背负了拯救全东京的使命(瞎猜的)
+
+<img src="https://img.stage1st.com/forum/202608/14/094655ow8we7kwwkaz6aak.jpg" referrerpolicy="no-referrer">
+
+<strong>28226.jpg</strong> (543.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 09:46 上传
+
+
+*****
+
+####  Atamaitai  
+##### 239#       发表于 2026-8-15 07:11
+
+第五集结尾处橱窗视角的假人好像哈曼啊<img src="https://static.stage1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2602BRT18C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  aptx8285144  
+##### 240#       发表于 2026-8-15 22:07
+
+笑死，神人呀，老资历自己带一发实弹走
+
+
+*****
+
+####  nice女武神  
+##### 241#       发表于 2026-8-15 23:27
+
+<blockquote>aptx8285144 发表于 2026-8-15 22:07
+笑死，神人呀，老资历自己带一发实弹走</blockquote>
+那课长钓到的是哪来的
+
+
+*****
+
+####  新HGCG  
+##### 242#       发表于 2026-8-16 08:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70083502&amp;ptid=2155067" target="_blank">nice女武神 发表于 2026-8-15 23:27</a>
+
+那课长钓到的是哪来的</blockquote>
+以前的人弄丢的
+
+至于以前的人怎么蒙混过关就是开放性了
+
+
+*****
+
+####  日下轮太  
+##### 243#       发表于 2026-8-16 14:09
+
+<img src="https://img.stage1st.com/forum/202608/16/140750sio15c5dfhieggzc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 14:07 上传
+
+第六集这个路人第一眼看发型就觉得眼熟，结果还专门做了个展示T恤的镜头，那就彻底是太田道灌了
+
+突然莫名其妙加这么一笔有点奇怪，再一想那大概当年的太田的姓氏，就是从道灌来的了
+
+
+*****
+
+####  达达葱2  
+##### 244#       发表于 2026-8-16 15:42
+
+<blockquote>日下轮太 发表于 2026-8-16 14:09
+第六集这个路人第一眼看发型就觉得眼熟，结果还专门做了个展示T恤的镜头，那就彻底是太田道灌了
+
+突然莫名 ...</blockquote>
+不懂
+
+求详解
+
+
+*****
+
+####  aptx8285144  
+##### 245#       发表于 2026-8-16 16:32
+
+第五集这灵异女鬼事件结合做好事有好报到是挺有雅趣的<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，反对那些不管文物的拆迁吗jpg
+
+
+*****
+
+####  日下轮太  
+##### 246#       发表于 2026-8-16 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70086676&amp;ptid=2155067" target="_blank">达达葱2 发表于 2026-8-16 15:42</a>
+
+不懂
+
+求详解</blockquote>
+太田道灌是日本战国时期的早期名将，江户城的建城人，信野只要有登场能力基本都是全游戏前十的猛人
+
+近几年在某个漫画有登场，登场的造型和机动条子的一模一样，发型很有辨识度所以我一下子就联想到了
+
+然后截图里T恤这句话，是太田道灌历史上著名的遗言“我们家必亡”
+
+总之是一个战国史相对偏门，但是很有意思的人物
+
+制作组大概是有道灌的粉丝，所以这里专门照着画了个人物加了一笔。这么一想当初初代二科太田破坏神这个角色的姓氏，大概也是这个staff作为道灌粉的发挥
+
+
+*****
+
+####  aptx8285144  
+##### 247#       发表于 2026-8-16 17:18
+
+野外生存还挺浪漫的，队长们真不担心这两个人吗<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 248#       发表于 2026-8-16 21:55
+
+看了看舞台声优感想，第六话标题的恋爱部分指的是遇险者们<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 249#       发表于 2026-8-17 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088394&amp;ptid=2155067" target="_blank">aptx8285144 发表于 2026-8-16 21:55</a>
+
+看了看舞台声优感想，第六话标题的恋爱部分指的是遇险者们</blockquote>
+标准的巨魔标题党，想想也很合理，毕竟就女主这神人性格，目前两人是看不出一点往那方面去的趋势，讲真的第五集的女鬼JK和天鸟都更有cp感，多给几集戏份还能拍个人鬼情未了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 250#       发表于 2026-8-17 18:12
+
+<blockquote>xiongxingyu 发表于 2026-8-17 09:12
+标准的巨魔标题党，想想也很合理，毕竟就女主这神人性格，目前两人是看不出一点往那方面去的趋势，讲真的 ...</blockquote>
+这集算甜了十几秒然后被恢复的通讯打断了(
+
+其实在神人辈出的课里，十和也不算多突出吧(
+
+
+*****
+
+####  创始’’’天翔  
+##### 251#       发表于 2026-8-18 00:46
+
+<blockquote>xiongxingyu 发表于 2026-8-17 09:12
+标准的巨魔标题党，想想也很合理，毕竟就女主这神人性格，目前两人是看不出一点往那方面去的趋势，讲真的 ...</blockquote>
+跟雪之圆舞曲不同，第五集女鬼跟他根本就没啥关系，纯工具人来着，人鬼情未了不了一点啊
+
