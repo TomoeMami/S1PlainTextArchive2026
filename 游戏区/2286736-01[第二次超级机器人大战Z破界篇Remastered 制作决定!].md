@@ -2398,3 +2398,11 @@ NEO不是小众变态参战+小众变态系统的锅吗，感觉不一定是WII�
 
 DD那边不也证明了现在的机战如果想好好做动画还是能做好的，单纯是主机版权作这边不好好做罢了。
 
+*****
+
+####  shengheai  
+##### 232#       发表于 2026-8-21 20:34
+
+原版的破界有没有改过带真唱的ISO 哪位可以分享下
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
