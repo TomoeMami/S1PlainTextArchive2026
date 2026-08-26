@@ -888,3 +888,11 @@ Q Kawa
 
 纯血火影班
 
+*****
+
+####  Piano-Forest  
+##### 92#         楼主| 发表于 2026-8-24 03:11
+
+劇場アニメ「SEKIRO: NO DEFEAT」本編バトルシーン
+[https://youtu.be/kCOub7E1-mA](https://youtu.be/kCOub7E1-mA)
+
