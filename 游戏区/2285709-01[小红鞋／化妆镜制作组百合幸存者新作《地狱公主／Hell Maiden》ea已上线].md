@@ -805,3 +805,14 @@ DEMO虽然和贝雅还没展开毕竟有原作在，而游戏里维吉尔也 ...
 
 这几天我也突然开始出现手柄选不了界面，退出还会卡死...
 
+*****
+
+####  modedd  
+##### 50#         楼主| 发表于 2026-8-25 19:02
+
+太变态了<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/b7410b36f3f284665eac05cf43e60da0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
