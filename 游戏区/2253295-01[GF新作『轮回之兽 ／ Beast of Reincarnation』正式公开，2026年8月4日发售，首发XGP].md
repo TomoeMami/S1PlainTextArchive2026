@@ -5860,3 +5860,17 @@ GF还是老老实实抱宝可梦大腿吧</blockquote>
 
 然后这个结局又看了一遍还是没看出来boss终极牺牲对女主有什么用，全靠狗子当移动硬盘。第一次看的时候听boss来了一句活下去还以为要救女主，结果最后一个大口口意志一个小口口意志<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Yidam  
+##### 576#       发表于 2026-8-27 19:50
+
+<blockquote>现可通过长按“互动键”跳过剧情与过场动画。
+
+可跳过的剧情与过场动画的右下角将显示“跳过”按键提示。
+
+注：正如我们在上一版更新说明中所说，由于实现该功能存在一定的技术难度，我们将逐步添加剧情跳过功能。本次更新已支持跳过部分过场动画，剩余的部分将在近期更新中全部完成。十分感谢大家的耐心等待！
+
+现已支持跳过最终 Boss 战前部分过场动画</blockquote>
+原来跳过剧情在技术上这么难吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
