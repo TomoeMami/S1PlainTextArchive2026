@@ -50,3 +50,10 @@ ROG Xbox Ally X 试了下感觉不错，如果价格在6000以下就强烈推荐
 问问有人用过壹号本游侠x1吗，这个三合一看着还挺哄人的</blockquote>
 我买了8840u版的x1pro，正好碰上出差了一个月，算是高强度用了一段时间，缺点就是极其难绷的周边功耗，30wtdp跑满的情况下基本上只能顶1小时多点，玩独立游戏我调到10w，也只能撑3-4小时。屏幕确实大，但和笔记本比起来还是小了，真的想办公至少还是得surface pro的屏幕大小，还是小了一两寸。如果是当掌机又太大太重了，举着累，但支架+手柄手部没支撑又很不舒服。本来是准备等go 2结果等了一年一直不出就买了这款，手里掌机不算寨机有switch lite、switch oled、switch 2、steamdeck、gpd win mini加上一台surface pro6，各种形态的都有，三合一可以算是优点最少缺点最多的一类了，没买之前我也感觉挺唬人，买之后就傻眼。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+*****
+
+####  bypass  
+##### 1434#         楼主| 发表于 2026-8-30 17:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 最近图便宜收了一个 MSI Claw Ultra 5，我敢说微星的前端是我见过用过的掌机里面，最烂的一个。
+
