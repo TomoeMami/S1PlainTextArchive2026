@@ -2662,3 +2662,16 @@ Dolls tried to pray, convey, love, and hate.
 
 还有音乐数量少了一点，抓耳的不多，有新作的话希望有AC本家水平（幻想）
 
+*****
+
+####  h122h  
+##### 233#       发表于 2026-8-31 18:14
+
+<img src="https://img.stage1st.com/forum/202608/31/181403e49cv71k3zzxp739.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (144.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-31 18:14 上传
+
