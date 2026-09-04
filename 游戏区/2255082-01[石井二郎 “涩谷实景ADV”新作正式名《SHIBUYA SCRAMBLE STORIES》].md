@@ -600,3 +600,26 @@ SIBLLA（シブラ）：隈本裕美（《428》中饰演玩偶吉祥物“小�
 
 看了微博总结感觉戏份争议更像是借口，问题还是在于钱谈不拢
 
+*****
+
+####  Piano-Forest  
+##### 42#         楼主| 发表于 2026-9-1 20:19
+
+实机演示：[https://youtu.be/9QLnPW3AStM](https://youtu.be/9QLnPW3AStM)
+
+
+*****
+
+####  宛若青空  
+##### 43#       发表于 2026-9-1 21:30
+
+就是这个味啊！希望能顺利出来
+
+
+*****
+
+####  Beavis  
+##### 44#       发表于 2026-9-1 23:56
+
+实机看着岁月不饶人…虽然我也是大叔了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
