@@ -2591,3 +2591,11 @@ ffe6e28a9991709efbc41ba94c182e7c_720.jpg
 
 血条ui太搞笑了，像是每个人头上都顶着个盘子
 
+*****
+
+####  Piano-Forest  
+##### 274#         楼主| 发表于 2026-9-4 20:23
+
+【《STRANGER THAN HEAVEN》执行总监横山昌义访谈【夏日游戏节2026】】 
+[https://b23.tv/clY2pbZ](https://b23.tv/clY2pbZ)
+
