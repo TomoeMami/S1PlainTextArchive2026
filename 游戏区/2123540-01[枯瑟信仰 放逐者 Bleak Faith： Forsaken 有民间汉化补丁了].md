@@ -3625,3 +3625,14 @@ peck没有印象了，好像不集成的。
 这游戏真是太谜语人了，看英文我真是完全不懂他们在说啥</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">相信我看中文你也不知道他们在说什么，不讲人话的。
 
+*****
+
+####  白河响剑  
+##### 288#       发表于 2026-9-4 17:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">英语技能0 前年吃了安利摁着头皮打完了
+
+爽是真的爽 奇观看美了
+
+没想到今年还能出个汉化的 二周目在跑一次
+
