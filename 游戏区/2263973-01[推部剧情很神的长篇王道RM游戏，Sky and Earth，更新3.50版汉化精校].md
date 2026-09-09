@@ -3316,3 +3316,38 @@ https://skyandearth.wiki.fc2.com/m/
 
 普通难度打完了，战斗是真的无聊，但也是真的好玩，顶着瞌睡把通关后出的那些个迷宫和boss揍了一遍，看到了后日谈，值了
 
+*****
+
+####  rougecoelacanth  
+##### 283#       发表于 2026-9-7 00:16
+
+ 本帖最后由 rougecoelacanth 于 2026-9-7 00:20 编辑 
+
+周末vibe coding了一下，花了十几块钱搞出来个对话回溯（对话中按↑，地图上按tab）和名字变彩，AI比游戏好玩啊
+
+还有个按下f键两倍速走路和不遇明雷的，也蛮实用
+
+<img src="https://img.stage1st.com/forum/202609/07/000944t0su7vuds1r7bj0b.jpg" referrerpolicy="no-referrer">
+
+<strong>114079.jpg</strong> (326.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 00:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/07/001531l3bes803fqwxqbq6.jpg" referrerpolicy="no-referrer">
+
+<strong>114083.jpg</strong> (553.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 00:15 上传
+
+<img src="https://img.stage1st.com/forum/202609/07/001958ltk5lq4qcmbiirbi.jpg" referrerpolicy="no-referrer">
+
+<strong>114085.jpg</strong> (736.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 00:19 上传
+
