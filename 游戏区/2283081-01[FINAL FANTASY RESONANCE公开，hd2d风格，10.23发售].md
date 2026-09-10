@@ -991,3 +991,1252 @@ PV2：[https://youtu.be/IFqpz8GHmKk](https://youtu.be/IFqpz8GHmKk)
 
 原来豪华版那个钥匙是陆行鸟换装，那那个秘籍是提前获得还是说付费独占？
 
+*****
+
+####  白夜凛音  
+##### 100#       发表于 2026-9-3 23:18
+
+PC的抢先体验也上了
+
+
+*****
+
+####  猪突猛进R  
+##### 101#       发表于 2026-9-3 23:22
+
+好玩吗？
+
+*****
+
+####  horacio  
+##### 102#       发表于 2026-9-3 23:23
+
+se以后还是专注2d回合制吧，开头对砍燃爆了。我以前玩过手游，全是我抽的卡还挺怀念的
+
+
+*****
+
+####  ff2077  
+##### 103#       发表于 2026-9-3 23:30
+
+浅野组能不能看看人家hd2d演出咋做，虽然这也归浅野管，但这个演出差距<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  horacio  
+##### 104#       发表于 2026-9-3 23:31
+
+看到土之神殿，死去的记忆复活了，之前用模拟器挂自动战斗土之神殿刷信赖
+
+
+*****
+
+####  Soyo  
+##### 105#       发表于 2026-9-3 23:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个演出也太劲了，感觉拿别的hd2d游戏和这个并称hd2d是不是有点侮辱这游戏了
+
+
+*****
+
+####  猫将军  
+##### 106#       发表于 2026-9-4 00:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">这才是ff，正统续作也不为过
+
+*****
+
+####  白夜凛音  
+##### 107#       发表于 2026-9-4 00:19
+
+开篇的演出有点爽，不知道后面能不能保持
+
+
+*****
+
+####  大喇叭花田  
+##### 108#       发表于 2026-9-4 00:21
+
+这个买PC还是NS2版好？
+
+*****
+
+####  跑调跑掉  
+##### 109#       发表于 2026-9-4 00:23
+
+只能说单看开篇，可能这游戏比八方更适合卖一方50的价格<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。当然现在SE明显对于国区怎么定价已经比较了解了，以后都定不出那种高价了
+
+
+*****
+
+####  linyc0010  
+##### 110#       发表于 2026-9-4 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198870&amp;ptid=2283081" target="_blank">大喇叭花田 发表于 2026-9-4 00:21</a>
+
+这个买PC还是NS2版好？</blockquote>
+单纯从价格上来说，肯定PC好<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蓝色暴鲤龙  
+##### 111#       发表于 2026-9-4 00:37
+
+玩了十几分钟，大作感太强了。。。甚至让我有买实体豪华版的冲动。。。超预期
+
+*****
+
+####  Flechette  
+##### 112#       发表于 2026-9-4 00:39
+
+demo差不多半个小时处的进度，有一种极其强烈的手游教程到了抽卡阶段的既视感<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  horacio  
+##### 113#       发表于 2026-9-4 00:43
+
+和手游一样会有很多地图上没标记的隐藏道路…
+
+
+*****
+
+####  黑暗之眼  
+##### 114#       发表于 2026-9-4 01:14
+
+这不比那破FF7第三部强十倍？
+
+
+*****
+
+####  horacio  
+##### 115#       发表于 2026-9-4 01:23
+
+收到光战了，除了战斗系统之外都非常满意，主要还是手游几个人连个100多chain最后一人收刀爽快多更高，一看那么多幻兵，还不共享等级，肯定要刷各种被动技能的
+
+
+*****
+
+####  PigMourne  
+##### 116#       发表于 2026-9-4 01:31
+
+看demo有点超过预期啊，八方like的理想形态了
+
+*****
+
+####  跑调跑掉  
+##### 117#       发表于 2026-9-4 01:32
+
+战斗系统确实有点简单了，包括看的演示里也是，感觉没什么东西。可玩性上可能跟不上八方2，纯靠画面演出取胜了
+
+
+*****
+
+####  kerbad  
+##### 118#       发表于 2026-9-4 01:36
+
+虽然系统土疯了但是数值设计比八方好多了，八方那除了隐藏boss外全程瞌睡的战斗我真不想再玩一次<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。剩下的问题就是boss战能不能做好机制设计提高一下战斗体验的上限
+
+
+*****
+
+####  格林卡罗尔  
+##### 119#       发表于 2026-9-4 01:42
+
+我们玩的真的是同一个游戏吗，这剧情好土啊
+
+
+*****
+
+####  白夜凛音  
+##### 120#       发表于 2026-9-4 02:31
+
+他这个幻兵学技能装备技能的机制有点像LC。
+
+
+*****
+
+####  horacio  
+##### 121#       发表于 2026-9-4 07:48
+
+剧情就是很王道的那种，到处找召唤兽拯救世界。里面有各代ff的融合剧情，像开头的ff6，后面还有ff8电波塔被机器人追
+
+
+*****
+
+####  黑暗之眼  
+##### 122#       发表于 2026-9-4 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199102&amp;ptid=2283081" target="_blank">格林卡罗尔 发表于 2026-9-4 01:42</a>
+我们玩的真的是同一个游戏吗，这剧情好土啊</blockquote>
+土什么土，这叫王道剧情，比花里胡哨不知所云的好太多了
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  z692689995  
+##### 123#       发表于 2026-9-4 08:38
+
+还能打萨菲罗斯就有点怪了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  12481632  
+##### 124#       发表于 2026-9-4 08:43
+
+只能说第一部剧情确实挺平的，稍微有些转折的也就老爹和魔人菲娜的部分，看看后面整部的演出能不能保持现在的水准吧。
+
+希望卖得好的话还能有第二部。
+
+
+*****
+
+####  eilot  
+##### 125#       发表于 2026-9-4 08:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199583&amp;ptid=2283081" target="_blank">z692689995 发表于 2026-9-4 08:38</a>
+
+还能打萨菲罗斯就有点怪了</blockquote>
+當成FF系列BOSS之一吧
+
+不過用來解鎖每個FF系列的BOSS中不是他，而是セーファ・セフィロス(都是他吧...)
+
+不過看到有12武具，應該也有FF系列BOSS和降臨之關(都是不能續關的BOSS來)
+
+12武具一開始非常無恥，因為有多條血線，輕鬆打到血線後就鎖血再用必定全滅的全體攻擊...所以沒抽到有全體坦的角色基本上是不能打，之後愈來愈多角色都有全體物理坦或魔法坦，那就輕鬆些少，
+
+
+*****
+
+####  docklabor  
+##### 126#       发表于 2026-9-4 12:36
+
+屎爱真是个司马公司，2026年了还在锁语言我想不到还有谁了，港区只有中韩文可选，语音却是日加英
+
+
+*****
+
+####  mad55555  
+##### 127#       发表于 2026-9-4 13:13
+
+原来广野启去年就退出SE了，难怪FFBE会交给浅野组
+
+
+*****
+
+####  ziyer  
+##### 128#       发表于 2026-9-4 13:51
+
+这游戏的流程设计感觉还挺讲究的，demo部分玩起来特别流程，没感觉有什么垃圾时间。虽然是暗雷，但是给的经验挺大方的，加上幻兵也有养成，就一直处在遇到怪物就能捡一波提升的快乐之中。可以预见后面能用的角色和幻兵多起来后应该会蛮好玩的。剧情土是土了点但是也胜在没什么垃圾时间，背景和事件交待的非常快，很容易进入心流<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">战斗内还支持跳过动画和倍速，各方面流畅度都拉满了
+
+
+*****
+
+####  u2deack  
+##### 129#       发表于 2026-9-4 14:58
+
+日服又不给中文，se是真的傻逼
+
+
+*****
+
+####  horacio  
+##### 130#       发表于 2026-9-4 15:22
+
+打个塞壬把我的以太吃光了才打过，还是等正式版好了，懒得练级了。相比从ff13开始的抛出个新名词，然后花大笔时间来描述这东西，还是简单明了的剧情愿意看一下
+
+
+*****
+
+####  Squall25  
+##### 131#       发表于 2026-9-4 15:29
+
+感觉战斗和探索做的很微妙，其它的还能接受，因为我很吃这套2d FF所以还是美美开冲<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  行政裁定书  
+##### 132#       发表于 2026-9-4 15:56
+
+这个是原来的ffbe再利用吗？
+
+剧情和ffbe一模一样吗？
+
+后面几季剧情挺那啥的
+
+
+*****
+
+####  我王  
+##### 133#       发表于 2026-9-4 17:18
+
+<img src="https://img.stage1st.com/forum/202609/04/171542atavy1yye11c4p44.jpg" referrerpolicy="no-referrer">
+
+<strong>1a06bb2abbe6-screenshotUrl.jpg</strong> (445.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 17:15 上传
+
+对咯，就是这个味
+
+
+*****
+
+####  FBC档案部专员  
+##### 134#       发表于 2026-9-4 17:24
+
+这么朴素又纯粹的剧情很久没在FF上见过了
+
+
+*****
+
+####  thez  
+##### 135#       发表于 2026-9-4 17:31
+
+八分旅人3能不能有这种质量的过场和大招演出啊
+
+
+*****
+
+####  suzakushi  
+##### 136#       发表于 2026-9-4 20:40
+
+开场竟然是段挂了像素滤镜的3DCG，好奇妙的感觉。确实解决了像素游戏做大场面的问题，挺有趣的思路。
+
+
+*****
+
+####  thez  
+##### 137#       发表于 2026-9-4 21:37
+
+玩NS2完全没震动，PS5也没有吗
+
+
+*****
+
+####  空洞骑士  
+##### 138#       发表于 2026-9-4 22:01
+
+好经典的FF味，最近正好刚打完FF2像素复刻。上来小怪就是变异鼠真亲切。话说这个大招演出真的好FGO啊，虽然理论上讲FGO应该也是学的别的游戏的演出，但是纸片人这一点真的太有既视感了。话说这个游戏的手游原来有过国服吗，那岂不是很多人都玩过了一点惊喜都没有了。
+
+
+*****
+
+####  suzakushi  
+##### 139#       发表于 2026-9-4 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203895&amp;ptid=2283081" target="_blank">thez 发表于 2026-9-4 21:37</a>
+
+玩NS2完全没震动，PS5也没有吗</blockquote>
+PS5也没有，感觉这游戏可能压根没有震动功能。
+
+
+*****
+
+####  wwmmddqqbbpp  
+##### 140#       发表于 2026-9-4 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204050&amp;ptid=2283081" target="_blank">空洞骑士 发表于 2026-9-4 22:01</a>
+好经典的FF味，最近正好刚打完FF2像素复刻。上来小怪就是变异鼠真亲切。话说这个大招演出真的好FGO啊，虽然 ...</blockquote>
+这游戏只能算素材复用，剧情有改动，系统也是新的
+
+
+*****
+
+####  我王  
+##### 141#       发表于 2026-9-4 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204050&amp;ptid=2283081" target="_blank">空洞骑士 发表于 2026-9-4 22:01</a>
+好经典的FF味，最近正好刚打完FF2像素复刻。上来小怪就是变异鼠真亲切。话说这个大招演出真的好FGO啊，虽然 ...</blockquote>
+和fgo没啥关系，但fgo那堆宝具动画不少机战梗
+
+*****
+
+####  requiem116  
+##### 142#       发表于 2026-9-4 22:31
+
+感觉一股老肥肥味但是这就是我想要的
+
+我甚至怀疑会比ff7第三部好玩<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不过我看前几个幻兵只有tina有伤害突破，那岂不是输出手都必须练攻击型才行了
+
+
+*****
+
+####  为了mf注册  
+##### 143#       发表于 2026-9-4 22:42
+
+加上ff7，最后信se两次
+
+
+*****
+
+####  chris1987  
+##### 144#       发表于 2026-9-4 22:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">领养的基友，失忆的神秘少女，毁灭一切的boss,好经典的jrp 设定
+
+
+*****
+
+####  horacio  
+##### 145#       发表于 2026-9-4 23:14
+
+还有个牛逼的爹呢<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  会长辅佐  
+##### 146#       发表于 2026-9-5 00:25
+
+ 本帖最后由 会长辅佐 于 2026-9-5 00:27 编辑 
+
+大概是我见过最厉害的HD-2D游戏了，剧情不好说但是演出和特效确实拉满了，人设也非常不错。
+
+*****
+
+####  会长辅佐  
+##### 147#       发表于 2026-9-5 00:26
+
+HD-2D能搞出来这种演出确实很有启发意义了
+
+
+*****
+
+####  持盾战士  
+##### 148#       发表于 2026-9-5 00:33
+
+演出非常棒啊。各种运镜和CG插入，感觉是HD2D高规格作品的新方向。
+
+
+*****
+
+####  hikari0805  
+##### 149#       发表于 2026-9-5 00:37
+
+噢草这个演出好屌
+
+
+*****
+
+####  nancygreenlife  
+##### 150#       发表于 2026-9-5 11:29
+
+玩了下demo这演出不是八方能比的，但是我对以往的FF系列完全没兴趣，能看懂这游戏的故事吗？
+
+
+*****
+
+####  u2deack  
+##### 151#       发表于 2026-9-5 11:48
+
+是ns2没震动还是都没震动啊
+
+
+*****
+
+####  christiny  
+##### 152#       发表于 2026-9-5 11:54
+
+有等级压制，有点不爽。而且，角色等级的权重还很高……遇到超过等级的强敌，完全没法打。
+
+基本上是个偏刷的游戏，系统核心点就是搭配被动，每个人装备不同幻灵，被动都要重新学……
+
+好在战斗速度快，系统也简洁。
+
+*****
+
+####  蓝色暴鲤龙  
+##### 153#       发表于 2026-9-5 11:54
+
+发现抖音和b站播这个试玩的挺多
+
+*****
+
+####  ShiKi847  
+##### 154#       发表于 2026-9-5 11:56
+
+漏油提到的那个广野启之前还是执行董事，算是FFBE停服的原因离职的吗？
+
+
+*****
+
+####  caicaicai  
+##### 155#       发表于 2026-9-5 12:57
+
+好玩，se用这个把ff6重制下可以安心去了。
+
+*****
+
+####  thez  
+##### 156#       发表于 2026-9-5 13:00
+
+塞壬塔里那个要以太的黄瓮打完啥都没有的？另外我打到现在敌人身上的道具一个都没掉落，这是为啥？
+
+
+*****
+
+####  kirito_wst  
+##### 157#       发表于 2026-9-5 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206075&amp;ptid=2283081" target="_blank">thez 发表于 2026-9-5 13:00</a>
+
+塞壬塔里那个要以太的黄瓮打完啥都没有的？另外我打到现在敌人身上的道具一个都没掉落，这是为啥？ ...</blockquote>
+扔以太给它之后就走了，判定胜利，然后给大量背后灵经验
+
+基本上都是掉落消耗品吧，目前看到带装备的好像就港口右边沙漠里面的奇美拉，但是需要偷，不会掉落（目前没偷窃技能
+
+顺便问一下大家，石板碎片第一章是不是只有12块，是的话就不玩等正式版了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  12481632  
+##### 158#       发表于 2026-9-5 13:37
+
+15级盗贼boss打完等正式版，沙漠中间那个召唤兽现在也还拿不了吧，另外吉尔伽美什应该也是固定剧情打不死
+
+
+*****
+
+####  kirito_wst  
+##### 159#       发表于 2026-9-5 13:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">沙漠中间挡路的蚁狮也可以打，20级
+
+
+*****
+
+####  ルティナ  
+##### 160#       发表于 2026-9-5 14:34
+
+呃啊 各方面都还不错 就是这UI和UI的声音可以改改吗 好土啊
+
+
+*****
+
+####  谢皮利男爵  
+##### 161#       发表于 2026-9-5 17:53
+
+打了3个半小时了还没打完 有多长啊这试玩
+
+
+*****
+
+####  diectt  
+##### 162#       发表于 2026-9-5 18:18
+
+作为之前的手游玩家看到能以这种形式复活，各方面都挺满意的，就是这个暗雷后面不想打怪时肯定会嫌烦，还有如果真想随意搭配技能的话，这个幻兵熟练度刷起来感觉很恐怖<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thez  
+##### 163#       发表于 2026-9-5 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206985&amp;ptid=2283081" target="_blank">谢皮利男爵 发表于 2026-9-5 17:53</a>
+
+打了3个半小时了还没打完 有多长啊这试玩</blockquote>
+我打了5个多小时打完塞壬一看等级快到15级了就停了，估计也快打完第一章了。
+
+
+*****
+
+####  thez  
+##### 164#       发表于 2026-9-5 18:24
+
+这游戏我现在最大不满是女主大饼脸好丑
+
+
+*****
+
+####  YukariK  
+##### 165#       发表于 2026-9-5 18:28
+
+把3个角色目前的所有幻兵等级都升到5了，很满意，豪华版走起。
+
+*****
+
+####  白昼梦DD  
+##### 166#       发表于 2026-9-5 18:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">demo开场也太弱智了 装逼和谜语人都尬穿了
+
+*****
+
+####  猫不萌  
+##### 167#       发表于 2026-9-5 18:33
+
+玩起来画面表现不错，战斗系统都很好上手，准备预定个实体版
+
+
+*****
+
+####  YukariK  
+##### 168#       发表于 2026-9-5 19:26
+
+豪华版里的魔导装甲之钥是陆行鸟皮肤，精通指环大概是蚊子腿提升mrp获取的饰品，魔人秘籍是啥<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  TheOccuria  
+##### 169#       发表于 2026-9-5 19:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩了开头太典了，扔愿望单打折再说
+
+
+*****
+
+####  kirito_wst  
+##### 170#       发表于 2026-9-5 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207329&amp;ptid=2283081" target="_blank">YukariK 发表于 2026-9-5 19:26</a>
+
+豪华版里的魔导装甲之钥是陆行鸟皮肤，精通指环大概是蚊子腿提升mrp获取的饰品，魔人秘籍是啥 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉是让女主多学一个大招
+
+
+*****
+
+####  YukariK  
+##### 171#       发表于 2026-9-5 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207381&amp;ptid=2283081" target="_blank">kirito_wst 发表于 2026-9-5 19:40</a>
+感觉是让女主多学一个大招</blockquote>
+那感觉有点一般了，看看后续有没有相关宣发吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  白昼梦DD  
+##### 172#       发表于 2026-9-5 21:02
+
+技能播片cg直接拿来用感觉很奇怪啊，为了手机上用 构图都是角色拉大拉满塞满屏幕，放到单机上光是蒂娜的就感觉很别扭
+
+*****
+
+####  noonehere  
+##### 173#       发表于 2026-9-5 21:07
+
+港口三个感叹号有什么说法吗，有一个提到一个boss我打了但是对话没有变，有一个提到了沙漠里的石头，甚至都在地图标出来了但是调查以后和以前一样没反应
+
+
+*****
+
+####  u2deack  
+##### 174#       发表于 2026-9-5 21:14
+
+玩了一会感觉还行不过也不想接着玩了，正式版应该会玩吧就是不知道什么时候了，这两个月游戏是排满了
+
+
+*****
+
+####  kirito_wst  
+##### 175#       发表于 2026-9-5 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207728&amp;ptid=2283081" target="_blank">noonehere 发表于 2026-9-5 21:07</a>
+
+港口三个感叹号有什么说法吗，有一个提到一个boss我打了但是对话没有变，有一个提到了沙漠里的石头，甚至都 ...</blockquote>
+感觉应该只是一种信息提示，没有上升到支线任务，所以没有差分或者其他后续
+
+
+*****
+
+####  huyangxinhn  
+##### 176#       发表于 2026-9-6 01:55
+
+音乐超级棒啊。
+
+
+*****
+
+####  noonehere  
+##### 177#       发表于 2026-9-6 02:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207782&amp;ptid=2283081" target="_blank">kirito_wst 发表于 2026-9-5 21:19</a>
+
+感觉应该只是一种信息提示，没有上升到支线任务，所以没有差分或者其他后续 ...</blockquote>
+确实，如果是正儿八经的支线任务的话图标也不一样，昨天看攻略还漏了个蚁狮，在陆行鸟那个村子出来左下角有个圆形坑，下陆行鸟据说能遇到
+
+
+*****
+
+####  christiny  
+##### 178#       发表于 2026-9-6 03:25
+
+沙漠还有两种特殊怪
+
+三头奇美拉
+
+经典怪物 仙人掌
+
+
+*****
+
+####  godless2020  
+##### 179#       发表于 2026-9-6 08:30
+
+人物职业和幻兵职业有什么隐藏加成吗，比如男主是防御者配了光战，两者都是防御属性，是不是比其他人跟适合？还是说随意配
+
+
+*****
+
+####  finalstar099  
+##### 180#       发表于 2026-9-6 09:23
+
+周末把ns1、ns2、ps5三个版本都玩了一遍，最后居然在ns1上沉浸了。
+
+画面稳定30fps、也没有动作操作需求，重量轻巧随拿随玩，还是很舒服的。
+
+准备买个ns卡带玩玩。
+
+
+*****
+
+####  diectt  
+##### 181#       发表于 2026-9-6 09:46
+
+对了，那个有立绘的王国骑士夏洛特老是一副欲言又止的样子，加上幻兵界面里有个小人和她是一样的，感觉这妹子后面大概率要凉<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kirito_wst  
+##### 182#       发表于 2026-9-6 10:02
+
+换pc了，开始整活<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+偷看了一下源氏护手，的确牛批，还和云片的某些特性有配合
+利用石板碎片奖励给的一套魔石觉醒满背后灵的部分招式动画也藏了，比如蒂娜的究极和核融魔法只能看到跳伤害数字
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  huyangxinhn  
+##### 183#       发表于 2026-9-6 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209059&amp;ptid=2283081" target="_blank">godless2020 发表于 2026-9-6 08:30</a>
+
+人物职业和幻兵职业有什么隐藏加成吗，比如男主是防御者配了光战，两者都是防御属性，是不是比其他人跟适合 ...</blockquote>
+目前来看随意配，幻兵的等级是随角色的，幻兵换个角色，等级会回到一级，也就是角色带幻兵，升级后解锁的是技能，类似于八方旅人的职业系统。理论上，一个角色可以带所有幻兵，升级获得全部技能，然后选择最合适的，装在下面的技能槽里。中后期刷刷刷的要素还是很足的。
+
+
+*****
+
+####  黑暗之眼  
+##### 184#       发表于 2026-9-6 10:11
+
+ 本帖最后由 黑暗之眼 于 2026-9-6 10:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209379&amp;ptid=2283081" target="_blank">huyangxinhn 发表于 2026-9-6 10:03</a>
+目前来看随意配，幻兵的等级是随角色的，幻兵换个角色，等级会回到一级，也就是角色带幻兵，升级后解锁的 ...</blockquote>
+会不会因人而异有部分幻兵不能装或者部分技能无法学全呢
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  kirito_wst  
+##### 185#       发表于 2026-9-6 10:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就算学完了，ap和技能槽也是有限的。
+
+不过属性提升是实打实的，要不是锁5级精通，不然我就准备十里坡剑神了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  christiny  
+##### 186#       发表于 2026-9-6 11:00
+
+ 本帖最后由 christiny 于 2026-9-6 11:01 编辑 
+
+多利用破防回血回蓝，道中战MP基本不用补充。  如果有人带个奶妈，几乎每场战斗都可以发动一次大招回血。
+
+这一套下来，续航刚刚的。
+
+被动数量最高8个……略少<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YukariK  
+##### 187#       发表于 2026-9-6 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207381&amp;ptid=2283081" target="_blank">kirito_wst 发表于 2026-9-5 19:40</a>
+
+感觉是让女主多学一个大招</blockquote>
+找到相关宣传了，说是能让队友学会一个极限技，看起来不只限定女主。
+
+
+*****
+
+####  mamayata  
+##### 188#       发表于 2026-9-6 13:43
+
+有没有**来回复一下 豪华版和预购特典有哪些东西 值不值得首发入 看了杉果便宜10%
+
+
+*****
+
+####  隔壁老黄  
+##### 189#       发表于 2026-9-6 13:49
+
+我靠，玩了一下，这就是我的梦中情游啊！我靠！
+
+
+*****
+
+####  kirito_wst  
+##### 190#       发表于 2026-9-6 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210276&amp;ptid=2283081" target="_blank">mamayata 发表于 2026-9-6 13:43</a>
+
+有没有**来回复一下 豪华版和预购特典有哪些东西 值不值得首发入 看了杉果便宜10% ...</blockquote>
+豪华版：一个陆行鸟的皮肤、一个极限技“地狱陨石”的书、一个幻兵经验加成的首饰、消耗道具包
+
+预约特典：一把男主初期的剑，看了下基本上出了新手地图就可以淘汰那种、一个飞空艇皮肤、一个经验加成的铠甲、消耗道具包
+
+早期购买特典：一个金钱加成的铠甲、一瓶全员mp药
+
+
+*****
+
+####  桐道悠  
+##### 191#       发表于 2026-9-6 14:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">太对味了，发售后必玩
+
+
+*****
+
+####  白夜凛音  
+##### 192#       发表于 2026-9-6 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208677&amp;ptid=2283081" target="_blank">huyangxinhn 发表于 2026-9-6 01:55</a>
+
+音乐超级棒啊。</blockquote>
+音乐大多沿用的手游版的，手游版里的音乐质量本来就不错，你回头可以看看手游版的陆行鸟之歌，相当的有味。
+
+
+*****
+
+####  白夜凛音  
+##### 193#       发表于 2026-9-6 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209379&amp;ptid=2283081" target="_blank">huyangxinhn 发表于 2026-9-6 10:03</a>
+
+目前来看随意配，幻兵的等级是随角色的，幻兵换个角色，等级会回到一级，也就是角色带幻兵，升级后解锁的 ...</blockquote>
+这个系统更接近最后的克劳迪娅的技能系统，主要还是刷刷刷。
+
+*****
+
+####  白夜凛音  
+##### 194#       发表于 2026-9-6 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209304&amp;ptid=2283081" target="_blank">diectt 发表于 2026-9-6 09:46</a>
+
+对了，那个有立绘的王国骑士夏洛特老是一副欲言又止的样子，加上幻兵界面里有个小人和她是一样的，感觉这妹 ...</blockquote>
+印象里是没事，因为后面几部也有她的戏份，那个幻兵小人是她后来的纪念版本
+
+<img src="https://img.stage1st.com/forum/202609/06/151736b00qzjlzqmccdv6f.jpg" referrerpolicy="no-referrer">
+
+<strong>91bca04e9258d1096403eaf3c658ccbf6e814dfc.jpg</strong> (169.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 15:17 上传
+
+
+*****
+
+####  mamayata  
+##### 195#       发表于 2026-9-6 15:44
+
+<blockquote>kirito_wst 发表于 2026-9-6 13:59
+豪华版：一个陆行鸟的皮肤、一个极限技“地狱陨石”的书、一个幻兵经验加成的首饰、消耗道具包
+
+预约特典 ...</blockquote>
+感谢 看来普通版就行了
+
+
+*****
+
+####  h122h  
+##### 196#       发表于 2026-9-6 16:04
+
+se这次还是switch版不能升级switch2版。搞不懂se自家有的游戏可以有的游戏不行，自己社内不能统一下么……
+
+
+*****
+
+####  stair楼梯  
+##### 197#       发表于 2026-9-6 16:17
+
+冲着封面女主的插画来的玩起来还不错，老ff味儿加点新时代ff的东西，就是感觉女主黑转白后配音有点夹……搜了下原来魔人是水濑祈失忆后是藤田茜，同个人双cv还挺神秘（没玩过手游版，请勿剧透……
+
+
+*****
+
+####  diectt  
+##### 198#       发表于 2026-9-6 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210569&amp;ptid=2283081" target="_blank">白夜凛音 发表于 2026-9-6 15:17</a>
+
+印象里是没事，因为后面几部也有她的戏份，那个幻兵小人是她后来的纪念版本
+
+ ...</blockquote>
+对对，看到你这图我也想起来了，后面有剧情的，应该是没事
+
+
+*****
+
+####  xiaohao123  
+##### 199#       发表于 2026-9-6 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209212&amp;ptid=2283081" target="_blank">finalstar099 发表于 2026-9-6 09:23</a>
+
+周末把ns1、ns2、ps5三个版本都玩了一遍，最后居然在ns1上沉浸了。
+
+画面稳定30fps、也没有动作操作需求， ...</blockquote>
+NS掌机只有500多P
+
+顺带一提这次和八方0一样也是虚幻5
+
+
+*****
+
+####  宛若青空  
+##### 200#       发表于 2026-9-6 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209212&amp;ptid=2283081" target="_blank">finalstar099 发表于 2026-9-6 09:23</a>
+周末把ns1、ns2、ps5三个版本都玩了一遍，最后居然在ns1上沉浸了。
+
+画面稳定30fps、也没有动作操作需求， ...</blockquote>
+请教下三个版本的画面帧数感觉怎么样呀，纠结买哪个版本<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  elven119  
+##### 201#       发表于 2026-9-6 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210923&amp;ptid=2283081" target="_blank">宛若青空 发表于 2026-9-6 17:06</a>
+
+请教下三个版本的画面帧数感觉怎么样呀，纠结买哪个版本</blockquote>
+我自己试玩NS2和PC没区别
+
+
+*****
+
+####  宛若青空  
+##### 202#       发表于 2026-9-6 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211129&amp;ptid=2283081" target="_blank">elven119 发表于 2026-9-6 17:59</a>
+我自己试玩NS2和PC没区别</blockquote>
+谢谢<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">那就NS2版了！
+
+
+*****
+
+####  tonberry  
+##### 203#       发表于 2026-9-6 18:48
+
+这游戏第一章好棒，味好正啊，仿佛来到的jrpg的黄金时代<img src="https://static.stage1st.com/image/smiley/face/134.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  12481632  
+##### 204#       发表于 2026-9-6 19:12
+
+不知道后面主角团还有哪几个是会正式入队可操控的，手游的时候什么人都能抽到反而没这个问题
+
+
+*****
+
+####  finalstar099  
+##### 205#       发表于 2026-9-6 20:04
+
+<blockquote>[宛若青空](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210923&amp;ptid=2283081) 发表于 09-06 17:06
+请教下三个版本的画面帧数感觉怎么样呀，纠结买哪个版本</blockquote>
+
+综合各方面，我建议买ns2版，电视端素质和ps5没区别，手持端也好看。
+
+唯一缺点没有一代ns便携。
+
+——来自 BRA-AL00 上的 [S1er 客户端](https://s1er.pages.dev)
+
+
+*****
+
+####  宛若青空  
+##### 206#       发表于 2026-9-6 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211629&amp;ptid=2283081" target="_blank">finalstar099 发表于 2026-9-6 20:04</a>
+综合各方面，我建议买ns2版，电视端素质和ps5没区别，手持端也好看。
+
+唯一缺点没有一代ns便携。</blockquote>
+谢谢建议，决定买NS2版了！可惜傻逼SE没NS1免费升级NS2<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  アーリィ  
+##### 207#       发表于 2026-9-6 20:14
+
+巨人boss过了只给个魔石碎片，再去试试奇美拉
+
+
+*****
+
+####  alfredno2  
+##### 208#       发表于 2026-9-6 22:31
+
+下午刚玩 开场剧情纯粹是幻水2啊 NS NS2 PS5版都试了一下，绝定买ns2版了 不过352重制和火纹新作发售，感觉没啥时间玩啊
+
+
+*****
+
+####  chris1987  
+##### 209#       发表于 2026-9-6 22:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">六小时了，第一章还没过，刚打完塞壬，这王道剧情还是对我这种老年人胃口，激情预订了先
+
+
+*****
+
+####  christiny  
+##### 210#       发表于 2026-9-7 01:23
+
+ 本帖最后由 christiny 于 2026-9-7 01:25 编辑 
+
+强敌奖励有点抠搜.....
+
+流沙的蚁狮，啥都没有，就2400g。
+
+巨人就一个觉醒碎片。
+
+一些敌人的招式类型也有点迷，完全看不出来是物理还是魔法。只有靠反击来判断😂
+
+塞壬一次50蓝，只有三回合，不是弱点属性的话，性价比有点低。
+
+魔力增幅那个技能很好很强大，1.5倍消耗换来2倍伤害，关键是本回合就能直接出手，还能配合蒂娜30%魔攻。
+
+另一个强化下一次打条的技能就很废了，会消耗一回合。
+
+莱恩的火焰剑技能，物理伤害很高。有些脆皮敌人直接一刀就死，都用不着破防。
+
+
+*****
+
+####  laputah  
+##### 211#       发表于 2026-9-7 07:06
+
+友方角色都能放大招的不让操作有点怪
+
+
+*****
+
+####  elven119  
+##### 212#       发表于 2026-9-7 07:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211446&amp;ptid=2283081" target="_blank">12481632 发表于 2026-9-6 19:12</a>
+
+不知道后面主角团还有哪几个是会正式入队可操控的，手游的时候什么人都能抽到反而没这个问题 ...</blockquote>
+官网有，还有4个可操控角色，2男2女
+
+
+*****
+
+####  アーリィ  
+##### 213#       发表于 2026-9-7 09:16
+
+<blockquote>christiny 发表于 2026-9-7 01:23
+强敌奖励有点抠搜.....
+
+流沙的蚁狮，啥都没有，就2400g。
+
+巨人就一个觉醒碎片。
+</blockquote>
+试了下菲娜的lb都能增幅
+
+
+*****
+
+####  hiiroimatsu  
+##### 214#       发表于 2026-9-7 10:27
+
+奔跑正式版不知道能不能改善一下或者常驻，感觉响应总是慢半拍很别扭<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  跑调跑掉  
+##### 215#       发表于 2026-9-7 10:30
+
+<blockquote>hiiroimatsu 发表于 2026-9-7 10:27
+奔跑正式版不知道能不能改善一下或者常驻，感觉响应总是慢半拍很别扭</blockquote>
+没太懂你的意思，不过如果是想要常驻的话，可以在设置里改成切换模式，也就是按一下就从走路切换为跑步，不用一直按着
+
+*****
+
+####  黑暗之眼  
+##### 216#       发表于 2026-9-7 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214554&amp;ptid=2283081" target="_blank">hiiroimatsu 发表于 2026-9-7 10:27</a>
+
+奔跑正式版不知道能不能改善一下或者常驻，感觉响应总是慢半拍很别扭</blockquote>
+设置调成“切换”，按一下就切换成跑步了，不需要一直按
+
+
+*****
+
+####  子夜的黑暗  
+##### 217#       发表于 2026-9-7 10:49
+
+立绘居然不是live2d，有点意外
+
+—— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  宛若青空  
+##### 218#       发表于 2026-9-7 11:32
+
+不过游戏设置里都没震动开关不知道是不是正式版也真的没手柄震动功能了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thez  
+##### 219#       发表于 2026-9-7 11:44
+
+去年的勇者斗恶龙HD2D有振动吗？
+
+
+*****
+
+####  monikaca  
+##### 220#       发表于 2026-9-7 12:09
+
+这序章体验还真不错....
+
+
+*****
+
+####  hiiroimatsu  
+##### 221#       发表于 2026-9-7 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214571&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-9-7 10:31</a>
+
+设置调成“切换”，按一下就切换成跑步了，不需要一直按</blockquote>
+原来是我没发现，明白了！
+
+*****
+
+####  医生狼多  
+##### 92#         楼主| 发表于 2026-9-3 21:24
+
+今天有 demo<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wilkyway  
+##### 93#       发表于 2026-9-3 21:36
+
+他这demo发哪了？ps和ns都搜不到 还是说日本宣发前只有美服有？
+
+*****
+
+####  horacio  
+##### 94#       发表于 2026-9-3 21:39
+
+我也想问demo在哪里呢，还是要等
+
+
+*****
+
+####  h122h  
+##### 95#       发表于 2026-9-3 22:04
+
+<img src="https://img.stage1st.com/forum/202609/03/220406m0bzb0nvwkk0drpn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 22:04 上传
+
+大概日本9月4日0点上线吧
+
+
+*****
+
+####  医生狼多  
+##### 96#         楼主| 发表于 2026-9-3 22:57
+
+ps 港服看到 demo 上了
+
+
+*****
+
+####  h122h  
+##### 97#       发表于 2026-9-3 23:09
+
+demo上了，steam也上了
+
+<img src="https://img.stage1st.com/forum/202609/03/230802w7jkorsz765ijvso.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 23:08 上传
+
+<img src="https://img.stage1st.com/forum/202609/03/230916x00or0p62c00ptn2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 23:09 上传
+
+*****
+
+####  大喇叭花田  
+##### 98#       发表于 2026-9-3 23:15
+
+存档能继承吗
+
+
+*****
+
+####  h122h  
+##### 99#       发表于 2026-9-3 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198447&amp;ptid=2283081" target="_blank">大喇叭花田 发表于 2026-9-3 23:15</a>
+
+存档能继承吗</blockquote>
+可以
+
+<img src="https://img.stage1st.com/forum/202609/03/231703ww52o7fa0ao707ff.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (457.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 23:17 上传
+
