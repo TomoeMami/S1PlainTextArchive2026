@@ -2050,3 +2050,76 @@ j2k又更新了一版，语言问题修复了
 
 用yokai的可以转回j2k了
 
+*****
+
+####  希鲁夫  
+##### 179#       发表于 2026-9-3 19:45
+
+装的yokai，平板是小米平板5pro  装插件的时候一直提示安装中，但也不跳出来安装界面  这是啥奇怪问题？
+
+
+*****
+
+####  LLLLLuB  
+##### 180#       发表于 2026-9-3 20:19
+
+不知为啥我的mihon有105m缓存的限制，超了就加载不了内容，期初我以为是拷贝的限制，直到我最近在刷rawKuma的生肉，才发现不是拷贝源才有的问题
+
+
+*****
+
+####  帝蓝  
+##### 181#       发表于 2026-9-4 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196734&amp;ptid=2254551" target="_blank">希鲁夫 发表于 2026-9-3 19:45</a>
+装的yokai，平板是小米平板5pro  装插件的时候一直提示安装中，但也不跳出来安装界面  这是啥奇怪问题？
+
+更 ...</blockquote>
+同这个问题 但是我的问题只在米板5Pro上存在 在手机K90PM上没问题 怀疑是哪个权限的问题 折腾了很久都没找到解决办法
+目前是装个mihon来更新用
+
+—— 来自 Xiaomi 25102RKBEC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  azbhg1  
+##### 182#         楼主| 发表于 2026-9-4 03:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196734&amp;ptid=2254551" target="_blank">希鲁夫 发表于 2026-9-3 19:45</a>
+装的yokai，平板是小米平板5pro  装插件的时候一直提示安装中，但也不跳出来安装界面  这是啥奇怪问题？
+
+更 ...</blockquote>
+安装方式用shizuku试试，需要你手机里有shizuku
+
+
+*****
+
+####  希鲁夫  
+##### 183#       发表于 2026-9-5 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199075&amp;ptid=2254551" target="_blank">帝蓝 发表于 2026-9-4 01:32</a>
+
+同这个问题 但是我的问题只在米板5Pro上存在 在手机K90PM上没问题 怀疑是哪个权限的问题 折腾了很久都没 ...</blockquote>
+是的，我手机端装插件就没问题。后来我在自带杀毒里把插件全都点忽略了，貌似就好了。总之挺奇怪的问题。
+
+
+*****
+
+####  帝蓝  
+##### 184#       发表于 2026-9-6 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206068&amp;ptid=2254551" target="_blank">希鲁夫 发表于 2026-9-5 12:59</a>
+是的，我手机端装插件就没问题。后来我在自带杀毒里把插件全都点忽略了，貌似就好了。总之挺奇怪的问题。 ...</blockquote>
+我这忽略了还是不行 只能用mihon了
+
+—— 来自 Xiaomi 25102RKBEC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  浅仓透透  
+##### 185#       发表于 2026-9-7 10:35
+
+问个问题，平板上插件总是在过几天以后就失效了需要重新安装大概是什么原因
+
