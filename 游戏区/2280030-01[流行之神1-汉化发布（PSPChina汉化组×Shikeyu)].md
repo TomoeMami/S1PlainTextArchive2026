@@ -711,3 +711,17 @@ ns版有分支树了，所以随便怎么玩都行，不过还是建议一条线
 
 邪恶居然还在做，还完结了，佩服。回忆起来，那时好像序章还是哪章（狐仙？）做了一小部分就搁置了，真是有生之年，太不容易了。
 
+*****
+
+####  黯淡瞳孔  
+##### 69#       发表于 2026-9-7 22:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69830321&amp;ptid=2280030" target="_blank">邪恶的shah 发表于 2026-6-25 20:45</a>
+
+会，但是很久以后了别等了，ns的画面效果最好，游戏内容是都一样的</blockquote>
+弄好了，将此汉化移植到psp版了。
+
+链接: [https://pan.baidu.com/s/1LhEM6fQ5a454zxz1dJDLLA?pwd=2668](https://pan.baidu.com/s/1LhEM6fQ5a454zxz1dJDLLA?pwd=2668)
+
+发现什么bug各位可以告诉我，我继续完善。
+
