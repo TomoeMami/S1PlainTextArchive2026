@@ -796,3 +796,39 @@ VFXスーパーバイザー：加藤道哉
 
 只能说和当年出DN以及超智游戏的疯房子比，现在这个公司只剩个名字了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+*****
+
+####  喜闻乐见  
+##### 69#       发表于 2026-9-16 14:16
+
+当饭点配菜还是合格，横屏短视频爽文
+
+
+*****
+
+####  镜hinata  
+##### 70#       发表于 2026-9-16 15:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">24集就结束？这中坚战也没结果啊
+
+
+*****
+
+####  KDConan  
+##### 71#       发表于 2026-9-16 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70245387&amp;ptid=2258779" target="_blank">镜hinata 发表于 2026-9-16 15:06</a>
+
+24集就结束？这中坚战也没结果啊</blockquote>
+全季26吧<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">这集确实断得讨厌
+
+
+*****
+
+####  嘉术2015  
+##### 72#       发表于 2026-9-16 20:20
+
+这段3v3我直接跳了，放整部漫画的游戏里都感觉算是比较无聊的，可能就是初步展示一下神崎的腹黑属性
+
+下一个感染游戏应该要放到第三季了，真希望能做好一点
+
