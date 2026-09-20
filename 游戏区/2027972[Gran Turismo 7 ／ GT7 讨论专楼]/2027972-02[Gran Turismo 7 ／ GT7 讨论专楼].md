@@ -830,3 +830,12 @@ u9多少钱？懒得开PS5看（</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">MOZA新品宣布TGS要发了，就看是按套装卖还是纯基座可以自己搭配
 
+*****
+
+####  Fuero  
+##### 2045#       发表于 2026-9-17 21:11
+
+Beyond the Apex 出官方中文了，这是真宝藏，即使不玩GT，只要是车车爱好者都值得一读
+
+https://www.gran-turismo.com/cn/gt7/apex/
+
