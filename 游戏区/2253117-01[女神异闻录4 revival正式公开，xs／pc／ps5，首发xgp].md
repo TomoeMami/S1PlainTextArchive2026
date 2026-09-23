@@ -4317,3 +4317,10 @@ ATLUS宣布《女神异闻录4：复兴版》将支持中文配音</blockquote>
 
 中配保留日式英语的佩鲁唢呐没绷住<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  甩不出去的黄牌  
+##### 446#       发表于 2026-9-20 17:55
+
+爱家可爱<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
