@@ -995,3 +995,43 @@ steam开服以后是互通吗还是独立的
 被第四章boss虐了才知道第三章强敌可以刷等级....</blockquote>
 我是被第三章boss虐了才知道第二章强敌可以刷经验 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+*****
+
+####  琉歌  
+##### 83#       发表于 2026-9-20 13:39
+
+主线第3章trailer发了（但没说更新时间<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 來自 realme RMX5200, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  suzakushi  
+##### 84#       发表于 2026-9-20 16:22
+
+说了，24号更新，下周四。
+
+
+*****
+
+####  ハ－ダリ=クラウド  
+##### 85#       发表于 2026-9-21 18:22
+
+刷经验最快的办法是不是第三章的兔子强敌？
+
+不给skip有点不太想刷了 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mnmn  
+##### 86#       发表于 2026-9-21 21:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267134&amp;ptid=2287441" target="_blank">ハ－ダリ=クラウド 发表于 2026-9-21 18:22</a>
+
+刷经验最快的办法是不是第三章的兔子强敌？
+
+不给skip有点不太想刷了</blockquote>
+第三章城墙那的强敌好打 自动效率高
+
