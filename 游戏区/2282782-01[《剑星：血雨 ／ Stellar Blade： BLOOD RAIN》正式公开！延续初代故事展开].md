@@ -4696,3 +4696,20 @@ ai是对的，劣质ai不行，但这个MV的呈现效果很好
 <img src="https://p.sda1.dev/34/c74fb90a1cf3db2f352229906b1eaf10/1000172046.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/eda7a4d95ed9b00fa5e4021e12dfda18/1000172047.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  五块  
+##### 451#       发表于 2026-9-24 10:55
+
+Jerome Benzadon
+
+@Jeromebenz
+
+翻译自 法语
+
+在 PlayStation 度过了 13 年难忘的时光后，我非常高兴地向大家宣布，我将加入 SHIFT UP，担任全球传播负责人！
+
+非常期待为金亨泰先生、三上真司先生及其团队的杰作，主导全球营销活动！
+
+这消息居然是一个月前的吗，宅男文娱的一生<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
