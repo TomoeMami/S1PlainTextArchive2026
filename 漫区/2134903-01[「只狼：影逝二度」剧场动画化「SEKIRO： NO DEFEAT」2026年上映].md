@@ -960,3 +960,27 @@ Q Kawa
 
 —— 来自 OPPO PLP110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+*****
+
+####  isa2456  
+##### 100#       发表于 2026-9-24 23:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">所以tv版相当于导演剪辑版？
+
+*****
+
+####  Piano-Forest  
+##### 99#         楼主| 发表于 2026-9-24 23:09
+
+TVアニメ「SEKIRO: NO DEFEAT」
+
+2027年1月より全8話放送決定
+
+▸キービジュアル公開
+
+▸プロデュース・ARCHよりコメント到着
+
+劇場版のストーリーを踏襲しつつ、新規エピソードや新規カットを多数追加して再構築された、全8話のTVシリーズが始動。
+<img src="https://p.sda1.dev/35/ffac8b0aa2cb851823e78b8a0a47a6d3/260925-1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/08b67bf80eed48ccb137fb0e8e52becf/260914-2.jpg" referrerpolicy="no-referrer">
+
