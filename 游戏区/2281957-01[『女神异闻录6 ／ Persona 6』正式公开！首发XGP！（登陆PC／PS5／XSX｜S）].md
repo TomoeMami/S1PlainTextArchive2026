@@ -3292,3 +3292,21 @@ https://www.exophase.com/game/persona-6-steam/achievements/
 已经有玩家通过不同语言版本成就信息，作出剧情推测和BOSS画像了
 [https://tieba.baidu.com/p/11012809287](https://tieba.baidu.com/p/11012809287)
 
+*****
+
+####  Piano-Forest  
+##### 353#         楼主| 发表于 2026-9-29 13:09
+
+横滨
+
+「PERSONA SUPER LIVE 2027」開催決定🎉
+
+3月19日(金)・20日(土)・21日(日)の3日間✨
+
+会場は「横浜BUNTAI」だ！
+
+詳細は後日発表！
+
+続報を楽しみに待っていてくれ！
+<img src="https://p.sda1.dev/35/8667a0f3ee84f6b33a3d14ddfba9e780/1000174686.jpg" referrerpolicy="no-referrer">
+

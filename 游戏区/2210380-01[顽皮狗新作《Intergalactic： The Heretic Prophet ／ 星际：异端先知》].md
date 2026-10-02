@@ -2957,3 +2957,39 @@ wrnm别来蹭cowboy bebop。<img src="https://static.stage1st.com/image/smiley/n
 
 确实感觉得2028了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 286#         楼主| 发表于 2026-9-29 09:45
+
+[https://www.naughtydog.com/blog/ ... -the-last-of-us-day](https://www.naughtydog.com/blog/neil-druckmann-closes-the-last-of-us-day)
+
+《最后生还者》系列创意总监尼尔·德鲁克曼宣布，该系列两个新项目正处于极初期阶段，将拓展第一部与第二部之后的正史，但究竟是游戏还是影像作品尚不明确。目前工作室正在优先开发号称最具野心的《星际：异端先知》，尼尔表示本作还需时间打磨，预计2027年正式披露。 ​​​
+
+
+*****
+
+####  Piano-Forest  
+##### 287#         楼主| 发表于 2026-9-29 09:52
+
+<img src="https://p.sda1.dev/35/bcd8a6588d69ec4bf33072309c810d58/1000174684.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shimotsuki14  
+##### 288#       发表于 2026-9-29 11:27
+
+想了想曾经顽皮狗在玩家心中的地位……
+反观现在……
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  yangxu  
+##### 289#       发表于 2026-9-29 13:10
+
+成品里面还不定塞了多少zzzq的玩意恶心人。而且duckman那尿性，说不定还会和tlou2一样，把自己带入游戏某角色再体验一把后入母金刚的桥段。
+
