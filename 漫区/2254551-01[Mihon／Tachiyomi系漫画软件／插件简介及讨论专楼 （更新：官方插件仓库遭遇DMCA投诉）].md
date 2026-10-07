@@ -2285,3 +2285,31 @@ tachiyomij2k本地怎么无法读取了，文件夹位置都是对的，鸿蒙�
 
 禁漫改了权限机制把部分漫画会员可见了，现在的插件不支持登陆
 
+*****
+
+####  银鍠吞佛  
+##### 201#       发表于 2026-10-4 15:58
+
+一直在用着matepad11和tachiyomiSY来看，但是现在连更新插件都禁止安装了，很恶心
+
+
+*****
+
+####  acejoe  
+##### 202#       发表于 2026-10-4 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70320493&amp;ptid=2254551" target="_blank">银鍠吞佛 发表于 2026-10-4 15:58</a>
+一直在用着matepad11和tachiyomiSY来看，但是现在连更新插件都禁止安装了，很恶心 ...</blockquote>
+安装开始出现就断网，我就这样安装的
+
+
+*****
+
+####  银鍠吞佛  
+##### 203#       发表于 2026-10-5 00:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321815&amp;ptid=2254551" target="_blank">acejoe 发表于 2026-10-4 22:17</a>
+
+安装开始出现就断网，我就这样安装的</blockquote>
+我按了下载插件然后转安装界面后就断网了，还是不行，估计被标记了，过段时间试试
+
