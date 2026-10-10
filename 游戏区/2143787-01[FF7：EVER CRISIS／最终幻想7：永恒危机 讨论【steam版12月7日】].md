@@ -4506,3 +4506,20 @@ SE的政策好奇怪
 
 還是可惜眾人的LV4超必還是未引入...
 
+*****
+
+####  纯夏  
+##### 398#         楼主| 发表于 2026-10-7 20:31
+
+今日关服 SE管理层至今依然没明白手游和端游的区别
+
+最终PV：[https://www.youtube.com/watch?v=VyOLwrfKyiE](https://www.youtube.com/watch?v=VyOLwrfKyiE)
+
+<img src="https://img.stage1st.com/forum/202610/07/202850dmyyho1yszsyylhy.jpg" referrerpolicy="no-referrer">
+
+<strong>close.JPG</strong> (73.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-7 20:28 上传
+
