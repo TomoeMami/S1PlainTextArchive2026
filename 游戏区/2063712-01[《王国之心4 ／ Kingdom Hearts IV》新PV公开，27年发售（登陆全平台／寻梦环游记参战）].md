@@ -4530,3 +4530,61 @@ coco的场景还是好看啊，索拉加了骷髅面具还挺融合的
 
 https://www.exophase.com/game/kingdom-hearts-iv-steam/achievements/jp/
 
+*****
+
+####  Piano-Forest  
+##### 191#         楼主| 发表于 2026-10-8 10:15
+
+《王国之心》系列合集预计2027年初夏追加官方简体中文
+
+[https://weibo.com/6182687946/5351685906235892](https://weibo.com/6182687946/5351685906235892)
+
+可一次畅玩“KINGDOM HEARTS”系列的以下三部作品
+
+Nintendo Switch™ 2 、PlayStation®5、Xbox Series X|S、XBOX on PC版现已上市！
+
+ 2027年初夏预计支持简体中文字幕。
+
+《KINGDOM HEARTS -HD 1.5+2.5 ReMIX-》
+
+《KINGDOM HEARTS HD 2.8 Final Chapter Prologue》
+
+《KINGDOM HEARTS III + Re Mind（DLC）》
+
+还有3部作品组成的超值套组！
+
+《KINGDOM HEARTS Collection [I～III]》
+
+※皆为下载版
+
+★现已在Nintendo Switch™ 2推出《KINGDOM HEARTS III+ Re Mind》的体验版。
+
+体验版可游玩从游戏开头至“奥林帕斯”初期，以及从“玩具箱”的开头至中期的两个舞台。
+
+※“奥林帕斯”可将保存数据继承至正式版。
+
+■■“KINGDOM HEARTS”系列简介■■
+
+“KINGDOM HEARTS”系列是迪士尼与SQUARE ENIX共同打造的角色扮演游戏。自2002年3月首部作品《KINGDOM HEARTS》（支持平台：PlayStation2）上市以来，已经推出了13部作品（若将Final Mix版计算在内则为20部），全球累计出货、贩售量超过3,900万套（※1），已成为广受欢迎的系列。
+
+※1：截至2026年3月底
+
+
+*****
+
+####  qiyu1234  
+##### 192#       发表于 2026-10-8 10:19
+
+刚想说没上STEAM的记忆旋律怎么办
+
+想起来这游戏首发就是带中文的
+
+
+*****
+
+####  Piano-Forest  
+##### 193#         楼主| 发表于 2026-10-8 11:02
+
+[https://www.square-enix.com/asia ... lection/post01.html](https://www.square-enix.com/asia/newsportal/zh-CHT/topics/KH-Collection/post01.html)
+<img src="https://p.sda1.dev/35/2ec35f4d842ef6d419c306b42e51e454/1000175039.jpg" referrerpolicy="no-referrer">
+
