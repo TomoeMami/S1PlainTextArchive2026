@@ -1036,3 +1036,12 @@ Manga One上显示下周三更新……
 
 去奸笑发财了，这明显是被挖了呗
 
+*****
+
+####  王七的弟弟  
+##### 97#       发表于 2026-10-8 23:41
+
+[https://comic-walker.com/detail/ ... E?episodeType=first](https://comic-walker.com/detail/KC_021171_S/episodes/KC_0211710000200011_E?episodeType=first)
+
+这边顺便提一句，新连载开始了……
+
