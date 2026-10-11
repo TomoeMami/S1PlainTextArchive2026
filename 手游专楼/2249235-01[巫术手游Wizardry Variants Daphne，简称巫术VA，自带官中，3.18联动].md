@@ -3008,3 +3008,12 @@ BUG，显示错误，实际还得刷
 
 被黎明池骗了50抽，4*2%相当于4up，抽起来是真爽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  toblkr  
+##### 917#       发表于 2026-10-8 14:11
+
+afk一年回坑，请教下现在是不是挂狼洞好？需要什么配置？
+
+抽卡是不是等下周周年卡池
+
