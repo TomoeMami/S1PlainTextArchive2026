@@ -1081,3 +1081,96 @@ b站刚出了前传漫画的汉化，预计dlc出的锤哥一个招雷秒了失�
 
 **《漫威斗魂》开发团队**
 
+*****
+
+####  John_Stockton  
+##### 43#         楼主| 发表于 2026-10-8 11:18
+
+今日更新首个DLC角色：凤凰镭射眼，一同公布了经典造型皮肤
+
+11月2日上线，看视频够炫酷的，不知道实际性能如何
+
+<img src="https://img.stage1st.com/forum/202610/08/111508dcf1y5z8sbyepfbb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (266.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 11:15 上传
+
+<img src="https://img.stage1st.com/forum/202610/08/111555r3mltcmkwr4lhvcv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (444.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 11:15 上传
+
+<img src="https://img.stage1st.com/forum/202610/08/111613f3j7g2j336cdc582.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (389.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 11:16 上传
+
+<img src="https://img.stage1st.com/forum/202610/08/111639ezyobioxp4iylkil.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (383.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 11:16 上传
+
+<img src="https://img.stage1st.com/forum/202610/08/111653y1iduiiiyiwwtinw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (354.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 11:16 上传
+
+<img src="https://img.stage1st.com/forum/202610/08/111703ji9fnyh83fpiqtag.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (364.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 11:17 上传
+
+<img src="https://img.stage1st.com/forum/202610/08/111732mqs10z87f90b93on.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (346.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 11:17 上传
+
+<img src="https://img.stage1st.com/forum/202610/08/111748nzopt4cpw4o23joo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (476.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 11:17 上传
+
+
+*****
+
+####  John_Stockton  
+##### 44#         楼主| 发表于 2026-10-8 11:26
+
+视频如下
+
+一气是Beam类飞行道具，二气是类似黑豹和魔剑客的强化类+攻击追加
+
+document.getElementById('flv_Q77').innerHTML=("");
+
+
+*****
+
+####  Ironman_mk5  
+##### 45#       发表于 2026-10-8 20:15
+
+只能变吊打复联叉人的黑凤凰变不了被神君杜姆秒的白凤凰还行
+
