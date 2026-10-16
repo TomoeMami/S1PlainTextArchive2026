@@ -536,3 +536,31 @@ UNBOUND团队目前有约60人，目前在开发多个项目，涵盖高端和�
 <img src="https://p.sda1.dev/32/5ad943798122360c67656a2aea289f3f/1000166173.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/5c7a432c3230050e6353e3cd5db176f7/1000166175.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 55#         楼主| 发表于 2026-10-11 15:26
+
+【三上真司新作预计明年发售】 
+[https://b23.tv/pz5eSpK](https://b23.tv/pz5eSpK)
+
+
+*****
+
+####  时空之旅  
+##### 56#       发表于 2026-10-11 22:06
+
+<blockquote>nage560 发表于 2026-3-10 10:24
+好想三上再做恶灵附身续作啊，恶灵附身1的体验到现在也是独一份的体验。还有神之手，其实不用续作，出个HD ...</blockquote>
+前面几章太恐怖渗人了，虽然通关但是再经历一遍又不太想了
+
+
+*****
+
+####  伊丽虾皇VI  
+##### 57#       发表于 2026-10-13 08:44
+
+好快啊，那应该体量很轻
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
