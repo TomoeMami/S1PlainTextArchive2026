@@ -2772,3 +2772,16 @@ ffe6e28a9991709efbc41ba94c182e7c_720.jpg
 “縛り”から創造された，そうだったかもしれない5つの時代。セガブースに出展された「STRANGER THAN HEAVEN」の見どころを，RGGスタジオのキーマンに聞いた［TGS2026］
 [https://www.4gamer.net/games/865/G086590/20260920002/](https://www.4gamer.net/games/865/G086590/20260920002/)
 
+*****
+
+####  redrum  
+##### 291#       发表于 2026-10-17 12:41
+
+ 本帖最后由 redrum 于 2026-10-17 12:43 编辑 
+
+“小仓篇”的剧情预告 这开头总感觉是来到了某FPS游戏
+
+（这画面是PS2时代么。。。
+
+【《STRANGER THAN HEAVEN》第一部 小仓篇 剧情预告片】[https://www.bilibili.com/video/B ... 40b83002ae20564035a](https://www.bilibili.com/video/BV1g2JX6nEEm?vd_source=29dfda8f88e7140b83002ae20564035a)
+
