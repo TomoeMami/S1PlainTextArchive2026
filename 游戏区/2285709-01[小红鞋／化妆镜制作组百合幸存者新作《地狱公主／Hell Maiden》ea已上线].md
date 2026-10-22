@@ -816,3 +816,20 @@ DEMO虽然和贝雅还没展开毕竟有原作在，而游戏里维吉尔也 ...
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+*****
+
+####  modedd  
+##### 51#         楼主| 发表于 2026-10-19 11:30
+
+新诗人来了
+
+<img src="https://img.stage1st.com/forum/202610/19/113027uzjobjjk8tib0cai.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1792380626970_2.webp</strong> (370.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 11:30 上传
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
