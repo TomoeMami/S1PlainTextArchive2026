@@ -5504,3 +5504,18 @@ E7套娃和砍角色被骂得还少吗，也就是E7重PVP加上角色多，阵�
 感觉国际服也没人玩了，以前我只能进50%，这是跑了多少人啊</blockquote>
 因为国际服也有很多国人吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  伊布桑  
+##### 1171#       发表于 2026-10-20 20:34
+
+也是一周年了，回来看看先<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  harry3  
+##### 1172#       发表于 2026-10-21 16:54
+
+周年庆上了无和谐版本？
+
