@@ -2790,3 +2790,1325 @@ TOX也是垃…玩了半小时就觉得不对劲了，怎么会有这么无聊�
 
 确实很菜，特别是还浪费了几个小时时间，所以我很佩服能坚持把它们玩完还说好的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+*****
+
+####  qiyu1234  
+##### 251#         楼主| 发表于 2026-10-12 09:54
+
+中文奖杯列表
+[https://www.exophase.com/game/ta ... psn/trophies/zh-CN/](https://www.exophase.com/game/tales-of-eternia-remastered-psn/trophies/zh-CN/)
+
+
+*****
+
+####  TheOccuria  
+##### 252#       发表于 2026-10-12 10:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了下就是全收集+全隐藏要素全打一遍
+
+幸好玩steam不在乎成就了，这东西也就年轻的时候有心情按照攻略去复刻
+
+
+*****
+
+####  trow233  
+##### 253#       发表于 2026-10-12 10:22
+
+感觉TOE的连招按键判定挺严格
+
+我当年是初中的时候玩PS模拟器，基本都是普攻两下+招数，普攻三下就经常接不上招数了
+
+后面玩TOE2倒是连的很流畅
+
+TOE PS版本 PSP版都通了两遍，现在这高清马赛克……不知道还能不能玩得下去
+
+
+*****
+
+####  kakashisk  
+##### 254#       发表于 2026-10-12 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359067&amp;ptid=2280008" target="_blank">trow233 发表于 2026-10-12 10:22</a>
+
+感觉TOE的连招按键判定挺严格
+
+我当年是初中的时候玩PS模拟器，基本都是普攻两下+招数，普攻三下就经常接不 ...</blockquote>
+哪来的TOE2
+
+
+*****
+
+####  talesof213  
+##### 255#       发表于 2026-10-12 10:49
+
+ 本帖最后由 talesof213 于 2026-10-12 10:51 编辑 
+<blockquote>trow233 发表于 2026-10-12 10:22
+感觉TOE的连招按键判定挺严格
+
+我当年是初中的时候玩PS模拟器，基本都是普攻两下+招数，普攻三下就经常接不 ...</blockquote>
+
+因为普攻要两下平A以后加个方向再A才能连上第三下吧，印象中是这样的，所以手感和后来直接A三下接特技的作品有点不一样。
+
+
+*****
+
+####  trow233  
+##### 256#       发表于 2026-10-12 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359229&amp;ptid=2280008" target="_blank">kakashisk 发表于 2026-10-12 10:43</a>
+
+哪来的TOE2</blockquote>
+打错了，TOD2
+
+*****
+
+####  trow233  
+##### 257#       发表于 2026-10-12 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359278&amp;ptid=2280008" target="_blank">talesof213 发表于 2026-10-12 10:49</a>
+
+因为普攻要两下平A以后加个方向再A才能连上第三下吧，印象中是这样的，所以手感和后来直接A三下接特技的 ...</blockquote>
+对，TOE好像是要下+普攻有个突刺再连技能，太久没玩了印象中是这样
+
+
+*****
+
+####  iou90  
+##### 258#       发表于 2026-10-12 11:08
+
+toe 这次有啥评测了吗 搞得如何？
+
+
+*****
+
+####  膛线  
+##### 259#       发表于 2026-10-12 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69556054&amp;ptid=2280008" target="_blank">kokyou 发表于 2026-4-30 07:51</a>
+
+！ 只上switch吗？</blockquote>
+蒸汽上预购页面已经好久了吧，只不过今天都没更新价格
+
+
+*****
+
+####  alucardcz  
+##### 260#       发表于 2026-10-12 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70358973&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-10-12 10:08</a>
+
+看了下就是全收集+全隐藏要素全打一遍
+
+幸好玩steam不在乎成就了，这东西也就年轻的时候有心情按照攻略去复 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的好像你还有空打toe一样
+
+
+*****
+
+####  qiyu1234  
+##### 261#         楼主| 发表于 2026-10-12 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359450&amp;ptid=2280008" target="_blank">膛线 发表于 2026-10-12 11:19</a>
+
+蒸汽上预购页面已经好久了吧，只不过今天都没更新价格</blockquote>
+这次海外无预购 直接发售
+
+
+*****
+
+####  eilot  
+##### 262#       发表于 2026-10-12 12:29
+
+NS2版直接129人仔，239 HKD
+
+香港的話，2000fun的NS版，就是HKD279???
+
+STEAM版未知道，不過應該都是這水平
+
+
+*****
+
+####  猪突猛进R  
+##### 263#       发表于 2026-10-12 12:37
+
+住院中，没得玩了，看你们评测吧。
+
+
+*****
+
+####  kokyou  
+##### 264#       发表于 2026-10-12 12:45
+
+<blockquote>膛线 发表于 2026-10-12 11:19
+蒸汽上预购页面已经好久了吧，只不过今天都没更新价格</blockquote>
+4月刚公布时发的帖子…现在肯定知道是全平台啦哈哈。准备等15日先入个ps的玩
+
+
+*****
+
+####  TheOccuria  
+##### 265#       发表于 2026-10-12 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359561&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-10-12 11:38</a>
+
+说的好像你还有空打toe一样</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">怀旧可以以后抽空
+
+
+*****
+
+####  PYY  
+##### 266#       发表于 2026-10-12 15:18
+
+<blockquote>talesof213 发表于 2026-10-12 10:49
+因为普攻要两下平A以后加个方向再A才能连上第三下吧，印象中是这样的，所以手感和后来直接A三下接特技的 ...</blockquote>
+
+普攻分斩突，招式分斩突，武器威力分斩突。
+
+然后习得技能也要分开斩突次数。
+
+普攻要打三下也要斩突分开用。
+
+为了获得高评分（增加经验，增加道具获取几率）
+
+强迫（诱导）你每场战斗都打得像格斗游戏一样。
+
+当然最可恨的是这次移植的是psp版，只能单打。
+
+
+*****
+
+####  火红之眼  
+##### 267#       发表于 2026-10-15 00:47
+
+细节优化比我想象中多不少，都挺细致的，玩着有点舒服
+
+
+*****
+
+####  猪突猛进R  
+##### 268#       发表于 2026-10-15 09:10
+
+Steam版非要晚一天呗。
+
+算了，反正我现在也玩不了，随意了。
+
+
+*****
+
+####  出言不迅  
+##### 269#       发表于 2026-10-15 09:20
+
+这代是jrpg主角是村民的刻板印象来源之一吧，我一直记得op里女主扛一捆稻草的画面
+
+
+*****
+
+####  猪突猛进R  
+##### 270#       发表于 2026-10-15 12:11
+
+法拉就是村姑啊，没啥问题。
+
+就是力气大得能一脚踢飞熊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不可避免  
+##### 271#       发表于 2026-10-15 12:46
+
+用PSP版移植的吗，我就记得当年看人说PSP版的画面相比PS版少了两截，所以选的是PS玩去玩。
+
+重制版有相同的问题吗？
+
+
+*****
+
+####  LT_Harry  
+##### 272#       发表于 2026-10-15 14:03
+
+一晃已经五年没新作了😡上一次也隔了五年，系列的未来，你在哪里，，，
+
+
+*****
+
+####  eilot  
+##### 273#       发表于 2026-10-15 14:09
+
+突然想到
+
+之前TOX都放上STEAM版，已經是25年10月的事情
+
+所以TOX2???一年了
+
+
+*****
+
+####  qiyu1234  
+##### 274#         楼主| 发表于 2026-10-15 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376107&amp;ptid=2280008" target="_blank">eilot 发表于 2026-10-15 14:09</a>
+
+突然想到
+
+之前TOX都放上STEAM版，已經是25年10月的事情
+
+所以TOX2???一年了</blockquote>
+本来就不是按顺序推出，官方说法是根据开发完成状况安排（多个外包项目）
+
+X1复刻本来就很赶，是最近这几个复刻里首发BUG最多的，而且也没有修完，估计要等到X2做的差不多才会有动静了
+
+*****
+
+####  Xenor  
+##### 275#       发表于 2026-10-15 14:17
+
+还未来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这系列3D化后就没人跟早就没未来了，玄远见就是个很好的参考例子，而且难梦公这次的重制玩着也很一般，对待一个系列的巅峰都这样，实在没得救
+
+
+*****
+
+####  qiyu1234  
+##### 276#         楼主| 发表于 2026-10-15 15:31
+
+某发癫的菜狗真是看着恶心的想吐
+
+双标吗，3D传说不会玩就说不如这那的，菜就菜，不用强调这么多遍
+
+还3D化之后完了，3000万销量是谁买的？靠玩手机拉伸模拟器 口头支持的那才是真完了
+
+
+*****
+
+####  空洞骑士  
+##### 277#       发表于 2026-10-15 15:38
+
+<blockquote>eilot 发表于 2026-10-15 14:09
+突然想到
+
+之前TOX都放上STEAM版，已經是25年10月的事情
+
+所以TOX2???一年了</blockquote>
+TOX我现在都不敢打二周目就是怕它好几年后才出TOX2，太早打完就把剧情给忘光了。这两部复刻的发售间隔都超过原版的发售间隔了，这发售安排太牛了。
+
+
+*****
+
+####  TheOccuria  
+##### 278#       发表于 2026-10-15 15:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">卜要慌，隔壁ace8也隔了n年拿出个新高峰，让我们爱信等富泽geigei
+
+话说南梦宫这开发效率，唉
+
+
+*****
+
+####  孤狼arcueid  
+##### 279#       发表于 2026-10-15 16:18
+
+<img src="https://static.stage1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">怎么还没屏蔽888拉伸哥的
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 17 Ultra
+
+*****
+
+####  qiyu1234  
+##### 280#         楼主| 发表于 2026-10-15 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376630&amp;ptid=2280008" target="_blank">空洞骑士 发表于 2026-10-15 15:38</a>
+
+TOX我现在都不敢打二周目就是怕它好几年后才出TOX2，太早打完就把剧情给忘光了。这两部复刻的发售间隔都 ...</blockquote>
+目前复刻的问题还是管杀不管埋
+
+TOE复刻目前几个新增（相对前几个复刻）的官方QOL增强还是好评比较多的
+
+问题是越早的复刻这种针对性强的QOL就越少，而且也不会进行QOL更新，针对一部分BUG反馈也没有充分的修改，版权DLC更不用提了
+
+TOE复刻根据反馈追加了称号继承这点还算是听取了玩家的声音
+
+但像TOE基于PSP版移植导致的没有多人热座的问题就没有什么回应了
+
+至少在复刻企划的态度上，给人感觉更像是 “完成任务”，而不是“把复刻尽可能完整的移交给现代平台”
+
+
+*****
+
+####  Xenor  
+##### 281#       发表于 2026-10-15 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376601&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-10-15 15:31</a>
+
+某发癫的菜狗真是看着恶心的想吐
+
+双标吗，3D传说不会玩就说不如这那的，菜就菜，不用强调这么多遍
+
+还3D化之 ...</blockquote>
+你怕不是个傻子吧，游戏无聊不好玩看一堆攻略有用？还学练？？出生晚生在3d环境不怪你，但是端着一个劣质3d就在这吹也只有你这样的傻或者小学生了，传说前几代2d的经典是公认的，系列在走下坡路也是不争的事实，不知你在这乱讲一通啥，也就张口闭口一个菜，说3000万销量你又贡献了多少？还少点玩家，我玩传说的时候你怕还不知道是哪里的受精卵，既然这样那就多点像你这种只会乱讲无关内容的玩家吧，当然3d受众本就是针对像你这样的后生仔，看看这系列会不会更好，以为自己可以当南梦宫肚子里的蛔虫好像都懂其实根本不够格，还不自知，搞笑
+
+
+*****
+
+####  qiyu1234  
+##### 282#         楼主| 发表于 2026-10-15 17:23
+
+ 本帖最后由 qiyu1234 于 2026-10-15 17:25 编辑 
+
+[https://stage1st.com/2b/thread-2291419-1-2.html](https://stage1st.com/2b/thread-2291419-1-2.html)
+ <blockquote>这就盲点了 我菜鸟连奥义影子都没见到</blockquote>
+但凡一个玩过深渊传说的正常玩家，看到这句话都要被震惊到
+
+一个连 奥义都号称没见过，更或者秘奥义都放不出来的玩家（深渊的秘奥义释放甚至是很简单朴实的），就等于连走路和跑步都不会，<strong>有什么资格去评价3D传说好玩不好玩</strong>？
+
+也就是现在传说圈比较沉寂，大部分人懒得较真，或者说你没在一些华语圈一些比较较真的热度高的游戏圈里大放厥词，要不然早就被喷烂了，你现在说的越多，越贻笑大方，在这摆你那些所谓的“资历”有任何的意义吗？
+
+
+*****
+
+####  Xenor  
+##### 283#       发表于 2026-10-15 18:08
+
+K嗷，who tell you深渊是3d传说的，传说3d不3d是看战斗来的，深渊本质战斗还是2d的，一个过渡期，不要张冠李戴而且我又没说过深渊不好玩，什么时候3d传说自己想
+
+另外等弄出秘奥都什么等级了我还要玩到那时才知道好不好玩？这就好比我要知道梨子好不好吃，难道还要把核都吃了才知道？你这思想已经有严重问题
+
+还有你以为热度高的地方讨论就是喷来喷去的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">简直naive，累死了，不跟你扯玩永恒去了，你觉得3d好那就多玩吧
+
+
+*****
+
+####  猫将军  
+##### 284#       发表于 2026-10-15 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377474&amp;ptid=2280008" target="_blank">Xenor 发表于 2026-10-15 18:08</a>
+K嗷，who tell you深渊是3d传说的，传说3d不3d是看战斗来的，深渊本质战斗还是2d的，一个过渡期，不要张冠 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">你说tos不是3d可以认同，但toa可以fr的。我怀疑你在妖言惑众。传说以前分2d组和3d组。有啥好争的。好不好最后都解散了。
+
+
+*****
+
+####  qiyu1234  
+##### 285#         楼主| 发表于 2026-10-15 19:15
+
+ 本帖最后由 qiyu1234 于 2026-10-15 19:16 编辑 
+
+2D 3D传说战斗区分的核心是场地是否是圆形/有纵深的立体地图
+
+线性动作战斗系统（LMBS）本身就是脱胎自格斗游戏的概念
+
+因此2D/3D战斗的概念也是根据2D/3D格斗而区分的
+
+3D传说的战斗是强制锁定的，以控制角色到锁定对象之间画直线，角色沿着这条线进行轴向动作（后面也加入了横向侧移事实上也是以这条线为半径画圆，角色以锁定对象为圆心进行绕圈移动）
+
+这与3D格斗本质上是相同的（而强制锁定与轴向动作又使得它不同于一些带场景纵深的2D清版游戏）
+
+也因此当TOA第一次加入FR的时候，对游戏平衡的影响是很大的，因为这不是这套方案的原生设计
+
+至于TOS我认为也是3D传说战斗，原因是虽然玩家不能FR或者横向移动，但是对象（敌人）是可以的，玩家可以通过切换锁定不同的对象实现移动方向的变化，本质也是3D场景战斗
+
+
+*****
+
+####  qiyu1234  
+##### 286#         楼主| 发表于 2026-10-15 19:53
+
+ 本帖最后由 qiyu1234 于 2026-10-15 19:55 编辑 
+
+除了WIKI以外，本作推荐的纸质攻略本是 FAMI攻略本，也是少数FAMI攻略比NAMCO官方攻略更优秀的一作，
+
+TOE官方攻略本的隐藏要素标记不全，甚至有谬误，单就本作的攻略本质量来说确实远不如FAMI攻略本
+
+通过网盘分享的文件：Tales_Of_Eternia_PSX_Famitsu_Guide.rar
+
+链接: [https://pan.baidu.com/s/1SaP77d691ljx6GvUUnsEaA?pwd=TOER](https://pan.baidu.com/s/1SaP77d691ljx6GvUUnsEaA?pwd=TOER) 提取码: TOER 
+
+另外打包了一下这次的豪华版的历代战斗曲包，有需要自用
+
+通过网盘分享的文件：テイルズ オブ エターニア リマスター バトルBGMパック.rar
+
+链接: [https://pan.baidu.com/s/1fGVQJcXSU6TfDeEWJlyxVw?pwd=TOER](https://pan.baidu.com/s/1fGVQJcXSU6TfDeEWJlyxVw?pwd=TOER) 提取码: TOER
+
+<img src="https://img.stage1st.com/forum/202610/15/195339xtig3poxwgmu3pwl.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (143.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 19:53 上传
+
+
+*****
+
+####  Xenor  
+##### 287#       发表于 2026-10-15 22:17
+
+都去玩永恒吧<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">比ps版的按键更多了，也比psp版多了震动，情节都能跳，战斗也能加速，而且还有各种小选项工具更方便游戏，好像还自带金手指。总的来说目前挑不出毛病，要是能多给几个调色滤镜就perfect了，开局直接用拳师爽爽中，一不留神都又要收水精灵了，感觉又要耗近百小时，只是没有S/L大法后期像打牌撞球跳舞拍卖这些小游戏就头疼了
+
+
+*****
+
+####  iqbsh38  
+##### 288#       发表于 2026-10-15 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377474&amp;ptid=2280008" target="_blank">Xenor 发表于 2026-10-15 18:08</a>
+
+K嗷，who tell you深渊是3d传说的，传说3d不3d是看战斗来的，深渊本质战斗还是2d的，一个过渡期，不要张冠 ...</blockquote>
+TOA其实已经可以自由移动了 TOS才是本质2D 有时候被两拨怪挤在中间走不动非常烦
+
+之后的TOV本质上是TOA的究极加强版 你总不能说TOV还是2D战斗吧
+
+
+*****
+
+####  lion_or_judas  
+##### 289#       发表于 2026-10-15 22:35
+
+第一次看到说toa不算3d传说……对我来说tos就是3d传说……因为比起3d战斗我更习惯2d的战斗……
+
+
+*****
+
+####  Xenor  
+##### 290#       发表于 2026-10-15 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70378403&amp;ptid=2280008" target="_blank">iqbsh38 发表于 2026-10-15 22:24</a>
+
+TOA其实已经可以自由移动了 TOS才是本质2D 有时候被两拨怪挤在中间走不动非常烦
+
+之后的TOV本质上是TOA的 ...</blockquote>
+tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感觉类似tor三线战斗，tos也类似，只是隐藏的还不是直线，但如你说是toa的加强版，要是后期有解锁了移动方式能和tov一样那肯定就是3d是我错了，toa我顶天只玩了前面2小时内容对后面除了剧情外是一片空白<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  火红之眼  
+##### 291#       发表于 2026-10-16 00:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">肝了一天打完mania难度了，顺便把20小时称号做了
+
+斗技场某人现在赢了也可以反复打了
+
+
+*****
+
+####  LT_Harry  
+##### 292#       发表于 2026-10-16 00:56
+
+看到这个主题才回头看了一下 Steam 游戏库，发现破晓现在默认的封面图和背景都换成 beyond the dawn 版本了（白色背景，人物像塔一样堆了三层）。刚发售的时候还是只有男女主站在一起的。
+
+
+*****
+
+####  慕容断月  
+##### 293#       发表于 2026-10-16 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377266&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-10-15 17:23</a>
+https://stage1st.com/2b/thread-2291419-1-2.html</blockquote>
+如果你说是喜欢把拉伸图到处发的那位，我建议尽早塞抹布，极品发言也不少
+
+*****
+
+####  恋妖壶  
+##### 294#       发表于 2026-10-16 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377474&amp;ptid=2280008" target="_blank">Xenor 发表于 2026-10-15 18:08</a>
+
+K嗷，who tell you深渊是3d传说的，传说3d不3d是看战斗来的，深渊本质战斗还是2d的，一个过渡期，不要张冠 ...</blockquote>
+我说这个硬要把“谁告诉你”说成“who tell you”的细节让其人形象跃然纸上仿佛回到20年前的S1有懂的吗<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mjzs07  
+##### 295#       发表于 2026-10-16 01:40
+
+没双打还玩个毛
+
+
+*****
+
+####  寺胖  
+##### 296#       发表于 2026-10-16 07:06
+
+<blockquote>iqbsh38 发表于 2026-10-15 22:24
+TOA其实已经可以自由移动了 TOS才是本质2D 有时候被两拨怪挤在中间走不动非常烦
+
+之后的TOV本质上是TOA的 ...</blockquote>
+嗯没错。不过tov有个我觉得不好的地方：出招的搭配方向和角色自由跑动的方向，都用左摇杆控制。
+
+相比之下我还是喜欢PS2的toa的方式：在直线移动和出招的方向都用十字键，自由跑动时用L2+左摇杆，区分开来操作更清晰
+
+
+*****
+
+####  火红之眼  
+##### 297#       发表于 2026-10-16 07:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3个等级的问答游戏全换成新的了，只在TOS TOG TOX TOB这几个已经出了冷饭的上面出题
+
+
+*****
+
+####  空洞骑士  
+##### 298#       发表于 2026-10-16 07:55
+
+总感觉贵了点，还以为按推荐价格等比换算应该118。而且豪华版DLC还是卖148比本体都贵。
+
+<img src="https://img.stage1st.com/forum/202610/16/075303uiuu8jj71tiwu187.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20261016_065106.jpg</strong> (103.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-16 07:53 上传
+
+
+*****
+
+####  リンリー・グー  
+##### 299#       发表于 2026-10-16 08:07
+
+<blockquote>慕容断月 发表于 2026-10-16 01:32
+如果你说是喜欢把拉伸图到处发的那位，我建议尽早塞抹布，极品发言也不少 ...</blockquote>
+发言夹杂三年级水平英语是一股青春期成长在千禧年以英语为荣的a9老登感觉，但模拟器超宽拉伸图又是一股全部娱乐只懂得用全面屏挖孔手机的小登形象，这个反差感很少见
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 慕容断月 + 2这支离破碎的描述感可太形象了.
+
+查看全部评分
+
+*****
+
+####  慕容断月  
+##### 300#       发表于 2026-10-16 08:09
+
+这么便宜立刻买了
+
+玩了一个多小时，体验是真好，QOL改的都不错
+
+就是你都PSP版移植主机了，震动也加回来了，LTRT怎么不学PS版，喂狗了？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+也不指望能更新改回LTRT放技能了
+
+*****
+
+####  eilot  
+##### 301#       发表于 2026-10-16 08:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70378904&amp;ptid=2280008" target="_blank">火红之眼 发表于 2026-10-16 00:19</a>
+
+肝了一天打完mania难度了，顺便把20小时称号做了
+
+斗技场某人现在赢了也可以反复打了 ...</blockquote>
+他們2人的裝飾品是否能無限掉出來?
+
+其實最想都是2周目能永久用某位便當騎士...
+
+
+*****
+
+####  慕容断月  
+##### 302#       发表于 2026-10-16 08:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70379553&amp;ptid=2280008" target="_blank">リンリー・グー 发表于 2026-10-16 08:07</a>
+
+发言夹杂三年级水平英语是一股青春期成长在千禧年以英语为荣的a9老登感觉，但模拟器超宽拉伸图又是一股全 ...</blockquote>
+这位我就特别不能理解，如果ta都是正版拉伸图，那捏着鼻子也算能忍（忍个屁，嘴上说说而已）
+
+但我看他发图总有种某类3dm坛友的既视感，也不知道是不是我的错觉，但就这样吧
+
+早早塞了抹布保护我的眼睛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 303#         楼主| 发表于 2026-10-16 08:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70379509&amp;ptid=2280008" target="_blank">空洞骑士 发表于 2026-10-16 07:55</a>
+
+总感觉贵了点，还以为按推荐价格等比换算应该118。而且豪华版DLC还是卖148比本体都贵。
+
+ ...</blockquote>
+可以去杉果看看，豪华版126比STEAM标准版便宜，而且能带其他折扣
+
+
+*****
+
+####  桧山修之  
+##### 304#       发表于 2026-10-16 08:31
+
+toa是本质2d战斗系统的都来了，战场自由移动前期就解锁了，玩了2个小时的，也来点评游戏，3d建模2d玩法的是TOL
+
+
+*****
+
+####  慕容断月  
+##### 305#       发表于 2026-10-16 08:37
+
+卧槽杉果只要81，叠一下券和豆居然能压到58，可怕<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空洞骑士  
+##### 306#       发表于 2026-10-16 08:41
+
+<blockquote>qiyu1234 发表于 2026-10-16 08:22
+可以去杉果看看，豪华版126比STEAM标准版便宜，而且能带其他折扣</blockquote>
+
+好家伙，我看了一下去年买的TOX普通版就便宜了10块钱。这种超过30%折扣的是真和万南有合作了吧。
+
+
+*****
+
+####  trow233  
+##### 307#       发表于 2026-10-16 08:52
+
+好家伙，为何杉果如此便宜！
+
+还是忍不住了
+
+我闲置多年的攻略又有用武之地了
+
+<img src="https://img.stage1st.com/forum/202610/16/085206cyr8b84a4ybw2pih.jpg" referrerpolicy="no-referrer">
+
+<strong>31ffdc39fd29b290cf0f4800bb2cd839.jpg</strong> (240.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 08:52 上传
+
+
+*****
+
+####  猪突猛进R  
+##### 308#       发表于 2026-10-16 09:21
+
+杉果太棒了，豪华版比Steam普通版还便宜。
+
+
+*****
+
+####  wyy123  
+##### 309#       发表于 2026-10-16 09:31
+
+还是steam便宜，买了ns实体版
+
+
+*****
+
+####  TheOccuria  
+##### 310#       发表于 2026-10-16 09:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">杉果居然能比挂刀还便宜，本来看到138有点萎了的
+
+
+*****
+
+####  天才八嘎  
+##### 311#       发表于 2026-10-16 10:19
+
+杉果已经下架了，不会是临时工吧
+
+
+*****
+
+####  空洞骑士  
+##### 312#       发表于 2026-10-16 10:36
+
+杉果临时工结束了，已恢复原价138和248。不知道会不会反激活，后续可以跟进一下。
+
+
+*****
+
+####  shcmzzj  
+##### 313#       发表于 2026-10-16 10:46
+
+<blockquote>[Xenor](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70378381&amp;ptid=2280008) 发表于 10-15 23:17
+都去玩永恒吧虽然感觉怪怪的，但习惯后会发现各方面做得很适配，越玩越舒服。个性化设置基本都能改，音质是一耳朵的明显加强了、回不去的那种，人声也更清晰了，OP画质怪怪的但好歹也是更高清了，这画面配合7.1?立体声可以flying loop，可能是用最低的成本手段做了优化吧，甚至游戏里有些场景还重新作画了，战斗切换速度更迅速、也是回不去的那种，如果觉得画面不好切换成原版后再切回来就会发现好了比ps版的按键更多了，也比psp版多了震动，情节都能跳，战斗也能加速，而且还有各种小选项工具更方便游戏，好像还自带金手指。总的来说目前挑不出毛病，要是能多给几个调色滤镜就perfect了，开局直接用拳师爽爽中，一不留神都又要收水精灵了，感觉又要耗近百小时，只是没有S/L大法后期像打牌撞球跳舞拍卖这些小游戏就头疼了</blockquote>
+
+永恒是真的爽，这玩意能在ps上做出来是真的天才。我都不用todr那个水平的重置，就把光影啊特效啊模型啊做得再现代化一点都愿意再玩一遍，可惜并没有<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+——来自 CPH2671 上的 [S1er 客户端](https://s1er.pages.dev)
+
+
+*****
+
+####  alucardcz  
+##### 314#       发表于 2026-10-16 11:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">来晚了 居然是临时工  再见了 等真打折
+
+
+*****
+
+####  alucardcz  
+##### 315#       发表于 2026-10-16 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380470&amp;ptid=2280008" target="_blank">空洞骑士 发表于 2026-10-16 10:36</a>
+
+杉果临时工结束了，已恢复原价138和248。不知道会不会反激活，后续可以跟进一下。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是sony 哪有什么反激活  隔壁xhh终极临时工都没做过什么回收 只可惜我只买了个ff7
+
+
+*****
+
+####  trow233  
+##### 316#       发表于 2026-10-16 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380470&amp;ptid=2280008" target="_blank">空洞骑士 发表于 2026-10-16 10:36</a>
+
+杉果临时工结束了，已恢复原价138和248。不知道会不会反激活，后续可以跟进一下。 ...</blockquote>
+啊？？咋回事
+
+南梦宫：有内鬼！
+
+
+*****
+
+####  放大镜  
+##### 317#       发表于 2026-10-16 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70378702&amp;ptid=2280008" target="_blank">Xenor 发表于 2026-10-15 23:35</a>
+
+tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感觉类似tor三线战斗，tos也类似，只是隐藏的还 ...</blockquote>
+没记错的话TOA自由移动要占个被动格子，得自己装
+
+
+*****
+
+####  黒長直姫  
+##### 318#       发表于 2026-10-16 11:39
+
+错过临时工了，不买了tmd
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lighttt  
+##### 319#       发表于 2026-10-16 11:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">还有临时工环节吗
+
+
+*****
+
+####  火红之眼  
+##### 320#       发表于 2026-10-16 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70379564&amp;ptid=2280008" target="_blank">eilot 发表于 2026-10-16 08:11</a>
+
+他們2人的裝飾品是否能無限掉出來?
+
+其實最想都是2周目能永久用某位便當騎士... ...</blockquote>
+应该不掉了，再打了一遍normal的没给头巾
+
+
+*****
+
+####  火红之眼  
+##### 321#       发表于 2026-10-16 13:35
+
+<img src="https://img.stage1st.com/forum/202610/16/133233xzatbah8zw76kb1z.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1792128733508.png</strong> (83.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 13:32 上传
+
+白金了，要不是TOE被研究得够透彻，白金难度在系列里也算高的了，得亏有内挂没啥作业量，难的全是小游戏
+
+*****
+
+####  寺胖  
+##### 322#       发表于 2026-10-16 13:36
+
+<blockquote>放大镜 发表于 2026-10-16 11:25
+没记错的话TOA自由移动要占个被动格子，得自己装</blockquote>
+但是toa的adskill并不限制勾选几个，学会的都能勾选
+
+*****
+
+####  寺胖  
+##### 323#       发表于 2026-10-16 13:39
+
+<blockquote>火红之眼 发表于 2026-10-16 07:39
+3个等级的问答游戏全换成新的了，只在TOV TOS TOG TOX TOB这几个已经出了冷饭的上面出题，还有arise..... ...</blockquote>
+还没玩，出来问题目的角色换了没？
+
+记得旧版是弓箭手切露西、召唤师库拉斯、大剑克雷门特
+
+
+*****
+
+####  kokyou  
+##### 324#       发表于 2026-10-16 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381613&amp;ptid=2280008" target="_blank">火红之眼 发表于 2026-10-16 13:35</a>
+
+白金了，要不是TOE被研究得够透彻，白金难度在系列里也算高的了，得亏有内挂没啥作业量，难的全是小游戏 ...</blockquote>
+你这也太快了，我昨天下班回去打到睡前才刚收水的大晶灵。可以4传5秒白吗？
+
+顺便我 上+ 的特技有点难按出来，经常原地上跳。前一阵子刷TOS也没这个问题啊……
+
+
+*****
+
+####  火红之眼  
+##### 325#       发表于 2026-10-16 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381638&amp;ptid=2280008" target="_blank">寺胖 发表于 2026-10-16 13:39</a>
+
+还没玩，出来问题目的角色换了没？
+
+记得旧版是弓箭手切露西、召唤师库拉斯、大剑克雷门特 ...</blockquote>
+没换，还是那几位
+
+*****
+
+####  火红之眼  
+##### 326#       发表于 2026-10-16 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382101&amp;ptid=2280008" target="_blank">kokyou 发表于 2026-10-16 14:47</a>
+
+你这也太快了，我昨天下班回去打到睡前才刚收水的大晶灵。可以4传5秒白吗？
+
+顺便我 上+ 的特技有点难按出 ...</blockquote>
+可以4传5秒白，上+特技按不出是因为调成全手动了吧
+
+
+*****
+
+####  kokyou  
+##### 327#       发表于 2026-10-16 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382168&amp;ptid=2280008" target="_blank">火红之眼 发表于 2026-10-16 14:55</a>
+
+可以4传5秒白，上+特技按不出是因为调成全手动了吧</blockquote>
+哦哦 确实 我是全手动，回去改成半自动看看 谢啦~
+
+
+*****
+
+####  TheOccuria  
+##### 328#       发表于 2026-10-16 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380651&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-10-16 11:00</a>
+
+来晚了 居然是临时工  再见了 等真打折</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我也是，没用过杉果本来打算中午看看的，上班误事啊
+
+
+*****
+
+####  alucardcz  
+##### 329#       发表于 2026-10-16 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382317&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-10-16 15:15</a>
+
+我也是，没用过杉果本来打算中午看看的，上班误事啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不慌 我一怒直接不买了 等真打折到80再见
+
+
+*****
+
+####  新條直輝  
+##### 330#       发表于 2026-10-16 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381613&amp;ptid=2280008" target="_blank">火红之眼 发表于 2026-10-16 13:35</a>
+
+白金了，要不是TOE被研究得够透彻，白金难度在系列里也算高的了，得亏有内挂没啥作业量，难的全是小游戏 ...</blockquote>
+小时候第一次玩的美版，xo键位对调的，看的日版攻略导致按不出极光波一直通关不了，后面重打日版才爽打
+
+突然想到现在ps都是x确认了，这次不会有这个问题了吧
+
+
+*****
+
+####  chaosp  
+##### 331#       发表于 2026-10-16 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382493&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-10-16 15:38</a>
+
+不慌 我一怒直接不买了 等真打折到80再见</blockquote>
+感觉小黑盒也会很快降价的样子
+
+
+*****
+
+####  bk_201  
+##### 332#       发表于 2026-10-16 16:49
+
+有没有完美全收集流程攻略<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 333#       发表于 2026-10-16 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382934&amp;ptid=2280008" target="_blank">chaosp 发表于 2026-10-16 16:45</a>
+
+感觉小黑盒也会很快降价的样子</blockquote>
+不一定 感觉是临时工 就算要打折 也不可能首发这么搞<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火红之眼  
+##### 334#       发表于 2026-10-16 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382601&amp;ptid=2280008" target="_blank">新條直輝 发表于 2026-10-16 15:59</a>
+
+小时候第一次玩的美版，xo键位对调的，看的日版攻略导致按不出极光波一直通关不了，后面重打日版才爽打
+
+ ...</blockquote>
+这次战斗还是原本的键位，不过对调也不影响极光波发动吧，都是口XO按住（小时候我也经常失败
+
+*****
+
+####  新條直輝  
+##### 335#       发表于 2026-10-16 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382996&amp;ptid=2280008" target="_blank">火红之眼 发表于 2026-10-16 16:52</a>
+
+这次战斗还是原本的键位，不过对调也不影响极光波发动吧，都是口XO按住（小时候我也经常失败
+
+ ...</blockquote>
+我咋记得当年看的是按住三键再连打O，大概记错了
+
+不影响就好！
+
+
+*****
+
+####  Xenor  
+##### 336#       发表于 2026-10-16 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380562&amp;ptid=2280008" target="_blank">shcmzzj 发表于 2026-10-16 10:46</a>
+
+永恒是真的爽，这玩意能在ps上做出来是真的天才。我都不用todr那个水平的重置，就把光影啊特效啊模型啊做 ...</blockquote>
+可能要做这些成本太高还很怕改多了费力不讨好，多人那个技术没问题，记得幻想那会也要买手柄和电波才能双人搓招，设了门槛的估计是考虑实用性不大，当时用得最多也就协力出招连击999，实际还是1人操作2个手柄，有指令2p发招了大用途也没了吧，传说这种战斗布局1个人独享还是最爽的，真要多个人出来一起玩再激烈一些感觉画面也跟不上了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看重制这作画还是有良心的
+<img src="https://p.sda1.dev/35/c2eb940e29dece6a04a9ee712d5c199a/b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/19f72a0ed0f75667845f676c95c537f8/a.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猪突猛进R  
+##### 337#       发表于 2026-10-16 18:34
+
+我对法拉最大的印象就是她一脚能踢飞熊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  南戸唯  
+##### 338#       发表于 2026-10-17 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381638&amp;ptid=2280008" target="_blank">寺胖 发表于 2026-10-16 13:39</a>
+
+还没玩，出来问题目的角色换了没？
+
+记得旧版是弓箭手切露西、召唤师库拉斯、大剑克雷门特 ...</blockquote>
+但是题库换了
+
+QQ图片20261017100639.png
+(990 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 10:07 上传
+
+<img src="https://img.stage1st.com/forum/202610/17/100734nmribiiub18enqb1.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tsubasa9  
+##### 339#       发表于 2026-10-17 10:23
+
+手贱开了困难，上来被村长家剧情boss的各种高级魔法干傻了
+
+
+*****
+
+####  阿菠萝13  
+##### 340#       发表于 2026-10-17 10:54
+
+<blockquote>新條直輝 发表于 2026-10-16 16:55
+我咋记得当年看的是按住三键再连打O，大概记错了
+
+不影响就好！</blockquote>
+极光壁发动后快速连打平a是为了发动衍生的极光剑，说起来原版有个Bug可以发动无限循环的极光剑，不知道重制版修复了没
+
+
+*****
+
+####  iou90  
+##### 341#       发表于 2026-10-17 22:37
+
+话说 nsw nsw2 上好像有摇杆方向问题？这个很严重吧 有说会修吗
+
+
+*****
+
+####  空洞骑士  
+##### 342#       发表于 2026-10-18 10:36
+
+初级问答的题目都是固定的，整理了一下新版的。人名写错了好几个也是醉了。
+
+1《破晓传奇》种拥有地水火风光暗六种属性，寄宿于物体与生命中的力量被称为什么？
+
+星灵力
+
+2《破晓传奇》中主人公奥尔分除了过去的记忆外，还一同失去了什么？
+
+痛觉
+
+3《破晓传奇》中登场的琳薇尔的搭档伏露露属于什么品种的猫头鹰？
+
+达纳鸮
+
+4《交响曲传奇》中登场的柯蕾特是因为什么原因才踏上了旅程来着？
+
+为了让世界再生
+
+5《美德传奇》的战斗中存在A技和B技两种风格。A技是什么的简称？
+
+技艺（Arts）
+
+6在《美德传奇》中艾斯贝尔与苏菲初次相遇的地方是哪里？
+
+兰特后山的花田
+
+7《无尽传奇》中登场的蕾雅是谁的儿时玩伴？
+
+裘德（这一题选项名字有一个翻译错误，艾尔文被翻译成亚尔文了）
+
+8以下哪一项属于《宵星传奇》中登场的弗连的特征？
+
+味觉迟钝
+
+9以下哪一个才是《宵星传奇》中登场的由利的名字？
+
+由利·罗维尔（由利·罗威尔）
+
+10《宵星传奇》中登场的拉培德（拉彼特）平时嘴里叼着的是什么东西来着？
+
+烟管
+
+11《无尽传奇》中登场的蜜拉称呼自己为什么来着？
+
+麦斯威尔
+
+12《绯夜传奇》中将业魔席卷全世界的那天称作什么来着？
+
+开门之日
+
+13《绯夜传奇》中登场的艾杰恩所属的海盗团的名字叫什么来着？
+
+艾弗立德
+
+14《传奇》系列中登场的道具中，使用后可以暂时降低遇敌率的道具的名字是什么？
+
+神圣瓶
+
+15《交响曲传奇》中登场的克拉特斯的真实身份是什么来着？
+
+天使
+
+
+*****
+
+####  慕容断月  
+##### 343#       发表于 2026-10-18 10:54
+
+[https://gofile.io/d/OCEn0c6j](https://gofile.io/d/OCEn0c6j)
+
+让gpt初步的vibe了一个恢复L2R2放技能的mod，steam那个输入层换个手柄就要重新设置一次那还是没mod好使
+
+之后更新了会放新的链接，给有需要的人尝个鲜
+
+
+*****
+
+####  空洞骑士  
+##### 344#       发表于 2026-10-18 14:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381613&amp;ptid=2280008" target="_blank">火红之眼 发表于 2026-10-16 13:35</a>
+
+白金了，要不是TOE被研究得够透彻，白金难度在系列里也算高的了，得亏有内挂没啥作业量，难的全是小游戏 ...</blockquote>
+请教个问题，全魔物图鉴的奖杯是只要遇到就可以，还是必须要用放大镜调查弱点才算完成？
+
+
+*****
+
+####  火红之眼  
+##### 345#       发表于 2026-10-18 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391048&amp;ptid=2280008" target="_blank">空洞骑士 发表于 2026-10-18 14:03</a>
+
+请教个问题，全魔物图鉴的奖杯是只要遇到就可以，还是必须要用放大镜调查弱点才算完成？ ...</blockquote>
+我一直放大镜，到补剩下十来个的时候刻意没用，也达成了，所以应该是遇到过就可以了
+
+
+*****
+
+####  空洞骑士  
+##### 346#       发表于 2026-10-18 15:09
+
+<blockquote>火红之眼 发表于 2026-10-18 14:39
+我一直放大镜，到补剩下十来个的时候刻意没用，也达成了，所以应该是遇到过就可以了 ...</blockquote>
+感谢解答。不用全调查能省点事了。那几个小游戏已经够头大的了。
+
+
+*****
+
+####  阿菠萝13  
+##### 347#       发表于 2026-10-18 16:13
+
+重制版是不是把战斗画面插桢补帧搞到60帧了，印象中原版的战斗没这么丝滑
+
+
+*****
+
+####  river1981  
+##### 348#       发表于 2026-10-18 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382493&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-10-16 15:38</a>
+
+不慌 我一怒直接不买了 等真打折到80再见</blockquote>
+同错过临时工，先放心愿单，最近反正也没空玩
+
+
+*****
+
+####  海腹川背  
+##### 349#       发表于 2026-10-18 18:46
+
+20小时速通奖杯拿到了，可以慢慢玩了。前边玩得匆匆忙忙的。
+
+*****
+
+####  qiyu1234  
+##### 350#         楼主| 发表于 2026-10-18 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391413&amp;ptid=2280008" target="_blank">阿菠萝13 发表于 2026-10-18 16:13</a>
+
+重制版是不是把战斗画面插桢补帧搞到60帧了，印象中原版的战斗没这么丝滑 ...</blockquote>
+战斗60帧 和 部分角色贴图改绘 基本是沿用的PSP版
+
+
+*****
+
+####  xiaohao123  
+##### 351#       发表于 2026-10-18 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391413&amp;ptid=2280008" target="_blank">阿菠萝13 发表于 2026-10-18 16:13</a>
+
+重制版是不是把战斗画面插桢补帧搞到60帧了，印象中原版的战斗没这么丝滑 ...</blockquote>
+PSP版就是60帧了
+
+
+*****
+
+####  Xenor  
+##### 352#       发表于 2026-10-18 22:19
+
+觉得奥义特效有阉割回去看了下PSP版震惊了，PSP版比这重制高清多了，再切回来各种马赛克好不适应，前面说的都是幻觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在想着要是有人把PSP版汉化就香了
+
+
+*****
+
+####  qiyu1234  
+##### 353#         楼主| 发表于 2026-10-19 12:09
+
+复刻版大学问答题目
+
+【永恒传说新版问答攻略-哔哩哔哩】 https://b23.tv/D2bcGeI
+
+
+*****
+
+####  zzzzzzzenki  
+##### 354#       发表于 2026-10-19 16:46
+
+L1+O，X放技能好别扭啊，不能改成L2，R2嘛？
+
+
+*****
+
+####  空洞骑士  
+##### 355#       发表于 2026-10-20 19:14
+
+当年的功略书居然还有错误，学术之都敏兹的第二个透镜是在二楼的右侧房间的实验装置上。攻略书写成1楼了。<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+算了还是找日本的攻略网站吧。
+
+<img src="https://img.stage1st.com/forum/202610/20/191149qq8p92w811b51699.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (220.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 19:11 上传
+
+
+*****
+
+####  黒長直姫  
+##### 356#       发表于 2026-10-20 22:24
+
+是我老了还是显示器刷新率/手柄按键响应的问题怎么我利德连段好难取消啊，有些连段成功率只有70%，法拉好一点也只能到85%左右，经常同一时机按也取消不到
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  寺胖  
+##### 357#       发表于 2026-10-20 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402594&amp;ptid=2280008" target="_blank">黒長直姫 发表于 2026-10-20 22:24</a>
+
+是我老了还是显示器刷新率/手柄按键响应的问题怎么我利德连段好难取消啊，有些连段成功率只有70%，法拉好一 ...</blockquote>
+应该就是永恒的判定会严格一些吧，宿命2可能就有所放宽了，后面仙乐和深渊就更宽了
+
+
+*****
+
+####  黒長直姫  
+##### 358#       发表于 2026-10-21 07:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402910&amp;ptid=2280008" target="_blank">寺胖 发表于 2026-10-20 23:27</a>
+应该就是永恒的判定会严格一些吧，宿命2可能就有所放宽了，后面仙乐和深渊就更宽了 ...</blockquote>
+我以前半自动带手搓随便火龙炎舞的啊，现在半自动招都续不上了555
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  Xenor  
+##### 359#       发表于 2026-10-23 14:06
+
+cd1结束，流程竟然这么短才15小时，要玩得快估计6小时就够，而且看起来永恒的剧情也不砸地啊很一般，还不如仙乐深渊幻想，而且还把PDA给阉割了换成披风，井边那的续集直接就木了
+
+cd1小游戏就漂流难过，没有sl大法实在是麻烦
+
+这大学问答直接揭示了目标用户<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">L/R+ABXY玩伊苏过来的无感切换，反而更有感了
+
