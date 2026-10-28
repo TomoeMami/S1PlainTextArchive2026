@@ -2419,3 +2419,16 @@ Original interview and genga from Animage (May 2026).
 
 海报的5人就是全部战队成员了？红战士浪了10年才第一次失足不太信啊，还以为会意识备份重新造一个躯体复出的。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Toby_dak  
+##### 238#       发表于 2026-10-25 08:48
+
+<img src="https://img.stage1st.com/forum/202610/25/094804vbk20cd22l7e44ln.jpg" referrerpolicy="no-referrer">
+
+<strong>1000254660.jpg</strong> (344.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 08:48 上传
+
