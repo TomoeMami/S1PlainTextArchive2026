@@ -3172,3 +3172,12 @@ xbox才是爽玩完整版，而且现在花一样的钱得5倍pc玩家的氪金�
 
 这游戏真正的玩法还得是整蛊大漩涡啊，打浩劫40吃肥鲨的屎还是有点太恶心了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过有固定队友的话浩劫也能整蛊就是（）
 
+*****
+
+####  papermoonknight  
+##### 346#       发表于 2026-10-26 10:05
+
+泥潭有没有暗潮小队组织
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
