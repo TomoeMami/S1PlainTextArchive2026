@@ -619,3 +619,11 @@ bloober真王朝了
 
 <img src="https://p.sda1.dev/35/28a0b4d05c1cfcc84d451b1682b668d0/1000174932.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 72#         楼主| 发表于 2026-10-28 14:46
+
+据MP1st报道，目标定于2027年发售，首批参演的演员为Gabrielle Fritz、Jade Matthew
+[https://mp1st.com/news/report-si ... st-details-revealed](https://mp1st.com/news/report-silent-hill-1-remake-targeting-2027-release-first-cast-details-revealed)
+
