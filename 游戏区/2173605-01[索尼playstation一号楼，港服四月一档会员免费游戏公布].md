@@ -5748,3 +5748,81 @@ PS VR这个产品线应该是要埋了
 
 PlayStation PULSE Elevate无线音箱将于11月12日正式发售，预售现已开启。提供黑白两种配色，方便搭配PS5、PC或Mac的桌面环境。包装内含左右两只音箱、2根USB连接线、2个充电底座与PlayStation Link USB适配器。国行预售价是1748。
 
+*****
+
+####  SergeGlenn  
+##### 860#       发表于 2026-10-27 05:37
+
+怎么Suckerpunch也裁了26人
+
+据一名Sucker Punch前员工透露，已有26人被解雇。在一封Aftermath看到的发给员工的电子邮件中，工作室领导层表示：
+
+“在仔细观察市场挑战并审视我们下一个项目的团队需求后，我们决定进行一些人员裁减。因此，Sucker Punch的几个职位将被取消。”
+
+“我们知道这让人难以接受，我们想向你们保证，我们并非轻率做出这一决定。我们对此给予了大量关注，并努力在这一过渡期间尽可能支持受影响的同事。……无法回避的是，这是艰难的一天。下周我们将进一步说明未来的细节。”
+
+<img src="https://img.stage1st.com/forum/202610/27/053753wcmz95a9iv4ni3nk.jpg" referrerpolicy="no-referrer">
+
+<strong>1000013903.jpg</strong> (147.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-27 05:37 上传
+
+
+*****
+
+####  哈罗  
+##### 861#       发表于 2026-10-27 08:31
+
+听人说sp不搞并行项目，羊蹄山开发工作结束了，新作还在预开发，用不到那么多人，所以就裁员。我觉得这是屁话，又不是合同工，既然招了正式工，就要对他们负责，明明赚了不少还搞裁员，我觉得最大的可能就是ai冲击
+
+
+*****
+
+####  黑猫软  
+##### 862#       发表于 2026-10-28 23:37
+
+<img src="https://img.stage1st.com/forum/202610/28/233704y6s86668945wx9xw.jpg" referrerpolicy="no-referrer">
+
+<strong>HVumAvhXUAAhWKC.jpg</strong> (73.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-28 23:37 上传
+
+新配色
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 863#       发表于 2026-10-28 23:53
+
+楼上这图糊得过分了。实际是彩透，渲染图通透感不错还比较好看。
+
+<img src="https://img.stage1st.com/forum/202610/28/235343ki7roz7bmf7rxzyc.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (976.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 23:53 上传
+
+<img src="https://img.stage1st.com/forum/202610/28/235344sd7ltc71c7aet1rl.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (991.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 23:53 上传
+
+<img src="https://img.stage1st.com/forum/202610/28/235344dttzvj0dvbegqvsj.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (958.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 23:53 上传
+
