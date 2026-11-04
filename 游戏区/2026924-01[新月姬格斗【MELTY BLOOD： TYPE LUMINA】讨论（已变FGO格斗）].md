@@ -523,3 +523,10 @@ mbtw找咕哒小动画带货宣传顺带擦边球透露有五月先是挺惊喜�
 本来无印mb不就是五月线普通结局的后续 ...</blockquote>
 MBTL我记得设定是本篇的平行世界前传，本作就不知道是个啥了，感觉可能是平行世界歌月
 
+*****
+
+####  绷带绷得住  
+##### 584#       发表于 2026-11-1 09:06
+
+好久没更新了，上steam看了眼，mbtw是啥，新游戏吗？那mbtl还有没有更新了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
