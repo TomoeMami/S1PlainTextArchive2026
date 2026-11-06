@@ -1932,3 +1932,66 @@ QQ20260321-165505.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">他能不能只出思路，让别人画一画东亚重工的扩展漫啊
 
+*****
+
+####  中二小旋风  
+##### 187#       发表于 2026-11-3 22:35
+
+这画面也太他妈奇幻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/03/223334bsnndpwvsfyqdsqa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (197.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 22:33 上传
+
+<img src="https://img.stage1st.com/forum/202611/03/223404ax8fysslsuuufi7u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 22:34 上传
+
+<img src="https://img.stage1st.com/forum/202611/03/223440l0bbiju7mbb0ou0b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (89.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 22:34 上传
+
+
+*****
+
+####  中二小旋风  
+##### 188#       发表于 2026-11-3 22:44
+
+国王的这条项链像是blame后传中里出现过
+
+<img src="https://img.stage1st.com/forum/202611/03/224402vf1fa2nnjaw119wk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 22:44 上传
+
+<img src="https://img.stage1st.com/forum/202611/03/224406dlnnwelzixjjv6o6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 22:44 上传
+
+<img src="https://img.stage1st.com/forum/202611/03/224409bgum8rem8g5qaeup.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 22:44 上传
+
