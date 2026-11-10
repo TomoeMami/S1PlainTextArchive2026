@@ -3310,3 +3310,22 @@ https://www.exophase.com/game/persona-6-steam/achievements/
 続報を楽しみに待っていてくれ！
 <img src="https://p.sda1.dev/35/8667a0f3ee84f6b33a3d14ddfba9e780/1000174686.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 354#         楼主| 发表于 2026-11-8 00:49
+
+「PERSONA SUPER LIVE 2027 -全ての人の魂の願い-」
+[https://www.jvcmusic.co.jp/psl2027/](https://www.jvcmusic.co.jp/psl2027/)
+[https://p-ch.jp/news/26847/](https://p-ch.jp/news/26847/)
+
+<img src="https://i.111666.best/image/fjflxHiBVmROcGndSl121d.jpg" referrerpolicy="no-referrer">">
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 355#       发表于 2026-11-8 01:04
+
+手游主角都有，就是不带神乡玩
+
