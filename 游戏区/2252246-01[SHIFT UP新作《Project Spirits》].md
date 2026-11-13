@@ -438,3 +438,11 @@ PC、コンソール、モバイルのクロスプラットフォーム展開を
 
 •Shift Up 仍有尚未公开的新项目
 
+*****
+
+####  Piano-Forest  
+##### 48#         楼主| 发表于 2026-11-10 22:33
+
+新情报延期至27年公开
+[https://www.videogameschronicle. ... ts-until-next-year/](https://www.videogameschronicle.com/news/stellar-blade-studio-shift-up-says-it-wont-be-revealing-project-spirits-until-next-year/)
+
