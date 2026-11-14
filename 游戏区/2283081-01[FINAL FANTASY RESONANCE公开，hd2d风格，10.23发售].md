@@ -3208,3 +3208,3767 @@ FF16那个demo你们能看得出来行，也是厉害，光开头的不死鸟打
 100%同意，ff16的demo就是一泡屎，捏着鼻子玩了召唤兽对战实在玩不下去了，居然还有人说好 ...</blockquote>
 石榴主要是剧情炸裂，亲妈把全家都害了去改嫁，后来发现这特么能写个几百章狗血展开的剧情居然草草了事，单纯是亲妈就是个渣女<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+*****
+
+####  godless2020  
+##### 307#       发表于 2026-10-14 18:59
+
+《最终幻想：共鸣》首个媒体评分出炉！《Fami通》在最新一期杂志中为本作打出了36分的评价（9/9/9/9，满分40），由此成功进入白金殿堂。
+
+
+*****
+
+####  医生狼多  
+##### 308#         楼主| 发表于 2026-10-15 11:14
+
+《最终幻想：共鸣》的首篇官方评测已由《Famitsu》杂志发布！ - 9/9/9/9 [36/40]
+
+- 主线故事大约 20-30 小时
+- 完全通关需要 70 小时
+- 经典 JRPG 冒险
+
+
+*****
+
+####  godless2020  
+##### 309#       发表于 2026-10-15 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70375117&amp;ptid=2283081" target="_blank">医生狼多 发表于 2026-10-15 11:14</a>
+
+《最终幻想：共鸣》的首篇官方评测已由《Famitsu》杂志发布！ - 9/9/9/9 [36/40]
+
+- 主线故事大约 20-30 小 ...</blockquote>
+媒体评分啥时候出？？？
+
+
+*****
+
+####  密特罗德2026  
+##### 310#       发表于 2026-10-15 17:28
+
+<blockquote>医生狼多 发表于 2026-10-15 11:14
+《最终幻想：共鸣》的首篇官方评测已由《Famitsu》杂志发布！ - 9/9/9/9 [36/40]
+
+- 主线故事大约 20-30 小 ...</blockquote>
+那么短啊，感觉一下子不太想买了。。。demo随便打打就4-5个小时了
+
+
+*****
+
+####  黑暗之眼  
+##### 311#       发表于 2026-10-15 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377296&amp;ptid=2283081" target="_blank">密特罗德2026 发表于 2026-10-15 17:28</a>
+
+那么短啊，感觉一下子不太想买了。。。demo随便打打就4-5个小时了</blockquote>
+我demo还打了10.7小时呢，岂不是我就剩一半流程了？什么鬼算法
+
+
+*****
+
+####  asikies  
+##### 312#       发表于 2026-10-17 22:08
+
+又不能选主角性别啊，难道se还不清楚女性主人公的游戏更好卖吗？
+
+
+*****
+
+####  FBC档案部专员  
+##### 313#       发表于 2026-10-17 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389030&amp;ptid=2283081" target="_blank">asikies 发表于 2026-10-17 22:08</a>
+
+又不能选主角性别啊，难道se还不清楚女性主人公的游戏更好卖吗？</blockquote>
+对SE来说还真不是
+
+
+*****
+
+####  黑暗之眼  
+##### 314#       发表于 2026-10-17 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389030&amp;ptid=2283081" target="_blank">asikies 发表于 2026-10-17 22:08</a>
+
+又不能选主角性别啊，难道se还不清楚女性主人公的游戏更好卖吗？</blockquote>
+莫名其妙，又不是自捏主角选什么性别
+
+
+*****
+
+####  asikies  
+##### 315#       发表于 2026-10-17 23:23
+
+<blockquote>FBC档案部专员 发表于 2026-10-17 22:24
+对SE来说还真不是</blockquote>
+
+明明营收最高的是狒狒14，而这游戏女性角色比例远高于男性，男性角色已经撑不起ff游戏的销量了，一上来队里两男人太难蚌。
+
+
+*****
+
+####  asikies  
+##### 316#       发表于 2026-10-17 23:26
+
+大部分人玩八方也是舞女开局吧。
+
+
+*****
+
+####  asikies  
+##### 317#       发表于 2026-10-17 23:33
+
+不是新幻兵居然是一套调查问卷就能拿到吗？还以为会是一条完整支线，这游戏也太随便了……
+
+
+*****
+
+####  隔壁老黄  
+##### 318#       发表于 2026-10-17 23:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389330&amp;ptid=2283081" target="_blank">asikies 发表于 2026-10-17 23:23</a>
+明明营收最高的是狒狒14，而这游戏女性角色比例远高于男性，男性角色已经撑不起ff游戏的销量了，一上来队 ...</blockquote>
+拿网游比单机，你也挺牛逼的。你有没有想过单机游戏跟网游受众都不是一批人
+
+
+*****
+
+####  asikies  
+##### 319#       发表于 2026-10-18 01:24
+
+怎么幻兵大招又变回cg了，最大卖点不该是精美像素演出吗？
+
+
+*****
+
+####  ff2077  
+##### 320#       发表于 2026-10-20 21:32
+
+评分出了 mc85 大概就是演出好但主线不多（20小时）
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  医生狼多  
+##### 321#         楼主| 发表于 2026-10-20 21:55
+
+《最终幻想：共鸣》在经典IP的加持下，同时探索了HD-2D和最终幻想两个大类的边界，把这四个字所承载的视觉记忆和战斗乐趣，以另一种方式重新包装了起来。演出层面的投入让它拥有了HD-2D品类中少见的电影感，玩法上也提供了足够的构筑深度，20小时以内的紧凑主线，除了开篇有一些无聊之外，后续则让整个体验几乎不存在疲软段。即便游戏有很明显的拼凑感，但乐趣丝毫没有减弱。
+对于FF系列粉丝和寻求一部短小精悍、老味纯正的JRPG的玩家来说，这是今年值得认真对待的一部作品；而放在SE探索HD-2D未来方向的谱系中看，它也是自《八方旅人2》以来最接近那个高度的一次尝试。 http://t.cn/AXjvb3YE
+
+
+*****
+
+####  白昼梦DD  
+##### 322#       发表于 2026-10-20 22:22
+
+别刷完幻兵没事干吧
+
+
+*****
+
+####  炯Ⅺ  
+##### 323#       发表于 2026-10-20 22:43
+
+我光是demo都打了十几个小时了，正式版各种内容全玩的话，应该不会太短吧？
+
+—— 来自 OnePlus PKX110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  horacio  
+##### 324#       发表于 2026-10-20 22:59
+
+我玩完试玩感觉怎么都不会短,结果主线就20小时,我猜就是幻兵每个人都要练满拿技能,再打几个隐藏boss,但是有没自动战斗..<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑暗之眼  
+##### 325#       发表于 2026-10-20 23:02
+
+FAMI通之前不是都写了，主线20-30小时，完全通关70小时，参考一下不就好了
+
+
+*****
+
+####  白昼梦DD  
+##### 326#       发表于 2026-10-20 23:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fami通算法别是机械化刷幻兵就几十小时了
+
+
+*****
+
+####  黑暗之眼  
+##### 327#       发表于 2026-10-20 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402846&amp;ptid=2283081" target="_blank">白昼梦DD 发表于 2026-10-20 23:16</a>
+
+fami通算法别是机械化刷幻兵就几十小时了</blockquote>
+你非要这么以为那怎么都没办法的了，甚至DEMO你也能搞出来70小时，然后newgame即通关
+
+
+*****
+
+####  白昼梦DD  
+##### 328#       发表于 2026-10-20 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402888&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-10-20 23:22</a>
+你非要这么以为那怎么都没办法的了，甚至DEMO你也能搞出来70小时，然后newgame即通关 ...</blockquote>
+评语就说个时长又不说流程外挑战 那肯定怎么不乐观怎么来啊
+
+
+*****
+
+####  diectt  
+##### 329#       发表于 2026-10-20 23:36
+
+ 本帖最后由 diectt 于 2026-10-20 23:40 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402764&amp;ptid=2283081" target="_blank">horacio 发表于 2026-10-20 22:59</a>
+
+我玩完试玩感觉怎么都不会短,结果主线就20小时,我猜就是幻兵每个人都要练满拿技能,再打几个隐藏boss,但是有 ...</blockquote>
+这个长度属于意料之中吧，demo第一个水晶，纯主线大概3h，做支线舔地图但是不刷幻兵，大概5h多
+
+一共6个水晶，加个收尾，纯主线大概20h，做做支线舔舔地图宝箱大概40-50h，加上刷幻兵，完全通关70h
+
+
+*****
+
+####  horacio  
+##### 330#       发表于 2026-10-20 23:52
+
+虽然手游很久前玩的，但是我记得主线还是有历代ff的neta，我一路推剧情挺久的，而且第一部的城镇越做越大，体量很大的，就怕se后面又开始缩水
+
+
+*****
+
+####  godless2020  
+##### 331#       发表于 2026-10-21 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402590&amp;ptid=2283081" target="_blank">白昼梦DD 发表于 2026-10-20 22:22</a>
+
+别刷完幻兵没事干吧</blockquote>
+隐藏BOSS有神龙 欧米茄 创世，贝希摩斯 血都是几百万的
+
+
+*****
+
+####  zechins  
+##### 332#       发表于 2026-10-21 11:02
+
+百补抽到券已经预购港版了，还是希望有积极的市场反馈吧，想看到用这套重置的1-6
+
+
+*****
+
+####  七月狼  
+##### 333#       发表于 2026-10-21 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263774&amp;ptid=2283081" target="_blank">银域放浪者 发表于 2026-9-21 08:01</a>
+
+为什么像素游戏要放立绘，无法理解</blockquote>
+像素游戏+高清立绘以我的理解应该算是HD2D游戏的一种刻意手法，让人脑对2D画面产生某种错位精致感，差不多跟CV演出和HD光影效果一个意思
+
+
+*****
+
+####  Evilgurren  
+##### 334#       发表于 2026-10-21 14:02
+
+怎么有的说主线是不到20小时有的说是20-30之间
+
+
+*****
+
+####  6688  
+##### 335#       发表于 2026-10-21 14:23
+
+拼多多在有八折卷的情况下能230元入手PS5版光碟
+
+
+*****
+
+####  黑暗之眼  
+##### 336#       发表于 2026-10-21 17:30
+
+FINAL FANTASY RESONANCE Trophy (奖杯) - PS5 - Exophase.com [https://www.exophase.com/game/fi ... psn/trophies/zh-CN/](https://www.exophase.com/game/final-fantasy-resonance-psn/trophies/zh-CN/)
+
+总共八章，没有难度杯和二周目杯。最难可能就打倒全部洞穴强敌，打完全部竞技场，以及打倒Omega Weapon。
+
+
+*****
+
+####  monolithsoft  
+##### 337#       发表于 2026-10-21 17:37
+
+这小地图提示圈起个什么卵用
+
+手机原版也有这个吗
+
+后面会有不遇敌的道具或技能吗
+
+
+*****
+
+####  saberserker  
+##### 338#       发表于 2026-10-21 17:41
+
+之前打完DEMO这演出搞得我真有点热血沸腾，结果这隔一月才出到现在这股购买冲动已经没了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  蟹粉小笼  
+##### 339#       发表于 2026-10-21 18:33
+
+实体发发货了，好快啊这次
+
+试玩版没玩，应该不存在试玩特典道具吧
+
+这次6月的艾略特最终boss场面也挺宏大的，这作看了点片段感觉战斗场面比艾略特那个豪华太多了，更不提和别的回合制比，希望好玩
+
+
+*****
+
+####  新HGCG  
+##### 340#       发表于 2026-10-22 15:33
+
+貌似是我头一次太空战士入首发 ​​​
+
+<img src="https://img.stage1st.com/forum/202610/22/153140lihj0x0j2uoqlegf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (828.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-22 15:31 上传
+
+
+*****
+
+####  喵喵叫的猫  
+##### 341#       发表于 2026-10-22 15:38
+
+ff老角色联动的见多了
+第一次见剧透这么彻底的 收个幻兵几句话把那一代主角身世甚至游戏的主要爆点都讲了
+玩过的老玩家可能会有感触吧 但真当现在所有人都玩通了所有ff前作吗
+
+
+*****
+
+####  新HGCG  
+##### 342#       发表于 2026-10-22 17:44
+
+暗雷精英怪是不是过分了点
+
+
+*****
+
+####  桐道悠  
+##### 343#       发表于 2026-10-22 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70407979&amp;ptid=2283081" target="_blank">喵喵叫的猫 发表于 2026-10-22 15:38</a>
+
+ff老角色联动的见多了
+
+第一次见剧透这么彻底的 收个幻兵几句话把那一代主角身世甚至游戏的主要爆点都讲了
+
+ ...</blockquote>
+如果面向新玩家，那就根本不会搞暗雷<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MR.McGillis  
+##### 344#       发表于 2026-10-22 19:52
+
+学习版又偷跑了
+
+
+*****
+
+####  caicaicai  
+##### 345#       发表于 2026-10-22 20:33
+
+<blockquote>MR.McGillis 发表于 2026-10-22 19:52
+学习版又偷跑了</blockquote>
+d加密哪有学习版
+
+
+*****
+
+####  shinnfin  
+##### 346#       发表于 2026-10-22 21:03
+
+蹲个评价
+
+
+*****
+
+####  黑暗之眼  
+##### 347#       发表于 2026-10-22 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409019&amp;ptid=2283081" target="_blank">MR.McGillis 发表于 2026-10-22 19:52</a>
+
+学习版又偷跑了</blockquote>
+那是NS版
+
+*****
+
+####  kirito_wst  
+##### 348#       发表于 2026-10-22 21:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">龟速推进中，可惜要上班不能打太晚
+
+（每个精英怪好像都有东西可以偷，这点挺好的，偷的时候顺便还能练练级
+
+
+*****
+
+####  新HGCG  
+##### 349#       发表于 2026-10-22 21:13
+
+水华是香菜？
+
+
+*****
+
+####  winder0707  
+##### 350#       发表于 2026-10-22 21:16
+
+<blockquote>caicaicai 发表于 2026-10-22 20:33
+d加密哪有学习版</blockquote>
+有ns1版的，都怪任天堂
+
+
+*****
+
+####  黑暗之眼  
+##### 351#       发表于 2026-10-23 00:43
+
+全屏和窗口分辨率最大只能1600*900，无边框反而可以撑满2560*1600……不知道怎么回事，DEMO的时候就这样。
+
+
+*****
+
+####  喵喵叫的猫  
+##### 352#       发表于 2026-10-23 04:12
+
+这算官方终于承认莉诺雅就是最终boss了吧 虽然大家都猜到了不知道有什么好否认的
+<img src="https://p.sda1.dev/35/26b0302a47749b7272cbbdd30d0aca18/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/6505cd4c0109686304663f1b03522c84/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/4de261066ffeb7d3d0b2bd93fdb0c9ed/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/4840265053a7093c4bdcf885c9c1f3e4/image.jpg" referrerpolicy="no-referrer">
+话说原先手游有这种透光光的东西吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">害我都不敢把游戏推荐给朋友了
+
+
+*****
+
+####  winder0707  
+##### 353#       发表于 2026-10-23 04:30
+
+<blockquote>喵喵叫的猫 发表于 2026-10-23 04:12
+这算官方终于承认莉诺雅就是最终boss了吧 虽然大家都猜到了不知道有什么好否认的
+
+</blockquote>
+无谓的担心，好比玩机战担心没看过的动画剧透一样。现在还担心剧透ff正传的系列
+
+
+*****
+
+####  laosai13  
+##### 354#       发表于 2026-10-23 04:53
+
+蹲个评价，后续剧情怎么样，demo玩了快10小时还不错
+
+
+*****
+
+####  黑暗之眼  
+##### 355#       发表于 2026-10-23 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70410244&amp;ptid=2283081" target="_blank">喵喵叫的猫 发表于 2026-10-23 04:12</a>
+这算官方终于承认莉诺雅就是最终boss了吧 虽然大家都猜到了不知道有什么好否认的</blockquote>
+机战还给你演一遍呢，有影响吗？根本没有，想太多
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  隔壁老黄  
+##### 356#       发表于 2026-10-23 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70410244&amp;ptid=2283081" target="_blank">喵喵叫的猫 发表于 2026-10-23 04:12</a>
+这算官方终于承认莉诺雅就是最终boss了吧 虽然大家都猜到了不知道有什么好否认的</blockquote>
+是也不是，不然最终战打魔女哪还能用莉诺雅。就像异度装甲最后是打艾蕾海姆，十字架剧情后，直到通关都不能用艾莉了
+
+
+*****
+
+####  DARK_HGCG  
+##### 357#       发表于 2026-10-23 12:20
+
+1代主角的物理反击是不是最好人手一个？
+
+
+*****
+
+####  桐道悠  
+##### 358#       发表于 2026-10-23 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411746&amp;ptid=2283081" target="_blank">DARK_HGCG 发表于 2026-10-23 12:20</a>
+
+1代主角的物理反击是不是最好人手一个？</blockquote>
+至少我打demo的狮蝎是用这个打的
+
+
+*****
+
+####  无限未来  
+##### 359#       发表于 2026-10-23 14:17
+
+正式版还是没有怪物图鉴？明明每种怪都做了偷窃掉落……<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blueelf  
+##### 360#       发表于 2026-10-23 14:21
+
+<blockquote>白昼梦DD 发表于 2026-10-20 23:16
+fami通算法别是机械化刷幻兵就几十小时了</blockquote>
+B站评测，在沼泽刷大仙人掌，4到5场战斗就可以刷满一个幻兵，全部刷完用了4个小时
+
+
+*****
+
+####  Vladimeow  
+##### 361#       发表于 2026-10-23 14:22
+
+之前没玩demo，这演出真是爆杀八方旅人了，这才是HD2D应有的品质嘛
+
+
+*****
+
+####  达达达达葱  
+##### 362#       发表于 2026-10-23 14:31
+
+女主和魔女女主最终是算两个人还是一个
+
+
+*****
+
+####  a85982313  
+##### 363#       发表于 2026-10-23 15:53
+
+现在有收集攻略了吗
+
+
+*****
+
+####  黑暗之眼  
+##### 364#       发表于 2026-10-23 16:45
+
+ 本帖最后由 黑暗之眼 于 2026-10-23 16:47 编辑 
+
+链接:[https://pan.baidu.com/s/14UXoaYmF_lEL1BWd9UfT4Q?pwd=r919](https://pan.baidu.com/s/14UXoaYmF_lEL1BWd9UfT4Q?pwd=r919) 提取码:r919 
+
+官方公式攻略本，在FF文件夹里，解压密码：finalfantasy。还有些乱七八糟的可以自取
+
+
+*****
+
+####  liuqy  
+##### 365#       发表于 2026-10-23 18:48
+
+96%好评如潮了，知道评价会不错，没想到这么高
+
+
+*****
+
+####  新HGCG  
+##### 366#       发表于 2026-10-23 20:00
+
+FF8男主的大招是断空光牙剑吗！
+
+
+*****
+
+####  黑暗之眼  
+##### 367#       发表于 2026-10-23 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413785&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-23 20:00</a>
+
+FF8男主的大招是断空光牙剑吗！</blockquote>
+只是倒数第二招，狮子心都不是，不知道有没有
+
+
+*****
+
+####  跑调跑掉  
+##### 368#       发表于 2026-10-23 21:03
+
+<blockquote>liuqy 发表于 2026-10-23 18:48
+96%好评如潮了，知道评价会不错，没想到这么高</blockquote>
+主要是jrpg老ass在评价，要是之后能吸引到一些新玩家，基本上都会降，吸得越多降得越多。se这几年的中规格制作经常这样，能稳住jrpg核心体验，但毕竟老害设计还是影响不小
+
+
+*****
+
+####  新HGCG  
+##### 369#       发表于 2026-10-23 21:15
+
+我个人觉得
+
+FF1主角（物理反击）和FF8男主（平砍回蓝），还有上来给的黑魔法师（破防回蓝），应该所有人都轮一遍到5级
+
+
+*****
+
+####  前田利家  
+##### 370#       发表于 2026-10-23 21:24
+
+真好玩啊，demo我就玩了挺久，今天打完第二章了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  新HGCG  
+##### 371#       发表于 2026-10-23 21:25
+
+水华果然是香菜？
+
+
+*****
+
+####  孔方兄  
+##### 372#       发表于 2026-10-23 21:35
+
+有人打完了吗，剧情咋样，能有普通水平，不喂屎，马上就下单
+
+
+*****
+
+####  猪突猛进R  
+##### 373#       发表于 2026-10-23 22:05
+
+风灵修改器出了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 374#       发表于 2026-10-23 22:14
+
+那个梅赛德斯能收吗？
+
+
+*****
+
+####  花火碳  
+##### 375#       发表于 2026-10-23 23:16
+
+建议前期所有人都把所有职业先练到4级拿个AP+8顺便蹭点永续加成，4级之前涨得飞快，早拿不亏
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Booorunestud  
+##### 376#       发表于 2026-10-23 23:58
+
+刚打完塞壬，目前除了暗雷没什么缺点
+
+
+*****
+
+####  喵喵叫的猫  
+##### 377#       发表于 2026-10-24 01:55
+
+话说有玩ps5版的画面闪烁吗
+不是整屏闪 有时候一些物件画面元素闪 偶发性的
+我还以为我hdmi线的问题刚买了新的换上还是一样 pssr vrr之类的都关了还是不行
+
+
+*****
+
+####  suzakushi  
+##### 378#       发表于 2026-10-24 02:16
+
+打完水都了，<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">演出太细致就导致风神殿明明都打败了boss结果boss又慢悠悠从主角团脸上飞过去把水晶爆了，和水神殿打倒boss看着boss若无其事地传走这种剧情好诡异。
+
+
+*****
+
+####  YukariK  
+##### 379#       发表于 2026-10-24 05:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414946&amp;ptid=2283081" target="_blank">suzakushi 发表于 2026-10-24 02:16</a>
+
+打完水都了，演出太细致就导致风神殿明明都打败了boss结果boss又慢悠悠从主角团脸上飞过去把水晶爆了，和水 ...</blockquote>
+还好吧，我没玩过手游，风神殿这段给我的感觉就像是二人联手只是打落了天风面具，并没有造成什么实质伤害，而天风也并没有要干掉两人的想法，只是为了破坏水晶，甚至有些引导主角团的意思。我也能大致猜到其他骑士的身份了。
+
+
+*****
+
+####  thinkideas  
+##### 380#       发表于 2026-10-24 07:26
+
+玩这个会剧透最终幻想正传1-6的剧情吗？
+
+
+*****
+
+####  YukariK  
+##### 381#       发表于 2026-10-24 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415195&amp;ptid=2283081" target="_blank">thinkideas 发表于 2026-10-24 07:26</a>
+
+玩这个会剧透最终幻想正传1-6的剧情吗？</blockquote>
+稍微有一点，在获取每个前代主角的幻兵时，会问你三个问题，大致模版就是xxx现在处于一个什么样的世界里，遭遇了什么事情，如果是你，你会怎么做。有些问题会剧透角色身世。但另一方面来说如果能在没玩过前作的情况下将三个问题全都回答的跟作品走向相同，我个人会想要去专门补一下这一作。
+
+
+*****
+
+####  eilot  
+##### 382#       发表于 2026-10-24 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409019&amp;ptid=2283081" target="_blank">MR.McGillis 发表于 2026-10-22 19:52</a>
+
+学习版又偷跑了</blockquote>
+hypervisior版也剛出現
+
+
+*****
+
+####  新HGCG  
+##### 383#       发表于 2026-10-24 09:44
+
+替身的招式，是看装备者的物攻法攻还是跟着替身走的
+
+
+*****
+
+####  黑暗之眼  
+##### 384#       发表于 2026-10-24 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415486&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-24 09:44</a>
+
+替身的招式，是看装备者的物攻法攻还是跟着替身走的</blockquote>
+幻兵没有能力属性这回事，应该是看装备者的。另外还要单独提一下的，光魔法是单独看神圣力的，不看魔攻
+
+
+*****
+
+####  suzakushi  
+##### 385#       发表于 2026-10-24 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415086&amp;ptid=2283081" target="_blank">YukariK 发表于 2026-10-24 05:04</a>
+还好吧，我没玩过手游，风神殿这段给我的感觉就像是二人联手只是打落了天风面具，并没有造成什么实质伤害 ...</blockquote>
+主要还是主角团什么都不做有点出戏。boss确实是对主角团死活毫无关心，水神殿门口一个水泡放倒全队就直接走掉了。
+
+
+*****
+
+####  新HGCG  
+##### 386#       发表于 2026-10-24 12:32
+
+宝石怪太坑了，给全队上魔法反射，结果补血也反射
+
+
+*****
+
+####  asikies  
+##### 387#       发表于 2026-10-24 12:36
+
+战斗演出纯纯一坨好吧，怪物全是一动不动原地发呆发光，也就少数过场有点演出，结果也就开场唬人，看多了发现全是相同套路，制作水平不说那堆卷出来的国产2d回合手游，隔壁圣兽都吊起来抽好吧，顶着个ff名号，把最强hd2d作为卖点结果就这。
+
+
+*****
+
+####  diectt  
+##### 388#       发表于 2026-10-24 13:09
+
+ 本帖最后由 diectt 于 2026-10-24 13:11 编辑 
+
+我去。雷鸣山我没付那1000，是不是上面那条路再也去不了了？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+哦哦，发现另一个入口了
+
+
+*****
+
+####  新HGCG  
+##### 389#       发表于 2026-10-24 13:41
+
+人生第一款接触的FF是FF2的我此时泪流满面 ​​​
+
+<img src="https://img.stage1st.com/forum/202610/24/134047i4bdkms5rmq7n57m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (318.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:40 上传
+
+<img src="https://img.stage1st.com/forum/202610/24/134112qn1lo1qh13noq4ok.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (216.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:41 上传
+
+
+*****
+
+####  猪突猛进R  
+##### 390#       发表于 2026-10-24 13:54
+
+来个2代大地图BGM助助兴：
+[https://www.bilibili.com/video/B ... 234f500dab&amp;p=30](https://www.bilibili.com/video/BV1Yq4y1N7Ty/?vd_source=536aedbb68ee78d848fb8b234f500dab&amp;p=30)
+
+
+*****
+
+####  新HGCG  
+##### 391#       发表于 2026-10-24 13:58
+
+打完第四章做支线做着做着就有小姐姐替身了
+
+<img src="https://img.stage1st.com/forum/202610/24/135623n39ms11s1wawnw8m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (325.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:56 上传
+
+<img src="https://img.stage1st.com/forum/202610/24/135634vlhudguyjzg78hff.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (197.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:56 上传
+
+怎么还有个大叔啊我要发任务的那个小姐姐啊 ​​​
+
+<img src="https://img.stage1st.com/forum/202610/24/135711zor0rk7llzlglki0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (312.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:57 上传
+
+<img src="https://img.stage1st.com/forum/202610/24/135739lohmhqsiiz33nxbx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (214.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:57 上传
+
+
+*****
+
+####  requiem116  
+##### 392#       发表于 2026-10-24 14:07
+
+困难难度感觉还挺难的，开着两个经验倍率打的都有点吃力<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+光战的全体坦真的好强
+
+
+*****
+
+####  新HGCG  
+##### 393#       发表于 2026-10-24 14:10
+
+<img src="https://img.stage1st.com/forum/202610/24/140829ex7gzuxluxx05g8g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (169.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 14:08 上传
+
+<img src="https://img.stage1st.com/forum/202610/24/140855offs99hf694h6s7x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (380.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 14:08 上传
+
+<img src="https://img.stage1st.com/forum/202610/24/140952wvol9lauq37w9lxq.jpg" referrerpolicy="no-referrer">
+
+<strong>c43c6a55ccc5562d7e0a7fc0e19819a2.jpg</strong> (20.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 14:09 上传
+
+拿到飞空艇就能去打了
+
+刚拿飞空艇的时候是绝对打不过的 ​​​
+
+
+*****
+
+####  微尘众  
+##### 394#       发表于 2026-10-24 15:30
+
+体量多大啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  会长辅佐  
+##### 395#       发表于 2026-10-24 15:42
+
+一天过去了1300评价还是97好评
+
+
+*****
+
+####  隔壁老黄  
+##### 396#       发表于 2026-10-24 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416066&amp;ptid=2283081" target="_blank">asikies 发表于 2026-10-24 12:36</a>
+战斗演出纯纯一坨好吧，怪物全是一动不动原地发呆发光，也就少数过场有点演出，结果也就开场唬人，看多了发 ...</blockquote>
+分辨率跟圣兽没法比，这就是个像素游戏
+
+
+*****
+
+####  asikies  
+##### 397#       发表于 2026-10-24 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416769&amp;ptid=2283081" target="_blank">隔壁老黄 发表于 2026-10-24 16:14</a>
+
+分辨率跟圣兽没法比，这就是个像素游戏</blockquote>
+分辨率是少事，是动画严重不足，怪物甚至boss连个挥手挥刀这样的基本动作都没有，吹什么最强hd2d啊。
+
+
+*****
+
+####  requiem116  
+##### 398#       发表于 2026-10-24 17:14
+
+第二章就2个幻兵加一个幻兽吗？
+
+
+*****
+
+####  diectt  
+##### 399#       发表于 2026-10-24 17:25
+
+<blockquote>requiem116 发表于 2026-10-24 17:14
+第二章就2个幻兵加一个幻兽吗？</blockquote>
+也是3个幻兵，洋葱，吉坦，诺克提斯
+
+
+*****
+
+####  新HGCG  
+##### 400#       发表于 2026-10-24 17:31
+
+出现了一个
+
+粉红色的
+
+<img src="https://img.stage1st.com/forum/202610/24/172634tvbbmlmwpcppxlxm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (304.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 17:26 上传
+
+悠木碧配音的
+
+魔法少女(700岁+) ​​​
+
+<img src="https://p.sda1.dev/35/c00b810e12ecf7c6f8e397b7604ceef6/image.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  前田利家  
+##### 401#       发表于 2026-10-24 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416992&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-24 17:25</a>
+也是3个幻兵，洋葱，吉坦，诺克提斯</blockquote>
+请问
+洋葱在哪里，打到第四章了准备回去收
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  炯Ⅺ  
+##### 402#       发表于 2026-10-24 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417048&amp;ptid=2283081" target="_blank">前田利家 发表于 2026-10-24 17:42</a>
+请问
+洋葱在哪里，打到第四章了准备回去收</blockquote>
+雷鸣山有4个洞口，一个是主线剧情进的，一个是收召唤兽的，剩下两个一进一出的，出去了就是洋葱剑士的祠堂
+
+—— 来自 OnePlus PKX110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  黑暗之眼  
+##### 403#       发表于 2026-10-24 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417048&amp;ptid=2283081" target="_blank">前田利家 发表于 2026-10-24 17:42</a>
+请问
+洋葱在哪里，打到第四章了准备回去收</blockquote>
+风之神殿下面是个人字形的岔路口，走右边，一直穿过几座吊桥的下方到达地图下面，右手边还有一个雷鸣山的入口，进去之后沿着路走从另一边出来大地图就到了
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  隔壁老黄  
+##### 404#       发表于 2026-10-24 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416787&amp;ptid=2283081" target="_blank">asikies 发表于 2026-10-24 16:20</a>
+分辨率是少事，是动画严重不足，怪物甚至boss连个挥手挥刀这样的基本动作都没有，吹什么最强hd2d啊。 ...</blockquote>
+你就当是八方旅人的最终幻想版就是了，神马HD2D就离谱
+
+
+*****
+
+####  前田利家  
+##### 405#       发表于 2026-10-24 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417105&amp;ptid=2283081" target="_blank">炯Ⅺ 发表于 2026-10-24 17:55</a>
+雷鸣山有4个洞口，一个是主线剧情进的，一个是收召唤兽的，剩下两个一进一出的，出去了就是洋葱剑士的祠 ...</blockquote>
+多谢，我回去收
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  前田利家  
+##### 406#       发表于 2026-10-24 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417122&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-10-24 18:01</a>
+风之神殿下面是个人字形的岔路口，走右边，一直穿过几座吊桥的下方到达地图下面，右边还有一个雷鸣山的入 ...</blockquote>
+多谢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  requiem116  
+##### 407#       发表于 2026-10-24 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416992&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-24 17:25</a>
+
+也是3个幻兵，洋葱，吉坦，诺克提斯</blockquote>
+奇怪我咋把洋葱漏了，我就觉得不对劲
+
+
+*****
+
+####  requiem116  
+##### 408#       发表于 2026-10-24 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417105&amp;ptid=2283081" target="_blank">炯Ⅺ 发表于 2026-10-24 17:55</a>
+
+雷鸣山有4个洞口，一个是主线剧情进的，一个是收召唤兽的，剩下两个一进一出的，出去了就是洋葱剑士的祠 ...</blockquote>
+艹原来左边那条路下面是可以出去的，我还以为是死路<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DARK_HGCG  
+##### 409#       发表于 2026-10-24 18:50
+
+别看样子吓人血又多，一个不死鸟之羽直接送走
+
+<img src="https://img.stage1st.com/forum/202610/24/184957rl09tdeszesr39lq.jpg" referrerpolicy="no-referrer">
+
+<strong>31228.jpg</strong> (412.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 18:49 上传
+
+
+*****
+
+####  喵喵叫的猫  
+##### 410#       发表于 2026-10-24 21:10
+
+跳绳40回死活跳不过去<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">搜了下后面还有60回
+强化幻兵的“魔石”这个后期会有溢出吗
+都跳了1小时了
+
+
+*****
+
+####  新HGCG  
+##### 411#       发表于 2026-10-24 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417922&amp;ptid=2283081" target="_blank">喵喵叫的猫 发表于 2026-10-24 21:10</a>
+
+跳绳40回死活跳不过去搜了下后面还有60回
+
+强化幻兵的“魔石”这个后期会有溢出吗
+
+都跳了1小时了 ...</blockquote>
+斗技场打完初级后碎片无限可买
+
+打完中级后魔石无限可买
+
+打完上级后结晶无限可买
+
+
+*****
+
+####  hkguty  
+##### 412#       发表于 2026-10-25 01:53
+
+音乐真棒，各种优秀的钢琴曲
+
+
+*****
+
+####  喵喵叫的猫  
+##### 413#       发表于 2026-10-25 04:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418001&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-24 21:35</a>
+斗技场打完初级后碎片无限可买
+
+打完中级后魔石无限可买
+
+打完上级后结晶无限可买 ...</blockquote>
+感谢感谢
+睡起来翻攻略发现40回那个加速饰品好像只有这里能拿
+最后还是手动把60回给过了
+
+个人小技巧就是不要看叹号，看跳绳晃到最高点后开始往下走的一瞬间再按
+60回中间有好多随机的极慢节奏大多数都栽在这上面了
+当然这是建立在我ps5版体感有极大延迟的情况下 可能pc会好很多吧 
+
+60回之后可以有排行榜 不过是个人本地的也没奖励 ff9的苦就没必要再来一遍了 捏他什么不好捏他这玩意<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 414#       发表于 2026-10-25 10:06
+
+据说斗技场有个BUG
+
+<img src="https://img.stage1st.com/forum/202610/25/100407tabba5p41accpz4e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (214.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 10:04 上传
+
+打完初级第四战后不打第5场战斗而离开竞技场，第5场就会被标记为已完成，从无法获得奖品。
+
+而这个奖品是涉及召唤兽的
+
+
+*****
+
+####  conanoysq  
+##### 415#       发表于 2026-10-25 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413009&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-10-23 16:45</a>
+
+链接:https://pan.baidu.com/s/14UXoaYmF_lEL1BWd9UfT4Q?pwd=r919 提取码:r919 
+
+官方公式攻略本，在FF文件 ...</blockquote>
+这战斗系统比八方好太玩多了。收幻兵情怀拉满了，只要玩过其中一代，看到熟悉的情节是真的会“共鸣”<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+另外借364楼友的扫图让AI汉化了下地图，有点糊，放大了还是能看。
+
+「共鸣地图汉化」
+
+链接：[https://pan.quark.cn/s/c71b305dc647](https://pan.quark.cn/s/c71b305dc647)
+
+提取码：U4LM
+
+
+*****
+
+####  kirito_wst  
+##### 416#       发表于 2026-10-25 11:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">被拉去干活，只能闲暇时间刷刷岛上的仙人掌了，感觉效率好低，还是得龙颚岛那个出口好刷
+
+*****
+
+####  diectt  
+##### 417#       发表于 2026-10-25 11:23
+
+跳绳有点变态，搞不定，放弃了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  u2deack  
+##### 418#       发表于 2026-10-25 11:23
+
+真的不是很懂为什么会没有震动
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  kirito_wst  
+##### 419#       发表于 2026-10-25 11:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">个人感觉跳绳还行，60次的时候每10次换一下节奏，注意下节奏变化那一下就行了
+
+（虽然我有一次58下断了，差点把手上的机器扔出去<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 420#       发表于 2026-10-25 11:29
+
+在金闪闪出现前
+
+宅圈里，他才是＂吉尔伽美什＂的代表吧 ​​​
+
+<img src="https://img.stage1st.com/forum/202610/25/111057qr2b2uv8az150dg5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (412.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 11:10 上传
+
+
+*****
+
+####  sosgame67  
+##### 421#       发表于 2026-10-25 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419320&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-25 11:29</a>
+
+在金闪闪出现前
+
+宅圈里，他才是＂吉尔伽美什＂的代表吧 ​​​</blockquote>
+蘑菇的那个金闪闪就是参考了ff的吉尔伽美什
+
+
+*****
+
+####  新HGCG  
+##### 422#       发表于 2026-10-25 11:52
+
+略感动
+
+<img src="https://img.stage1st.com/forum/202610/25/115215w4gqgv22qh2f0jhg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (309.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 11:52 上传
+
+<img src="https://img.stage1st.com/forum/202610/25/115223yc9chehqq4q4hdll.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (210.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 11:52 上传
+
+
+*****
+
+####  哎哟卧槽了  
+##### 423#       发表于 2026-10-25 11:54
+
+這作的劇情完整嗎？
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  黑暗之眼  
+##### 424#       发表于 2026-10-25 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419378&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-25 11:52</a>
+
+略感动</blockquote>
+天子传奇的天剑怕不是就抄的这个吧
+
+
+*****
+
+####  新HGCG  
+##### 425#       发表于 2026-10-25 13:00
+
+那么好看的精灵小姐姐居然不能加入 ​​​
+
+那么好看的精灵小姐姐居然不能加入 ​​​
+
+<img src="https://img.stage1st.com/forum/202610/25/125926o2hddtg6dn2y6hhr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (289.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 12:59 上传
+
+那么好看的精灵小姐姐居然不能加入 ​​​
+
+
+*****
+
+####  YukariK  
+##### 426#       发表于 2026-10-25 13:09
+
+商船是纯随机刷，还是要靠住旅店之类的操作刷？逛了大半天没见到了。
+
+
+*****
+
+####  新HGCG  
+##### 427#       发表于 2026-10-25 13:17
+
+几个建议学的替身技能
+
+1代主角 对物理反击
+
+2代主角 平砍全体攻击
+
+3代 投掷
+
+4代 对魔法反击
+
+5代 走路回血
+
+8代 两次攻击
+
+10代 必定最先行动
+
+11代 走路回蓝
+
+15代 必中4连击（打仙人掌必备）
+
+白送的黑魔 破防回蓝
+
+帝国的女仆 5回合内必中
+
+
+*****
+
+####  hkguty  
+##### 428#       发表于 2026-10-25 13:27
+
+这游戏到底做了手游的剧本里的几成剧情啊，感觉剧情也还行啊，音乐也很好，但是如果第一部才做了3-4成左右的话，那就是另一个FF7R那样让人难顶的大坑啊
+
+
+*****
+
+####  requiem116  
+##### 429#       发表于 2026-10-25 13:56
+
+之前玩手游把剧情都跳掉了，也不知道是不是本来就有
+
+各种历代要素拉满，感觉真的做的很用心
+
+希望还能再出下一步
+
+
+*****
+
+####  黑暗之眼  
+##### 430#       发表于 2026-10-25 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419728&amp;ptid=2283081" target="_blank">hkguty 发表于 2026-10-25 13:27</a>
+这游戏到底做了手游的剧本里的几成剧情啊，感觉剧情也还行啊，音乐也很好，但是如果第一部才做了3-4成左右 ...</blockquote>
+第一部重新编辑为有头有尾的一作，不像7R那样拆分
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  requiem116  
+##### 431#       发表于 2026-10-25 15:12
+
+有个缺点就是居然没做怪物图鉴，明明有不少精英怪都有独特偷盗物来着。b站看人做了个mod，不知道能不能移植到ns上
+
+
+*****
+
+####  新HGCG  
+##### 432#       发表于 2026-10-25 17:25
+
+联邦的黑色恶魔什么鬼
+
+<img src="https://img.stage1st.com/forum/202610/25/172355o6z3wt3n9w13jqde.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 17:23 上传
+
+
+*****
+
+####  kk酱  
+##### 433#       发表于 2026-10-25 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415307&amp;ptid=2283081" target="_blank">YukariK 发表于 2026-10-24 08:27</a>
+
+稍微有一点，在获取每个前代主角的幻兵时，会问你三个问题，大致模版就是xxx现在处于一个什么样的世界里 ...</blockquote>
+那我明明打了，然后老实选完居然和我说想法不一样也太搞了hhhh
+
+
+*****
+
+####  为了mf注册  
+##### 434#       发表于 2026-10-25 18:24
+
+真好啊，想起以前玩老ff的时光了
+
+
+*****
+
+####  火红之眼  
+##### 435#       发表于 2026-10-25 18:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">最高难度打斗技场最上级欧米茄也太折磨了.....前面两个贝爷和神龙都是连击对策，打几下就反几下，还能用坦克硬吃16下，这欧米茄芥末炸弹全体10000给T硬吃16下真是吃不下.....但不用16连究极那1400万血又实在是天文数字了点
+
+
+*****
+
+####  关二爷  
+##### 436#       发表于 2026-10-25 19:50
+
+游戏弱点伤害加成略低啊
+
+
+*****
+
+####  火红之眼  
+##### 437#       发表于 2026-10-25 19:55
+
+<img src="https://img.stage1st.com/forum/202610/25/195327ulbpddqxbdplb8bh.jpg" referrerpolicy="no-referrer">
+
+<strong>CC3ADE2B68843B17A783756AB2AA7ECF.jpg</strong> (692.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 19:53 上传
+
+最高难度过了，可以封盘了，真是磨到天荒地老......熬过反击模式就一帆风顺了，700w左右的时候崩防了一次打进斩杀线，可能带个专门破防的或者双法师会更好打一点，但这难度不上个全力承伤位也活不下来，速杀可能只能轻松难度了
+
+
+*****
+
+####  新HGCG  
+##### 438#       发表于 2026-10-25 20:31
+
+萨菲罗斯怎么打啊我60级还是被血虐
+
+
+*****
+
+####  火红之眼  
+##### 439#       发表于 2026-10-25 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420905&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-25 20:31</a>
+
+萨菲罗斯怎么打啊我60级还是被血虐</blockquote>
+P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上二级奥义都能速杀，P2实在不想配弱点属性的话对着抗性打也是可以的
+
+
+*****
+
+####  christiny  
+##### 440#       发表于 2026-10-25 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420363&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-25 17:25</a>
+
+联邦的黑色恶魔什么鬼</blockquote>
+原作里面是隶属于联邦的黑魔法师，世界第二强。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+人送外号，联邦的黑色恶魔。
+
+
+*****
+
+####  新HGCG  
+##### 441#       发表于 2026-10-25 22:19
+
+我知道怎么打了
+
+男主当坦，三个法师妹子在后面四连发
+
+
+*****
+
+####  Evilgurren  
+##### 442#       发表于 2026-10-25 23:01
+
+有wiki网站吗，好多精英不知道伤害类型，试错成本有点高
+
+
+*****
+
+####  为了mf注册  
+##### 443#       发表于 2026-10-25 23:04
+
+话说加人物属性的选项，选的不同对最后结果有影响吗？
+
+
+*****
+
+####  kirito_wst  
+##### 444#       发表于 2026-10-25 23:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">欧米茄过了，纯折磨王
+明天把剩下的东西清清就可以转steam版爽了
+
+—— 来自 HONOR AAK-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  kirito_wst  
+##### 445#       发表于 2026-10-25 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421467&amp;ptid=2283081" target="_blank">Evilgurren 发表于 2026-10-25 23:01</a>
+有wiki网站吗，好多精英不知道伤害类型，试错成本有点高</blockquote>
+前面楼有大佬发了攻略书，可以看着玩，少踩不少坑。
+不过这游戏大部分都可以通过等级压制碾过去<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  新HGCG  
+##### 446#       发表于 2026-10-26 00:32
+
+我的妈呀
+
+2代主角的两次行动太恐怖了
+
+配合8代的两次攻击就是四连砍
+
+配合14代的四连魔法就是八连炸
+
+想象一下魔法少女小圆的陨石八连砸
+
+
+*****
+
+####  琴酒  
+##### 447#       发表于 2026-10-26 06:34
+
+说个题外话 kickstarter在众筹ff1-3桌游
+[https://www.kickstarter.com/proj ... -fantasy-board-game](https://www.kickstarter.com/projects/kessent/origins-of-light-a-final-fantasy-board-game)
+
+
+*****
+
+####  新HGCG  
+##### 448#       发表于 2026-10-26 08:41
+
+魔法剑八连击有点恐怖啊……
+
+*****
+
+####  ztkong  
+##### 449#       发表于 2026-10-26 08:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419664&amp;ptid=2283081" target="_blank">YukariK 发表于 2026-10-25 13:09</a>
+
+商船是纯随机刷，还是要靠住旅店之类的操作刷？逛了大半天没见到了。</blockquote>
+商船有固定点位。。。只会在一个小范围区域内出没的。一共也就几次，买完就没了
+
+
+*****
+
+####  ztkong  
+##### 450#       发表于 2026-10-26 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420776&amp;ptid=2283081" target="_blank">火红之眼 发表于 2026-10-25 19:55</a>
+
+最高难度过了，可以封盘了，真是磨到天荒地老......熬过反击模式就一帆风顺了，700w左右的时候崩防了一次 ...</blockquote>
+求问这东西给的饰品是干啥用的，我就差这只了，血这么多有点不想打了都。==
+
+
+*****
+
+####  ztkong  
+##### 451#       发表于 2026-10-26 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419728&amp;ptid=2283081" target="_blank">hkguty 发表于 2026-10-25 13:27</a>
+
+这游戏到底做了手游的剧本里的几成剧情啊，感觉剧情也还行啊，音乐也很好，但是如果第一部才做了3-4成左右 ...</blockquote>
+手游原本结局是雷因决战后失踪，实际上去了另一个世界，然后第二部男二菲娜寻夫记<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">，这次改了成直接大团圆结局了。后面还有同等体量的3个大章节，第三部菲娜女主不带两个男主玩了2333，第四部大结局。
+
+
+*****
+
+####  隔壁老黄  
+##### 452#       发表于 2026-10-26 09:34
+
+刚打到第三章，军师加入龘龘提高战斗力啊，技工妹实在太特么鶸了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kirito_wst  
+##### 453#       发表于 2026-10-26 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422286&amp;ptid=2283081" target="_blank">ztkong 发表于 2026-10-26 08:44</a>
+求问这东西给的饰品是干啥用的，我就差这只了，血这么多有点不想打了都。== ...</blockquote>
+全技能魔法消耗变成1mp
+
+—— 来自 HONOR AAK-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  stoiorz  
+##### 454#       发表于 2026-10-26 10:23
+
+请问哪里刷mbp 经验比较好？一只50，刷满2300的太慢了。
+
+
+*****
+
+####  kirito_wst  
+##### 455#       发表于 2026-10-26 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422882&amp;ptid=2283081" target="_blank">stoiorz 发表于 2026-10-26 10:23</a>
+
+请问哪里刷mbp 经验比较好？一只50，刷满2300的太慢了。</blockquote>
+前期：封印石沙漠右下角刷小仙人掌
+
+没拿到飞空艇前：火山大陆右下角刷中仙人掌
+
+拿到飞空艇后：风大陆左边两块小岛靠上面那个岛，岛上就大仙人掌、恶魔花、杂兵三组遇敌
+
+55级左右之后：法尔姆王国下方找地方下飞空艇然后进右下那个洞，能穿过去就可以到达刷子天堂，穿过去的小岛只有金属大仙人掌、大仙人掌、金龟王三种。
+
+仙人掌系弱水、冰；金属系直接多段强杀，有陨石之后可以速杀；金龟王弱冰，有物理反击，直接冰魔法砸。
+
+
+*****
+
+####  kirito_wst  
+##### 456#       发表于 2026-10-26 11:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">其实第7章开头之后开始刷99级比较合适，幻兵全齐，双倍经验饰品也能在飞空艇上买到了
+
+
+*****
+
+####  ztkong  
+##### 457#       发表于 2026-10-26 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422632&amp;ptid=2283081" target="_blank">kirito_wst 发表于 2026-10-26 09:47</a>
+
+全技能魔法消耗变成1mp
+
+—— 来自 HONOR AAK-AN00, Android 17, 鹅球 v3.5.99-alpha</blockquote>
+还挺有用。。。那晚上还是去收了w<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  diectt  
+##### 458#       发表于 2026-10-26 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421467&amp;ptid=2283081" target="_blank">Evilgurren 发表于 2026-10-25 23:01</a>
+
+有wiki网站吗，好多精英不知道伤害类型，试错成本有点高</blockquote>
+其实不用试，克劳德有个技能是分析，带着这个技能开头用一下就行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stoiorz  
+##### 459#       发表于 2026-10-26 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70423650&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-26 12:29</a>
+
+其实不用试，克劳德有个技能是分析，带着这个技能开头用一下就行</blockquote>
+克劳德满了后可以用军师，军师固定技最下面是分析。
+
+老14有个技能是分析后的伤害+10%？对于刷固定怪有点效果。
+
+
+*****
+
+####  Evilgurren  
+##### 460#       发表于 2026-10-26 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70423650&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-26 12:29</a>
+
+其实不用试，克劳德有个技能是分析，带着这个技能开头用一下就行</blockquote>
+分析也看不了怪物出招到底是物理伤害还是魔法伤害，还有免疫的debuff图标不知道对应哪个技能
+
+
+*****
+
+####  火红之眼  
+##### 461#       发表于 2026-10-26 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422286&amp;ptid=2283081" target="_blank">ztkong 发表于 2026-10-26 08:44</a>
+
+求问这东西给的饰品是干啥用的，我就差这只了，血这么多有点不想打了都。== ...</blockquote>
+就MP消耗变1
+
+其实说多也不多，破防后一般都能灌半血，但破防前伤害灌多了进反击模式就要坐牢了
+
+
+*****
+
+####  zhai68  
+##### 462#       发表于 2026-10-26 14:41
+
+这次除了克劳德有分析技能，还有谁有分析技能么？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  kirito_wst  
+##### 463#       发表于 2026-10-26 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424265&amp;ptid=2283081" target="_blank">zhai68 发表于 2026-10-26 14:41</a>
+
+这次除了克劳德有分析技能，还有谁有分析技能么？
+
+—— 来自 S1Fun</blockquote>
+梵，莉亚，艾琳，彩花（后面三个都是原创角色)
+
+
+*****
+
+####  黑暗之眼  
+##### 464#       发表于 2026-10-26 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424265&amp;ptid=2283081" target="_blank">zhai68 发表于 2026-10-26 14:41</a>
+这次除了克劳德有分析技能，还有谁有分析技能么？
+
+—— 来自 S1Fun</blockquote>
+军师自带，幻兵配不过来上他也行
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  requiem116  
+##### 465#       发表于 2026-10-26 16:41
+
+看到坛友分享的汉化地图里面的以太涡轮真的是感觉梦回十几年前了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kokyou  
+##### 466#       发表于 2026-10-26 16:46
+
+说起来这个XX者就是FF13开始的那个什么B（破坏）、D（防卫）HJ等等那一套吧
+
+所以雷霆姐什么时候能收到啊，我现在到了火帝国，这个地图拿到了两个还没有……
+
+
+*****
+
+####  Ares  
+##### 467#       发表于 2026-10-26 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424265&amp;ptid=2283081" target="_blank">zhai68 发表于 2026-10-26 14:41</a>
+
+这次除了克劳德有分析技能，还有谁有分析技能么？
+
+—— 来自 S1Fun</blockquote>
+刚开始的那个白魔幻兵不是就有分析吗
+
+
+*****
+
+####  u2deack  
+##### 468#       发表于 2026-10-26 17:23
+
+开头那个雷鸣山不选付钱带路另一条需要上梯子的路是走不了了么还是之后可以解锁
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  黑暗之眼  
+##### 469#       发表于 2026-10-26 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425087&amp;ptid=2283081" target="_blank">u2deack 发表于 2026-10-26 17:23</a>
+
+开头那个雷鸣山不选付钱带路另一条需要上梯子的路是走不了了么还是之后可以解锁
+
+论坛助手,iPhone ...</blockquote>
+雷鸣山总共五个入口，别的入口可以绕回来从最上层放梯子，之后路就通了
+
+
+*****
+
+####  纪寞  
+##### 470#       发表于 2026-10-26 17:31
+
+有人算过魔法和物理各自能叠的最高倍率都是多少吗？
+
+
+*****
+
+####  新HGCG  
+##### 471#       发表于 2026-10-26 19:08
+
+死鬼将军的技能是伤害减少75%
+
+咕杀女骑士的技能是伤害减少15%
+
+这两个加起来岂不是受到的伤害只剩10%了吗
+
+这啥耸立在天空下的钢铁之城啊
+
+
+*****
+
+####  focus  
+##### 472#       发表于 2026-10-26 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425127&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-26 17:31</a>
+
+有人算过魔法和物理各自能叠的最高倍率都是多少吗？应该是魔法上限更高？这游戏有托付机会应该一个输出就够 ...</blockquote>
+体感最后应该是物理高点。陆行鸟造弱点后魔法剑8连，flare和ultima都只有4连。不过最后的电音蟑螂防御极高，打不满5个9
+
+
+*****
+
+####  大喇叭花田  
+##### 473#       发表于 2026-10-26 19:33
+
+所以选择什么难度游玩最合适？
+
+*****
+
+####  火红之眼  
+##### 474#       发表于 2026-10-26 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425582&amp;ptid=2283081" target="_blank">focus 发表于 2026-10-26 19:27</a>
+
+体感最后应该是物理高点。陆行鸟造弱点后魔法剑8连，flare和ultima都只有4连。不过最后的电音蟑螂防御极 ...</blockquote>
+欧米茄这种破防后倒是能陨石炸15-17w一次，樱的弱点加成下直接大雷电倒是能炸18-19w一次，物理暂时就试过破邪冰岚打20w一次
+
+
+*****
+
+####  focus  
+##### 475#       发表于 2026-10-26 19:50
+
+幻吧找的伤害公式和技能威力：
+
+伤害=0.6 × (等级 + 2) × F(r) x 技能威力x各种补正
+
+r=攻击/敌方防御
+
+当r
+
+F(r) = 0.5r 如果r &lt; 0.5
+
+r² 如果0.5 ≤ r &lt; 1
+
+8 / (1 + exp(1 − r)) − 3 如果 r ≥ 1
+
+这个式子是 8 除以 (1 + e 的 (1−r) 次方)，再减去 3
+
+当 r 很大时：exp(1-r) 趋近于 0，分母趋近 1，式子趋近于 5。
+
+就是说
+
+10级 500攻 平A 100防 伤害418
+
+10级1000攻平A 100防 伤害430
+
+10级 9999攻平A 100防 伤害432
+
+99级 9999攻平A1防 伤害3636
+
+99级 9999攻平A2000防 伤害3530
+
+99级 9999攻平A5000防 伤害2070
+
+99级 9999攻 平A9999防 伤害726
+
+平A公式 0.6X（级+2）X12X倍率
+
+倍率=上方公式
+
+平A威力 12
+
+1级魔法 17
+
+2级魔法 33
+
+3级魔法 55
+
+究极 80
+
+陨石 80
+
+核爆 70
+
+
+*****
+
+####  火红之眼  
+##### 476#       发表于 2026-10-26 20:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉极限伤害应该还是魔法了，魔力增幅能用在奥义上，2级奥义又全是高段数伤害，试过没怎么准备的情况下就打了接近百万伤害
+
+
+*****
+
+####  新HGCG  
+##### 477#       发表于 2026-10-26 20:27
+
+奥义槽怎么加啊
+
+
+*****
+
+####  requiem116  
+##### 478#       发表于 2026-10-26 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425797&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-26 20:27</a>
+
+奥义槽怎么加啊</blockquote>
+cloud自回+洋葱3倍按一下就涨不少了吧，还有用完奥义自回20想不起来是谁
+
+我看b站有人发过无限奥义循环的
+
+
+*****
+
+####  diectt  
+##### 479#       发表于 2026-10-26 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424919&amp;ptid=2283081" target="_blank">kokyou 发表于 2026-10-26 16:46</a>
+
+说起来这个XX者就是FF13开始的那个什么B（破坏）、D（防卫）HJ等等那一套吧
+
+所以雷霆姐什么时候能收到啊， ...</blockquote>
+火帝国这章结束，下一章就有雷霆了
+
+
+*****
+
+####  妄想中毒  
+##### 480#       发表于 2026-10-26 23:03
+
+看了一眼商店居然有个卖100的DLC，给1个皮肤和几个垃圾道具，这些破玩意也好意思卖100？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑暗之眼  
+##### 481#       发表于 2026-10-26 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426357&amp;ptid=2283081" target="_blank">妄想中毒 发表于 2026-10-26 23:03</a>
+
+看了一眼商店居然有个卖100的DLC，给1个皮肤和几个垃圾道具，这些破玩意也好意思卖100？ ...</blockquote>
+胸大的那个多一个极限技带CG的，为什么不好意思？
+
+
+*****
+
+####  黑暗之眼  
+##### 482#       发表于 2026-10-27 09:25
+
+跳绳比FF9还是简单多了，大多都是一次过。40次跳了3回， 60次也是十回以内搞定。失败的全花在适应突然变速上，个人感觉是听声音比看画面好判断些，一声绳子甩的风声，一声感叹号的“叮”，听破风声完了之后就按。
+
+（连续三次59次被绊倒还是很想摔手柄啊！！）
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  蟹粉小笼  
+##### 483#       发表于 2026-10-27 09:43
+
+宝箱有点不明显还蛮容易漏的，昨天第一个迷宫测试了下好像走路和疾跑对于遇敌率没有变化
+
+
+*****
+
+####  YukariK  
+##### 484#       发表于 2026-10-27 10:55
+
+还差一些挑战内容就全成就了，算上demo时长，专家难度预计60+小时结束，整体还不错，最后结局节奏安排有些差
+
+
+*****
+
+####  u2deack  
+##### 485#       发表于 2026-10-27 10:59
+
+做机械鸟修复的那些任务怪不给我出倒是猛出仙人掌，经验直接吃饱了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  kirito_wst  
+##### 486#       发表于 2026-10-27 10:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">希望能有dlc或者续作，以及等续作期间能整出有趣的mod来玩玩
+
+
+*****
+
+####  纪寞  
+##### 487#       发表于 2026-10-27 11:20
+
+刚看到别人用魔法aoe打自己人然后反射给boss的打法真没招了，怎么我就没想到这样的思路，这下奶妈真没存在的必要了，所有boss基本都能这么打吧，只要没锁血都活不过3轮
+
+
+*****
+
+####  桐道悠  
+##### 488#       发表于 2026-10-27 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428192&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-27 11:20</a>
+
+刚看到别人用魔法aoe打自己人然后反射给boss的打法真没招了，怎么我就没想到这样的思路，这下非自限的情况 ...</blockquote>
+这是老狒狒的基操啊......
+
+
+*****
+
+####  diectt  
+##### 489#       发表于 2026-10-27 11:41
+
+第五章末尾，飞空艇上有个蓝色的支线图标，可进去一看啥都没，现在第六章了还是这样，谁知道咋回事
+
+
+*****
+
+####  纪寞  
+##### 490#       发表于 2026-10-27 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428333&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-27 11:41</a>
+
+第五章末尾，飞空艇上有个蓝色的支线图标，可进去一看啥都没，现在第六章了还是这样，谁知道咋回事 ...</blockquote>
+飞空艇正中间的门可以到甲板上
+
+
+*****
+
+####  DARK_HGCG  
+##### 491#       发表于 2026-10-27 11:54
+
+私密马赛
+
+<img src="https://img.stage1st.com/forum/202610/27/115358fxbal3h666af7bqb.jpg" referrerpolicy="no-referrer">
+
+<strong>31364.jpg</strong> (295.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-27 11:53 上传
+
+*****
+
+####  diectt  
+##### 492#       发表于 2026-10-27 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428383&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-27 11:49</a>
+
+飞空艇正中间的门可以到甲板上</blockquote>
+看了，甲板上没任务啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纪寞  
+##### 493#       发表于 2026-10-27 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428432&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-27 11:56</a>
+
+看了，甲板上没任务啊</blockquote>
+奇怪，那我就不知道了，是不是有什么地方看漏了？
+
+
+*****
+
+####  喵喵叫的猫  
+##### 494#       发表于 2026-10-27 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428333&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-27 11:41</a>
+第五章末尾，飞空艇上有个蓝色的支线图标，可进去一看啥都没，现在第六章了还是这样，谁知道咋回事 ...</blockquote>
+试试不直接传送到飞艇
+从地上进飞艇 记得探测器改造的任务要这样才触发
+
+
+*****
+
+####  黑暗之眼  
+##### 495#       发表于 2026-10-27 12:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428192&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-27 11:20</a>
+刚看到别人用魔法aoe打自己人然后反射给boss的打法真没招了，怎么我就没想到这样的思路，这下非自限的情况 ...</blockquote>
+你看到魔法、道具、特技全都能指向敌我双方，就大概猜到能整出很多玩法了，除了反射，还有经典的一个复活物品直接秒杀不死系怪物
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  达达葱2  
+##### 496#       发表于 2026-10-27 12:27
+
+<blockquote>纪寞 发表于 2026-10-27 11:20
+刚看到别人用魔法aoe打自己人然后反射给boss的打法真没招了，怎么我就没想到这样的思路，这下非自限的情况 ...</blockquote>
+这么做有啥好处
+
+
+*****
+
+####  diectt  
+##### 497#       发表于 2026-10-27 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428439&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-27 11:56</a>
+
+奇怪，那我就不知道了，是不是有什么地方看漏了？</blockquote>
+重新开关下游戏图标没了，应该是个小bug<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  隔壁老黄  
+##### 498#       发表于 2026-10-27 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428192&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-27 11:20</a>
+刚看到别人用魔法aoe打自己人然后反射给boss的打法真没招了，怎么我就没想到这样的思路，这下非自限的情况 ...</blockquote>
+FF6魔导塔的杂兵全都会这招，给自己上反射然后给自己放大魔法，也会给你上反射，不给你用回复魔法
+
+*****
+
+####  隔壁老黄  
+##### 499#       发表于 2026-10-27 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428634&amp;ptid=2283081" target="_blank">达达葱2 发表于 2026-10-27 12:27</a>
+这么做有啥好处</blockquote>
+全体魔法可以连打四次
+
+
+*****
+
+####  达达葱2  
+##### 500#       发表于 2026-10-27 12:49
+
+<blockquote>隔壁老黄 发表于 2026-10-27 12:36
+全体魔法可以连打四次</blockquote>
+也就是说最多可以连打32次？
+
+
+*****
+
+####  focus  
+##### 501#       发表于 2026-10-27 12:51
+
+<blockquote>达达葱2 发表于 2026-10-27 12:49
+也就是说最多可以连打32次？</blockquote>
+对，好像还吃群体化高手增伤
+
+
+*****
+
+####  达达葱2  
+##### 502#       发表于 2026-10-27 12:53
+
+那么最快的给我方都上魔法反射的是哪个方法？召唤兽？
+
+其实找个坦加上魔法反射让他为全队承受就好了吧？
+
+
+*****
+
+####  liuqy  
+##### 503#       发表于 2026-10-27 13:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">玩多了感觉地图做的实在太烂了，探索感几乎等于0，感觉可以把迷宫里小地图取消了，反正都没有岔路。
+
+JRPG大部分绝对内容都不太多，砍掉一些复古的傻逼设计，全适应现代化的设计做出来的东西很多连宝宝巴士都不如，以后还是自带修改器，什么明雷暗雷、经验掉落、地图啥的让人自行调节好一点。
+
+*****
+
+####  focus  
+##### 504#       发表于 2026-10-27 13:20
+
+对，男主反射戒指+袒护全体就行了。w腕+魔法乱击+神官双次行动是16次魔法，每次劈30万，樱一次行动就480万伤害，上限太深不可测了
+
+
+*****
+
+####  DARK_HGCG  
+##### 505#       发表于 2026-10-27 13:25
+
+魔法输出，迅雷和魔人哪个更高
+
+
+*****
+
+####  萝卜迷  
+##### 506#       发表于 2026-10-27 13:52
+
+八颗水晶为什么只有六个铠甲人Boss
+
+还有两个呢
+
+
+*****
+
+####  隔壁老黄  
+##### 507#       发表于 2026-10-27 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428924&amp;ptid=2283081" target="_blank">DARK_HGCG 发表于 2026-10-27 13:25</a>
+魔法输出，迅雷和魔人哪个更高</blockquote>
+一起上
+
+
+*****
+
+####  godless2020  
+##### 508#       发表于 2026-10-27 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428900&amp;ptid=2283081" target="_blank">focus 发表于 2026-10-27 13:20</a>
+
+对，男主反射戒指+袒护全体就行了。w腕+魔法乱击+神官双次行动是16次魔法，每次劈30万，樱一次行动就480万 ...</blockquote>
+用樱是因为魔力最高吗？？想换魔女可不可以
+
+
+*****
+
+####  纪寞  
+##### 509#       发表于 2026-10-27 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429144&amp;ptid=2283081" target="_blank">godless2020 发表于 2026-10-27 14:17</a>
+
+用樱是因为魔力最高吗？？想换魔女可不可以</blockquote>
+樱应该是自己buff有倍率提升，而黑菲的倍率提升只在能力值上，按伤害公式这个能力值提升影响没那么大，所以是樱强。
+
+
+*****
+
+####  focus  
+##### 510#       发表于 2026-10-27 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429144&amp;ptid=2283081" target="_blank">godless2020 发表于 2026-10-27 14:17</a>
+
+用樱是因为魔力最高吗？？想换魔女可不可以</blockquote>
+当然可以。三个法师 樱&gt;魔人菲&gt;菲， 其实就两三个隐藏boss可能有点区别，其它都是溢出的。
+
+
+*****
+
+####  DARK_HGCG  
+##### 511#       发表于 2026-10-27 15:03
+
+<blockquote>纪寞 发表于 2026-10-27 14:20
+樱应该是自己buff有倍率提升，而黑菲的倍率提升只在能力值上，按伤害公式这个能力值提升影响没那么大，所 ...</blockquote>
+但是迅雷自身没有强力群攻魔法吧？
+
+
+*****
+
+####  纪寞  
+##### 512#       发表于 2026-10-27 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429405&amp;ptid=2283081" target="_blank">DARK_HGCG 发表于 2026-10-27 15:03</a>
+
+但是迅雷自身没有强力群攻魔法吧？</blockquote>
+让幻兵提供就行了，樱这buff无可替代
+
+
+*****
+
+####  DARK_HGCG  
+##### 513#       发表于 2026-10-27 15:21
+
+<blockquote>纪寞 发表于 2026-10-27 15:08
+让幻兵提供就行了，樱这buff无可替代</blockquote>
+有强力群攻魔法的幻兵求推荐
+
+缇娜？
+
+
+*****
+
+####  纪寞  
+##### 514#       发表于 2026-10-27 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429509&amp;ptid=2283081" target="_blank">DARK_HGCG 发表于 2026-10-27 15:21</a>
+
+有强力群攻魔法的幻兵求推荐
+
+缇娜？</blockquote>
+蒂娜、雅喵都能用吧，乌托托应该也能
+
+
+*****
+
+####  隔壁老黄  
+##### 515#       发表于 2026-10-27 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429509&amp;ptid=2283081" target="_blank">DARK_HGCG 发表于 2026-10-27 15:21</a>
+有强力群攻魔法的幻兵求推荐
+
+缇娜？</blockquote>
+用陨石啊
+
+
+*****
+
+####  requiem116  
+##### 516#       发表于 2026-10-27 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428896&amp;ptid=2283081" target="_blank">liuqy 发表于 2026-10-27 13:19</a>
+
+玩多了感觉地图做的实在太烂了，探索感几乎等于0，感觉可以把迷宫里小地图取消了，反正都没有岔路。
+
+JRPG ...</blockquote>
+其实我对现在这个迷宫地图接受度还挺不错的，已经不是以前年轻时候的热情和精力了
+
+就这我核查了下还有漏的地图碎片
+
+现在这个年头，暗雷+复杂迷宫那不是要被人喷死
+
+
+*****
+
+####  kokyou  
+##### 517#       发表于 2026-10-27 16:33
+
+<blockquote>隔壁老黄 发表于 2026-10-27 15:40
+用陨石啊</blockquote>
+三连命名的那种黑白魔法才能反射吧？陨石这种独立词条的可以吗，我还没试过。
+
+
+*****
+
+####  观世透  
+##### 518#       发表于 2026-10-27 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428192&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-27 11:20</a>
+
+刚看到别人用魔法aoe打自己人然后反射给boss的打法真没招了，怎么我就没想到这样的思路，这下非自限的情况 ...</blockquote>
+这算是最终幻想的基本操作吧
+
+
+*****
+
+####  隔壁老黄  
+##### 519#       发表于 2026-10-27 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429907&amp;ptid=2283081" target="_blank">kokyou 发表于 2026-10-27 16:33</a>
+三连命名的那种黑白魔法才能反射吧？陨石这种独立词条的可以吗，我还没试过。 ...</blockquote>
+陨石不就是黑魔法吗，我记得神马核爆陨石都是黑魔法，神圣是白魔法，反正雅兔的那些啥盟约魔法都能反弹
+
+*****
+
+####  liuqy  
+##### 520#       发表于 2026-10-27 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429849&amp;ptid=2283081" target="_blank">requiem116 发表于 2026-10-27 16:23</a>
+
+其实我对现在这个迷宫地图接受度还挺不错的，已经不是以前年轻时候的热情和精力了
+
+就这我核查了下还有漏 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">所以才要加开关啊，长时间纯暗雷加跑图玩久了肯定要红温的
+
+这游戏遇敌其实也不算高，而且可以先攻加陆行鸟逃跑顺便刷技能伤害，而且有些稀有怪出现率太低了，要刷的话巴不得他遇敌率高点
+
+
+*****
+
+####  liliguo1  
+##### 521#       发表于 2026-10-27 17:10
+
+<blockquote>focus 发表于 2026-10-27 12:51
+对，好像还吃群体化高手增伤</blockquote>
+群体化高手是那个魔法群体化不减威力的吧，应该说的是横扫全体？
+
+另外这么反射吃得到收束之理吗？
+
+*****
+
+####  diectt  
+##### 522#       发表于 2026-10-27 17:11
+
+<blockquote>liuqy 发表于 2026-10-27 16:57
+所以才要加开关啊，长时间纯暗雷加跑图玩久了肯定要红温的
+
+这游戏遇敌其实也不算高，而且可以先攻加陆行 ...</blockquote>
+配上竞技场饰品一个迷宫也就打几次怪，还好这游戏没图鉴，要不然运气不好正常打完图鉴都开不全
+
+有些游戏说起来是明雷，关键位置基本都有怪，要不打要不就是拉怪跑酷，反而容易漏宝箱
+
+
+*****
+
+####  Squall25  
+##### 523#       发表于 2026-10-27 17:21
+
+竞技场有遇敌率减半饰品后感觉还好，不过确实不如直接给开关。这又不是八方需要限制玩家探索高级区域。唯一需要限制玩家的只有龙之鄂，让龙之鄂把开关失效就行了。结果不遇敌饰品基本要最后才给
+
+
+*****
+
+####  隔壁老黄  
+##### 524#       发表于 2026-10-27 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430142&amp;ptid=2283081" target="_blank">liliguo1 发表于 2026-10-27 17:10</a>
+群体化高手是那个魔法群体化不减威力的吧，应该说的是横扫全体？
+
+另外这么反射吃得到收束之理吗？ ...</blockquote>
+吃得到，我试过了，全体化不减伤应该也能吃到，太特么暴力了，一次打十几万血，我还只是用普通属性魔法<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  requiem116  
+##### 525#       发表于 2026-10-27 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428900&amp;ptid=2283081" target="_blank">focus 发表于 2026-10-27 13:20</a>
+
+对，男主反射戒指+袒护全体就行了。w腕+魔法乱击+神官双次行动是16次魔法，每次劈30万，樱一次行动就480万 ...</blockquote>
+反射戒指是在啥时候拿到的
+
+
+*****
+
+####  隔壁老黄  
+##### 526#       发表于 2026-10-27 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430441&amp;ptid=2283081" target="_blank">requiem116 发表于 2026-10-27 18:16</a>
+反射戒指是在啥时候拿到的</blockquote>
+用召唤兽就行了，红玉洞那只
+
+
+*****
+
+####  新HGCG  
+##### 527#       发表于 2026-10-27 18:44
+
+不行，阿尔提玛这种带漫长特效的魔法不能反射
+
+14代的风魔法可以
+
+
+*****
+
+####  kokyou  
+##### 528#       发表于 2026-10-27 18:52
+
+<blockquote>隔壁老黄 发表于 2026-10-27 16:56
+陨石不就是黑魔法吗，我记得神马核爆陨石都是黑魔法，神圣是白魔法，反正雅修多拉的那些啥盟约魔法都能反 ...</blockquote>
+我知道陨石是黑魔法，我意思是这作是不是只有那种系列作三连命名的魔法才能反射。
+
+
+*****
+
+####  u2deack  
+##### 529#       发表于 2026-10-27 19:51
+
+幻兵男人太多了，我们最终幻想不是这样的世界<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  liliguo1  
+##### 530#       发表于 2026-10-27 19:53
+
+究极反不了，这就有点emmm
+
+
+*****
+
+####  隔壁老黄  
+##### 531#       发表于 2026-10-27 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430585&amp;ptid=2283081" target="_blank">kokyou 发表于 2026-10-27 18:52</a>
+我知道陨石是黑魔法，我意思是这作是不是只有那种系列作三连命名的魔法才能反射。 ...</blockquote>
+不是啊
+
+
+*****
+
+####  新HGCG  
+##### 532#       发表于 2026-10-27 20:09
+
+亲测
+
+基础的风水火地雷光暗都能反射
+
+核爆フレア可以反射
+
+阿尔提玛穿透反射盾不能反射，敌人开了反射盾也可以用阿尔提玛轰炸
+
+陨石无法自己选中自己无从谈反射
+
+FF14的无属性黑魔法穿透反射盾不能反射
+
+毒魔法可以反射
+
+重力魔法可以反射
+
+吸血吸蓝的魔法不能反射
+
+
+*****
+
+####  liliguo1  
+##### 533#       发表于 2026-10-27 20:17
+
+<blockquote>新HGCG 发表于 2026-10-27 20:09
+亲测
+
+基础的风水火地雷光暗都能反射
+
+核爆フレア可以反射
+</blockquote>
+补充一句，融毁（敌我双方全体火属性）不能反射
+
+
+*****
+
+####  wuliang  
+##### 534#       发表于 2026-10-27 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428192&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-27 11:20</a>
+
+刚看到别人用魔法aoe打自己人然后反射给boss的打法真没招了，怎么我就没想到这样的思路，这下非自限的情况 ...</blockquote>
+原作手游里面的经典套路
+
+
+*****
+
+####  liliguo1  
+##### 535#       发表于 2026-10-27 20:46
+
+哦我突然想明白了
+
+黑菲那有一招帕拉戴斯劳斯特
+
+会把暗属性倍率乘1.25，其他倍率乘0.75
+
+在这个前提下只要对面不吸收或者无效暗就拿暗魔法反射就行了
+
+
+*****
+
+####  YukariK  
+##### 536#       发表于 2026-10-27 22:40
+
+用魔菲当主C打过专家欧米伽了，还是疯狂反射好使。
+
+
+*****
+
+####  耶耶抛的岔  
+##### 537#       发表于 2026-10-27 22:58
+
+问下吉坦盗贼之证的偷窃增伤被动：
+
+偷窃次数看的是装备吉坦的角色的偷窃次数吗？其他人装备吉坦偷窃的次数会算进总次数里吗？没装备吉坦的角色偷窃成功会算进总次数里吗？
+
+
+*****
+
+####  bonnwang  
+##### 538#       发表于 2026-10-27 23:07
+
+这游戏没有二周目吗
+
+
+*****
+
+####  DARK_HGCG  
+##### 539#       发表于 2026-10-28 00:12
+
+男主当坦，迅雷输出，过了欧米茄
+
+<img src="https://img.stage1st.com/forum/202610/28/001225fm6uhbqs6z2tu5r2.jpg" referrerpolicy="no-referrer">
+
+<strong>31456.jpg</strong> (156.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 00:12 上传
+
+
+*****
+
+####  达达达达葱  
+##### 540#       发表于 2026-10-28 06:39
+
+<blockquote>u2deack 发表于 2026-10-27 19:51
+幻兵男人太多了，我们最终幻想不是这样的世界
+
+论坛助手,iPhone</blockquote>
+因为是历代主角为主吧
+
+
+*****
+
+####  DARK_HGCG  
+##### 541#       发表于 2026-10-28 06:43
+
+对了，收到艾琳后可以在甲板上找她做装备
+
+<img src="https://img.stage1st.com/forum/202610/28/064130vz00q99iiizpi8lz.jpg" referrerpolicy="no-referrer">
+
+<strong>31457.jpg</strong> (328.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 06:41 上传
+
+男主是一把减伤20%的剑，感觉比古代装备有用
+
+但是问题来了，减伤是怎么算的？
+
+我男主装备减伤20%的剑
+
+再装减伤15%的被动
+
+然后用减伤75%的主动
+
+怎么挨打还是掉血？
+
+
+*****
+
+####  diectt  
+##### 542#       发表于 2026-10-28 08:33
+
+刚反应过来，12武具之间的男主大剑挑战1阶段不就是标准的反射教程嘛，boss开场就给双方亲自上好反射<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  requiem116  
+##### 543#       发表于 2026-10-28 08:47
+
+感觉反射流更容易打出伤害，同等级下反射魔法比菜刀硬砍伤害高多了
+
+40级去打专家萨，物理只能打打酱油，全靠法术反射打
+
+
+*****
+
+####  requiem116  
+##### 544#       发表于 2026-10-28 08:52
+
+洋葱战士祠堂左边被山隔起来的那片飞地，在最左边那一小片几乎是必出中级仙人掌，再往左飞一点能刷出来大仙人掌，但是会出别的小怪。这两地方都是拿到飞空艇就能去，算是可以提前开刷了。中级仙人掌虽然ap少点，但是刷的更快，效率说不定还高点。
+
+
+*****
+
+####  隔壁老黄  
+##### 545#       发表于 2026-10-28 09:02
+
+40多级终于过了龙之颚去宝岛刷刷刷了<img src="https://static.stage1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+哪怕简单难度也是惊险刺激<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  godless2020  
+##### 546#       发表于 2026-10-28 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432215&amp;ptid=2283081" target="_blank">requiem116 发表于 2026-10-28 08:47</a>
+
+感觉反射流更容易打出伤害，同等级下反射魔法比菜刀硬砍伤害高多了
+
+40级去打专家萨，物理只能打打酱油，全 ...</blockquote>
+反射流，男主是不是不穿盔甲，更容易打出反射伤害？？？
+
+
+*****
+
+####  ff2077  
+##### 547#       发表于 2026-10-28 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431477&amp;ptid=2283081" target="_blank">bonnwang 发表于 2026-10-27 23:07</a>
+这游戏没有二周目吗</blockquote>
+没
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  requiem116  
+##### 548#       发表于 2026-10-28 09:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432305&amp;ptid=2283081" target="_blank">godless2020 发表于 2026-10-28 09:05</a>
+
+反射流，男主是不是不穿盔甲，更容易打出反射伤害？？？</blockquote>
+没有仔细测，感觉区别不大
+
+理由是主角身上有没有魔防buff的时候伤害差距不大
+
+被boss上了减魔防buff也没有明显的伤害增幅
+
+感觉还是给boss上减魔防提升比较明显
+
+看了别人视频，后面被动带齐直接魔法乱打都能99999了，男主状态应该不是很重要了
+
+
+*****
+
+####  Markorca  
+##### 549#       发表于 2026-10-28 09:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">问一下专家提丰怎么打，没几回合人就被吹完了，break打断也没用下回合还是会继续吹，队伍等级35跟对面一样，有啥特别的机制吗
+
+
+*****
+
+####  Squall25  
+##### 550#       发表于 2026-10-28 09:49
+
+<blockquote>godless2020 发表于 2026-10-28 09:05
+反射流，男主是不是不穿盔甲，更容易打出反射伤害？？？</blockquote>
+反射伤害感觉跟男主这个桩没关系，因为男主开守护也不会让伤害衰减。
+
+
+*****
+
+####  Squall25  
+##### 551#       发表于 2026-10-28 09:51
+
+<blockquote>隔壁老黄 发表于 2026-10-28 09:02
+40多级终于过了龙之颚去宝岛刷刷刷了
+
+哪怕简单难度也是惊险刺激</blockquote>
+
+我也是40多级进去的，开专家难度过的。build成型后BOSS很容易砍死，小兵其实有投机取巧的方法，前面的吃即死，不吃的小机器吃强重力。魔法乱击+即死/强重力基本一轮就把对面砸死了。
+
+虽然还有两个都不吃的大怪，但好像吃石化，可以用泰坦（不过我没测试过）
+
+
+*****
+
+####  Squall25  
+##### 552#       发表于 2026-10-28 09:52
+
+<blockquote>DARK_HGCG 发表于 2026-10-28 06:43
+对了，收到艾琳后可以在甲板上找她做装备
+
+男主是一把减伤20%的剑，感觉比古代装备有用
+</blockquote>
+其实这里最好的感觉是军师和樱的武器，自带开局buff可以用到游戏结束……
+
+*****
+
+####  Squall25  
+##### 553#       发表于 2026-10-28 09:53
+
+<blockquote>u2deack 发表于 2026-10-27 19:51
+幻兵男人太多了，我们最终幻想不是这样的世界
+
+论坛助手,iPhone</blockquote>
+所以为了弥补主角都是男人的问题，这作剩下的npc幻兵除了将军和初始的黑魔，全都是给的女人……
+
+
+*****
+
+####  跑调跑掉  
+##### 554#       发表于 2026-10-28 11:04
+
+alinea估算steam+ps+xbox首发5天销量超40万。没有算上switch是因为他们拿不到数据吗？感觉算上switch可能能有50万，续作有望了
+
+
+*****
+
+####  达达达达葱  
+##### 555#       发表于 2026-10-28 13:08
+
+专家模式是敌人数值更高还是行动更加恶心？
+
+
+*****
+
+####  蟹粉小笼  
+##### 556#       发表于 2026-10-28 13:57
+
+<blockquote>达达达达葱 发表于 2026-10-28 13:08
+专家模式是敌人数值更高还是行动更加恶心？</blockquote>
+
+根据攻略站说法，专家模式怪物血量破防槽和伤害更高，玩家伤害更低
+
+Screenshot_20261028-135214~2.png
+(192 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 13:56 上传
+
+由手机上传
+
+<img src="https://img.stage1st.com/forum/202610/28/135622dpbfgabohs8gpsfn.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 557#       发表于 2026-10-28 18:43
+
+队友里最没用的是杰克吧
+
+大招都要消耗强运，根本无法连发
+
+
+*****
+
+####  隔壁老黄  
+##### 558#       发表于 2026-10-28 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432602&amp;ptid=2283081" target="_blank">Squall25 发表于 2026-10-28 09:51</a>
+我也是40多级进去的，开专家难度过的。build成型后BOSS很容易砍死，小兵其实有投机取巧的方法，前面的吃 ...</blockquote>
+专家难度要试错太多次了，毕竟一个不小心就被全灭，不分析又不知道怪的弱点。最刺激是碰到68级的元素精灵，以为万策尽结果发现不抗即死，偏偏即死可以用魔法乱放叠两次行动连放8次，硬生生把两只都给即死了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  隔壁老黄  
+##### 559#       发表于 2026-10-28 19:31
+
+男主搭塞西尔是不是最好？塞西尔自带反射，两次行动先给自己上反射再放全体替伤，撑过第一回合啥都灰飞烟灭了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  requiem116  
+##### 560#       发表于 2026-10-28 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435482&amp;ptid=2283081" target="_blank">隔壁老黄 发表于 2026-10-28 19:31</a>
+
+男主搭塞西尔是不是最好？塞西尔自带反射，两次行动先给自己上反射再放全体替伤，撑过第一回合啥都灰飞烟灭 ...</blockquote>
+jjc有反射戒指，省一步操作了
+
+
+*****
+
+####  新HGCG  
+##### 561#       发表于 2026-10-28 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435482&amp;ptid=2283081" target="_blank">隔壁老黄 发表于 2026-10-28 19:31</a>
+
+男主搭塞西尔是不是最好？塞西尔自带反射，两次行动先给自己上反射再放全体替伤，撑过第一回合啥都灰飞烟灭 ...</blockquote>
+咕杀女骑士吧，自带反射还有减伤
+
+
+*****
+
+####  达达达达葱  
+##### 562#       发表于 2026-10-29 06:50
+
+<blockquote>隔壁老黄 发表于 2026-10-28 19:28
+专家难度要试错太多次了，毕竟一个不小心就被全灭，不分析又不知道怪的弱点。最刺激是碰到68级的元素精灵 ...</blockquote>
+居然可以这样
+
+*****
+
+####  新HGCG  
+##### 563#       发表于 2026-10-29 07:22
+
+古武器感觉不如艾琳的武器
+
+艾琳的武器都是为各角色的特点量身定做的
+
+古武器就是数值高而已
+
+
+*****
+
+####  纪寞  
+##### 564#       发表于 2026-10-29 09:34
+
+看了一下原本手游ffbe的第二季剧情，假如这要做成单机感觉不好搞啊，双线叙事且视角切换很频繁，甚至有一个视角的队伍全是老登
+
+
+*****
+
+####  Squall25  
+##### 565#       发表于 2026-10-29 09:49
+
+<blockquote>新HGCG 发表于 2026-10-29 07:22
+古武器感觉不如艾琳的武器
+
+艾琳的武器都是为各角色的特点量身定做的
+
+比如主角的是减伤，小圆是上手魔法增伤 ...</blockquote>
+艾琳的武器很多都是自带开局buff，后期基本前几个回合就开秒了，浪费一两动上buff实在太麻烦了。
+
+而且有些古武给的增益我感觉有点幽默了，比如樱给弱点加伤，我个人暴论，都打弱点了，大概率单发都撞99999上限了，实在意义不大。
+
+
+*****
+
+####  隔壁老黄  
+##### 566#       发表于 2026-10-29 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437140&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-29 09:34</a>
+看了一下原本手游ffbe的第二季剧情，假如这要做成单机感觉不好搞啊，双线叙事且视角切换很频繁，甚至有一个 ...</blockquote>
+这不就是龙战士4吗
+
+
+*****
+
+####  行政裁定书  
+##### 567#       发表于 2026-10-29 10:16
+
+当年玩ffbe时候的攻略，很多可以复用吧。
+
+不过ffbe后面几季的剧情其实挺那啥的。不知道后面会不会调整
+
+
+*****
+
+####  kokyou  
+##### 568#       发表于 2026-10-29 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437140&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-29 09:34</a>
+
+看了一下原本手游ffbe的第二季剧情，假如这要做成单机感觉不好搞啊，双线叙事且视角切换很频繁，甚至有一个 ...</blockquote>
+弄成FF8那种，另一组直接套用对应能力？
+
+
+*****
+
+####  diectt  
+##### 569#       发表于 2026-10-29 12:44
+
+昨天在宝岛一晚上刷爽了，前期有点麻烦，等2个法师拿到陨石效率极其高，都是一回合带走，而且能力也是实打实的提升<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  u2deack  
+##### 570#       发表于 2026-10-29 13:27
+
+女仆为什么不能入队  谁要杰克这种啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  纪寞  
+##### 571#       发表于 2026-10-29 16:04
+
+不过这游戏就算销量到了例如八方这种的续作线，出续作也有一个很大的弊端是第二季剧情是紧跟第一季的， 不够独立，也就是刚需你玩过现作<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  requiem116  
+##### 572#       发表于 2026-10-29 16:14
+
+黑白菲娜分开的话主角团正好4男4女
+
+看人发的截图后面黑白菲娜可以分开？
+
+但是军师实在是太权威了
+
+
+*****
+
+####  eilot  
+##### 573#       发表于 2026-10-29 16:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437140&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-29 09:34</a>
+
+看了一下原本手游ffbe的第二季剧情，假如这要做成单机感觉不好搞啊，双线叙事且视角切换很频繁，甚至有一个 ...</blockquote>
+主要是第2部時世界觀大幅暴增，而且更有挖坑意圖
+
+雙線的話，要考慮最後期可使用角色數量如何編排
+
+當然某人的消失，隨便找個理由即可
+
+劇情長度也是問題，如果按20~30年前的寫劇本方法，有可能全部做出來
+
+但現在隨時給你砍成兩半，擔心後半階段會否以更新方式補回
+
+
+*****
+
+####  纪寞  
+##### 574#       发表于 2026-10-29 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439781&amp;ptid=2283081" target="_blank">eilot 发表于 2026-10-29 16:44</a>
+
+主要是第2部時世界觀大幅暴增，而且更有挖坑意圖
+
+雙線的話，要考慮最後期可使用角色數量如何編排
+
+當然某 ...</blockquote>
+而且按原版第二季，两线队伍每边各6人也是一次给齐的，没有一个循序渐进的过程，这个也不好搞啊
+
+
+*****
+
+####  eilot  
+##### 575#       发表于 2026-10-29 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439867&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-29 16:55</a>
+
+而且按原版第二季，两线队伍每边各6人也是一次给齐的，没有一个循序渐进的过程，这个也不好搞啊 ...</blockquote>
+來一個更現實的問題
+
+雙線的話，在一周目時，裝備及道具應該如何處理好
+
+武器都是各家獨家都算，防具可是共通大家都能使用，加上還有幻兵的設計
+
+各自收集各自使用，直接初次合流後才能共享，
+
+但他們2隊可是經常分隊，甚至互組
+
+在組隊時換裝可是非常麻煩
+
+劇情方面，先要解釋開局時老年人他們那方的理由及出場原因
+
+而少年組(笑)就是解釋為何有人失蹤...應該沒那麼快就引入平行世界吧，雖然差不多2/3劇情後就會提到了...
+
+還有獨臀師傅、BOSS索爾他們也會加入，再之後更有新人出場更加入，
+
+來到最後又是強制找個理由分隊嗎?
+
+*****
+
+####  requiem116  
+##### 576#       发表于 2026-10-29 17:13
+
+话说ffbe现在有人在复活吗
+
+下了一个版本结果是墓志铭，只能看剧情和人物，没法正常游玩
+
+
+*****
+
+####  纪寞  
+##### 577#       发表于 2026-10-29 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439963&amp;ptid=2283081" target="_blank">eilot 发表于 2026-10-29 17:12</a>
+
+來一個更現實的問題
+
+雙線的話，在一周目時，裝備及道具應該如何處理好
+
+武器都是各家獨家都算，防具可是共 ...</blockquote>
+除了原始各队6人还有再追加的一人外，其他做成支援角色或者幻兵就行，主要还是双线这个真的不好搞，甚至按原版一个章节就可能切换3-4次视角。总之就是这个续作从框架上做成单机就是不好搞啊
+
+
+*****
+
+####  关二爷  
+##### 578#       发表于 2026-10-29 17:51
+
+会出dlc加幻兵吗
+
+
+*****
+
+####  requiem116  
+##### 579#       发表于 2026-10-29 20:45
+
+官方都庆祝了，应该卖的不错吧
+
+dlc要出也简单手游不是大把
+
+就是得带点新boss不然没啥意思了
+
+
+*****
+
+####  eilot  
+##### 580#       发表于 2026-10-29 22:22
+
+DLC的話
+
+可以給6主角的泳裝版，和加入泳裝的支線
+
+還有就是6主角的背後靈召喚獸(不是和召喚獸融合版，是另一版本)，前置是打了召喚獸支線
+
+之後就是全召喚獸給2星版本給你打
+
+召喚獸融合版就留給第2部吧
+
+12武的話，應該不會給你真12武，這個就是留來第2部吧
+
+3主角的專武及專用裝備關卡，應該也可以再補回
+
+
+*****
+
+####  DARK_HGCG  
+##### 581#       发表于 2026-10-29 22:32
+
+主线通关了
+
+因为99级所以最终boss那么多零件都是什么作用都不知道就赢了
+
+
+*****
+
+####  隔壁老黄  
+##### 582#       发表于 2026-10-30 09:51
+
+萨菲罗斯好强啊，装了后输出直接升了两个档次
+
+
+*****
+
+####  跑调跑掉  
+##### 583#       发表于 2026-10-30 09:56
+
+<blockquote>requiem116 发表于 2026-10-29 20:45
+官方都庆祝了，应该卖的不错吧
+
+dlc要出也简单手游不是大把
+
+就是得带点新boss不然没啥意思了 ...</blockquote>
+肯定挺好的，之前发售5天估算除switch平台外40万的时候，我说加上switch能有50万。结果光日本的switch系上算上数字版就卖了至少十几万。现在搞不好都超70万了
+
+
+*****
+
+####  纪寞  
+##### 584#       发表于 2026-10-30 15:57
+
+看完原版手游第二季的剧情了，只要不深究细节的话确实还好，就是某人的转变还是觉得有点神秘，还有最终boss过于小强，最后好几个形态，ff正作都没有过这么难缠的最终boss吧
+
+
+*****
+
+####  妄想中毒  
+##### 585#       发表于 2026-10-30 18:36
+
+前期专家难度玩起来没啥意思，难倒不难就是刮痧，小怪boss都得打半天
+
+
+*****
+
+####  bonnwang  
+##### 586#       发表于 2026-10-31 09:04
+
+发现很多boss主要还是吃机制，比如一阶段打完血条但还没轮到boss行动，再打就是0伤害，到boss行动了说几句话再触发二阶段，再打才能扣血，这个机制在近10年的ff里很明显。
+不像竞技场boss，没有二阶段，哪怕欧米加都能一直扣血直接轮死
+
+
+*****
+
+####  catabridge  
+##### 587#       发表于 2026-10-31 11:31
+
+[https://www.nexusmods.com/finalfantasyresonance/mods/119](https://www.nexusmods.com/finalfantasyresonance/mods/119) 
+
+终于有抗锯齿mod了
+
+2026了，还有没抗锯齿的游戏，SE神了
+
+
+*****
+
+####  X9999  
+##### 588#       发表于 2026-10-31 12:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">专家难度50级去龙之鄂遇到3只冬贝利太恐怖了，伤害太高直接被菜刀一刀剁死。。
+
+
+*****
+
+####  eilot  
+##### 589#       发表于 2026-10-31 15:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70447248&amp;ptid=2283081" target="_blank">bonnwang 发表于 2026-10-31 09:04</a>
+
+发现很多boss主要还是吃机制，比如一阶段打完血条但还没轮到boss行动，再打就是0伤害，到boss行动了说几句 ...</blockquote>
+原版第一季，甚至是12武那些BOSS都有數次血條，非常麻煩
+
+原版最麻煩的是，如果隊中沒有全體物理或魔法盾角，當觸發血條時，敵方回合就會發動多次全體秒殺級攻擊，那怕是最後期的角色都是捱不到
+
+特別是12武的BOSS，全部都有3~5次血條，打些少就封頂，之後就是全體物理攻擊，再下次血條時又可能是全體魔法攻擊，所以盾角都要帶2隻，一隻物理盾一隻魔法盾(兩種角色來...)，非常討厭，真12武就改為能直接殺了...
+
+
+*****
+
+####  大喇叭花田  
+##### 590#       发表于 2026-10-31 15:57
+
+这游戏有必要打专家难度吗？
+
+
+*****
+
+####  requiem116  
+##### 591#       发表于 2026-10-31 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70448768&amp;ptid=2283081" target="_blank">大喇叭花田 发表于 2026-10-31 15:57</a>
+
+这游戏有必要打专家难度吗？</blockquote>
+我觉得其实没啥必要<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+打的很累，基本上也就是调高了数值没啥别的变化
+
+
+*****
+
+####  requiem116  
+##### 592#       发表于 2026-10-31 21:53
+
+45小时通关专家模式，开了5倍经验和mrp，跑路速度加快
+
+说实话感觉专家模式不是很有必要，前期刷级在有5倍的情况下都很累
+
+魔法反射流实在是太逆天了后面跨级刷怪基本上都靠这个，伤害差不多放大10倍了
+
+还剩最后3个jjc和究极没打，十二武具终突感觉不是很重要而且好像只是单纯加了血量
+
+石板没有全收集但是懒得再跑图核对了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不知道后面会不会更新dlc
+
+剧情方面看了下手游剧情，这作把六盟杰基本上全杀了，后面手游第二部不是完全没法接上去了
+
+
+*****
+
+####  eilot  
+##### 593#       发表于 2026-10-31 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450024&amp;ptid=2283081" target="_blank">requiem116 发表于 2026-10-31 21:53</a>
+
+45小时通关专家模式，开了5倍经验和mrp，跑路速度加快
+
+说实话感觉专家模式不是很有必要，前期刷级在有5倍的 ...</blockquote>
+手遊第2季後半都開始玩多元宇宙平行世界
+
+真是出第2部的話，開局就是他們其實全是沒死透即可，又或者他們預先知道自己會被殺，所以全是假死
+
+另外火主也沒有失蹤吧...
+
+
+*****
+
+####  关二爷  
+##### 594#       发表于 2026-11-1 03:29
+
+有详细技能数据和机制的深度攻略了吗？
+b站刷了一堆一看都是翻老外的
+以我打游戏的经验看老外做很多深度机制和数值的攻略是不大行的
+
+
+*****
+
+####  requiem116  
+##### 595#       发表于 2026-11-1 09:40
+
+<blockquote>关二爷 发表于 2026-11-1 03:29
+有详细技能数据和机制的深度攻略了吗？
+
+b站刷了一堆一看都是翻老外的
+
+以我打游戏的经验看老外做很多深度机 ...</blockquote>
+https://ffrs.fireemblem.top/
+
+B站up主做的数据站
+
+
+*****
+
+####  大喇叭花田  
+##### 596#       发表于 2026-11-1 09:57
+
+<blockquote>妄想中毒 发表于 2026-10-30 18:36
+前期专家难度玩起来没啥意思，难倒不难就是刮痧，小怪boss都得打半天</blockquote>
+调成普通难度后游戏一路碾压过去了，专家太刮，普通太简单。
+
+
+*****
+
+####  黑暗之眼  
+##### 597#       发表于 2026-11-1 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450819&amp;ptid=2283081" target="_blank">关二爷 发表于 2026-11-1 03:29</a>
+
+有详细技能数据和机制的深度攻略了吗？
+
+b站刷了一堆一看都是翻老外的
+
+以我打游戏的经验看老外做很多深度机 ...</blockquote>
+除了伤害公式，官方本全都有了，去翻发售日当天的帖子我发过了。B站那个数据站也就是多一个还在测的伤害公式而已，甚至图鉴都没填完。
+
+
+*****
+
+####  关二爷  
+##### 598#       发表于 2026-11-1 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70451561&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-11-1 10:50</a>
+除了伤害公式，官方本全都有了，去翻发售日当天的帖子我发过了。B站那个数据站也就是多一个还在测的伤害 ...</blockquote>
+有技能的系数不
+
+
+*****
+
+####  黑暗之眼  
+##### 599#       发表于 2026-11-1 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70451776&amp;ptid=2283081" target="_blank">关二爷 发表于 2026-11-1 11:45</a>
+
+有技能的系数不</blockquote>
+有全部队友和幻兵具体每招的威力和Break值，数值，不是游戏里那种格子化的
+
+
+*****
+
+####  关二爷  
+##### 600#       发表于 2026-11-1 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70451859&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-11-1 12:10</a>
+
+有全部队友和幻兵具体每招的威力和Break值，数值，不是游戏里那种格子化的 ...</blockquote>
+ai真好用，把274张图片整成个pdf了~
+
+
+*****
+
+####  DARK_HGCG  
+##### 601#       发表于 2026-11-1 13:28
+
+有个坑爹的bug
+
+幻兵里有那种技能是＂开局三回合加防＂的
+
+如果装备的角色戴了＂常时加防＂的装备
+
+就会被覆盖变成只有开局三回合加防，超级坑
+
+
+*****
+
+####  纪寞  
+##### 602#       发表于 2026-11-1 15:05
+
+ 本帖最后由 纪寞 于 2026-11-1 15:06 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450024&amp;ptid=2283081" target="_blank">requiem116 发表于 2026-10-31 21:53</a>
+
+45小时通关专家模式，开了5倍经验和mrp，跑路速度加快
+
+说实话感觉专家模式不是很有必要，前期刷级在有5倍的 ...</blockquote>
+我记得原版手游第一季也是全杀了
+但是第二季开头很随便地就说魔菲把他们全复活了
+
+
+*****
+
+####  requiem116  
+##### 603#       发表于 2026-11-1 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452404&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-11-1 15:05</a>
+
+我记得原版手游第一季也是全杀了
+
+但是第二季开头很随便地就说魔菲把他们全复活了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这样吗，我看手游第二部一开始就是他们打回帝国了还以为没死
+
+
+*****
+
+####  アーリィ  
+##### 604#       发表于 2026-11-1 20:58
+
+转运网站修PHP修了一周，等拿到手坛友都已经把游戏扒干净了，就晒一下内容吧，搞这么大个盒子我还以为有什么好东西结果又是塑料片
+
+<img src="https://img.stage1st.com/forum/202611/01/205645xmm222zb2g2jll74.jpg" referrerpolicy="no-referrer">
+
+<strong>1000016495.jpg</strong> (822.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-1 20:56 上传
+
+
+*****
+
+####  隔壁老黄  
+##### 605#       发表于 2026-11-1 23:31
+
+马上通关了，后面也太敷衍了，不仅是地图，连剧情都敷衍迷宫，练级也是，法尔姆王国那片大陆太离谱了，叫王国却只有一个村子，剧情也是一点也没有，那还不如不做出来。后面的迷宫是真的烂，还不如前期的。最终迷宫同样叫水晶塔，跟三代的水晶塔比提鞋都不配<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+剧情也是，中期就能猜到会反转，但最终 boss 就是强行拉个脸熟的凑数，理由也是幼稚到离谱，神马看了 700 年人类不断战争，因此对人类失望，神特么看历史就知道人类的历史就是战争的历史，这货本来就是人类还是贤者，就这么点智商啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Markorca  
+##### 606#       发表于 2026-11-2 01:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454282&amp;ptid=2283081" target="_blank">隔壁老黄 发表于 2026-11-1 23:31</a>
+马上通关了，后面也太敷衍了，不仅是地图，连剧情都敷衍迷宫，练级也是，法尔姆王国那片大陆太离谱了，叫王 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">苏尔后面还有剧情，手游版把一些剧情放后头讲了，单机版就做到这没办法了，结尾水晶塔这段手游版内容也更多些，做了删改
+
+—— 来自 meizu MEIZU 20, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  隔壁老黄  
+##### 607#       发表于 2026-11-2 02:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454555&amp;ptid=2283081" target="_blank">Markorca 发表于 2026-11-2 01:08</a>
+苏尔后面还有剧情，手游版把一些剧情放后头讲了，单机版就做到这没办法了，结尾水晶塔这段手游版内容也更 ...</blockquote>
+我通关了，后面的剧情也没啥意思，他对人类失望的原因太薄弱，又不是被背叛了，还不如八杰集真被背叛了，结果八杰集全看开了，这几个贤者就没几个正常的，说是被困在水晶，实际灵魂可以出窍，那不就等于没困住<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Markorca  
+##### 608#       发表于 2026-11-2 03:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454709&amp;ptid=2283081" target="_blank">隔壁老黄 发表于 2026-11-2 02:39</a>
+
+我通关了，后面的剧情也没啥意思，他对人类失望的原因太薄弱，又不是被背叛了，还不如八杰集真被背叛了， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">说的其实是第二季还有苏尔的戏份，而且还不少
+
+
+*****
+
+####  隔壁老黄  
+##### 609#       发表于 2026-11-2 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454763&amp;ptid=2283081" target="_blank">Markorca 发表于 2026-11-2 03:58</a>
+说的其实是第二季还有苏尔的戏份，而且还不少，包括他思想的转变这块也打了个补丁 ...</blockquote>
+这不就是挽尊嘛，还不如黑菲娜当最终 boss 呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纪寞  
+##### 610#       发表于 2026-11-2 14:05
+
+其实关于魔人菲娜我有些不明的地方，哪怕看完手游2-5季的剧情，不知有没有原版手游玩家能解答一下
+我看第二季是魔人菲娜耗尽力量和未来雷因一起消失了，然后第三季说她转生成了洛嘉，那为什么第五季又出来了一个新形象的魔人菲娜？
+
+
+*****
+
+####  妄想中毒  
+##### 611#       发表于 2026-11-2 18:15
+
+玩到第三章了，除了像素过场CG很炫酷以外战斗系统怎么感觉还不如八方，幻兵很多但是用起来都没多大区别，后面解锁的被动多了之后会有所改善吗
+
+
+*****
+
+####  Markorca  
+##### 612#       发表于 2026-11-2 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70456996&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-11-2 14:05</a>
+
+其实关于魔人菲娜我有些不明的地方，哪怕看完手游2-5季的剧情，不知有没有原版手游玩家能解答一下，下方白 ...</blockquote>
+第5季那个是菲娜吧，两个个体是说两个菲娜分别是由光之意志跟均衡意志捏出来的，就是解释了下菲娜身体为什么有两个灵魂
+
+
+*****
+
+####  纪寞  
+##### 613#       发表于 2026-11-3 09:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70459431&amp;ptid=2283081" target="_blank">Markorca 发表于 2026-11-2 23:30</a>
+
+第5季那个是菲娜吧，两个个体是说两个菲娜分别是由光之意志跟均衡意志捏出来的，就是解释了下菲娜身体为 ...</blockquote>
+两个菲娜都是光之意志和虚无意志的女儿吧，第三季就是魔人菲娜消失了为了保持平衡才转生洛嘉的吧。在第一季应该还是说白菲娜是魔人菲娜衍生出来，一体两魂的存在吧。但到了第四季却告诉你在发生赫斯与阿尔多尔那次转移之前白菲娜和魔人菲娜是两个不同身体的个体，在转移时与凡赫尔玛(伦达)失散，这是否是前后冲突了。
+
+
+*****
+
+####  Markorca  
+##### 614#       发表于 2026-11-3 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70460315&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-11-3 09:23</a>
+
+两个菲娜都是光之意志和虚无意志的女儿吧，第三季就是魔人菲娜消失了为了保持平衡才转生洛嘉的吧。在第一 ...</blockquote>
+原版手游第一季忘了具体怎么写了，这次RS倒是有很多刻意暗示菲娜是单独个体的情节，你要说是不是吃书也不好说，毕竟衍生是魔人菲娜的自己的说法，她可能也不清楚是具体怎么回事，个人感觉属于还能挽尊的范畴
+
+
+*****
+
+####  纪寞  
+##### 615#       发表于 2026-11-3 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70460914&amp;ptid=2283081" target="_blank">Markorca 发表于 2026-11-3 10:56</a>
+
+原版手游第一季忘了具体怎么写了，这次RS倒是有很多刻意暗示菲娜是单独个体的情节，你要说是不是吃书也不 ...</blockquote>
+但这样的话这个白菲在发生转移之前和魔人菲娜的经历除了她们的本质之外没半点关系，第一季这里去魔人菲娜精神世界找白菲娜就很诡异啊
+
+
+*****
+
+####  eilot  
+##### 616#       发表于 2026-11-3 13:34
+
+只能說
+
+魔人菲娜的人氣一直都好高，所以不停地出她的角色，最後更以兩個靈魂為由(明明都已經融合成一個，之後又說轉生了，但之後又就還在)留下來
+
+看獵豹這位角色也是一直也出他的新皮膚，但這位可是2季的早~中期角色來，中期就變回....
+
+
+*****
+
+####  纪寞  
+##### 617#       发表于 2026-11-3 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70461797&amp;ptid=2283081" target="_blank">eilot 发表于 2026-11-3 13:34</a>
+
+只能說</blockquote>
+我觉得第二季还是猎豹这角色的立场反转反复且理由还是有点牵强，有点影响原先的塑造了，而且他加入反派那方其实是对正派那边没什么帮助的。
+
+不过第二季刚开始的战力问题也挺搞笑的，猎豹一个人不带专武能直接打上四斗星，结果拉斯韦尔一行人刚来群殴被十五斗星直接秒，那请问雷因在原本第一季结尾占队伍战力的多少？
+
+
+*****
+
+####  eilot  
+##### 618#       发表于 2026-11-3 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70462068&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-11-3 14:26</a>
+
+我觉得第二季还是猎豹这角色的立场反转反复且理由还是有点牵强，有点影响原先的塑造了，而且他加入反派那方 ...</blockquote>
+其實...
+
+個人感覺最荒謬/搞笑的升級
+
+就是在2季的前周目，他們全部去打皇帝但同伴都死光，自己又變成楊過，
+
+被快散功的魔人菲娜救了後去找2鬥星
+
+之後就有足夠能力及劍術來cosplay...
+
+總之男主就是男主，要開掛其戰力升級就不合理
+
+只是總感覺劇情又是重複，之前就已經來了獵豹這位角色，現在又來
+
+幸好沒有出到有關角色，最多就是NV雷因、變身前還是後就是獵豹，這位要抽的角色也在其後在主線中也送個一隻...
+
+看第3~4季那位黑悟空...打錯了，黑雷因，皇帝用他的身體更強的戰力
+
+
+*****
+
+####  纪寞  
+##### 619#       发表于 2026-11-3 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70462437&amp;ptid=2283081" target="_blank">eilot 发表于 2026-11-3 15:35</a>
+
+其實...
+
+個人感覺最荒謬/搞笑的升級</blockquote>
+这里不是说了未来雷因在那次和皇帝战斗过后，几十年在逃亡和修炼吗，这里几十年了心境变了拉斯韦尔没认出很正常，毕竟带感应的苏尔也没认出。另外我是觉得这里其实未来雷因是给雷因战力踩了一脚，几十年了回到过去也依旧不如皇帝也有点太怪了。
+
+
+*****
+
+####  eilot  
+##### 620#       发表于 2026-11-3 21:39
+
+也不能太強求吧
+
+楊過雷因這時已經萬策算盡，又沒有資源，能去到2鬥星水平已經算好了，2鬥星也遠不如皇帝
+
+那麼快打贏皇帝也沒之後劇情，這類半悲劇角色再練下去都不能再升上去了....
+
+獵豹那麼強的原因，也可以是日式漫畫劇情，重傷的自己在荒野中被好心少女拯救，整條村也視這位陌生人為新加入份子及祝福一對新人，
+
+之後因自己血統連累被屠X，少女死在自己面前，爆種殺到皇帝面前，被暴力秒了，
+
+有了目標對象不停升級
+
+拉斯他們和弱化了的6萌傑開開心心/略帶危險闖關，真正難打的都是6盟傑脫甲變成6萌傑這條路線，這隊大多時間都是苦戰中
+
+成長力度不足
+
+不過一度匯合的披風雷因(送的角色)的動機也是搞笑，但某程度他知道皇帝真的太強時他的心態一早就縮了，
+
+
+*****
+
+####  纪寞  
+##### 621#       发表于 2026-11-3 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464043&amp;ptid=2283081" target="_blank">eilot 发表于 2026-11-3 21:39</a>
+
+也不能太強求吧</blockquote>
+猎豹其实除了最开始一出场就是四斗星和拉斯韦尔一行人被十五斗星秒杀那时战力对比有点夸张外，其实也不太行，因为他之后对上拉斯韦尔就没占过优势，被打跪几次了都，然后还一直嚷着抛弃感情才能获得力量有点过于丑陋了，所以我觉得猎豹塑造得根本不行，有点毁角色了。
+
+
+*****
+
+####  方舟失智博士  
+##### 622#       发表于 2026-11-4 08:44
+
+打到第四章了，拿到了飞空艇正在扫地图，这游戏可以啊系统也不错，都没注意到还有专楼。
+
+不过幻兵的特效有点233了，不看这个演出效果还行了。
+
+另外飞空艇上打提丰，那个吹走没有办法救得么 
+
+
+*****
+
+####  chinaboy  
+##### 623#       发表于 2026-11-6 05:40
+
+通关了感觉还行。在我这很可能99%比明年4月的ff7最终篇好玩。ff味比重生纯正多了
+
+
+*****
+
+####  u2deack  
+##### 624#       发表于 2026-11-7 20:23
+
+从第五章开头接着玩，这游戏队里几个角色后面会不会有暂时离开或者强行分队的部分，工匠和大叔想放板凳不管了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  黑暗之眼  
+##### 625#       发表于 2026-11-7 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481340&amp;ptid=2283081" target="_blank">u2deack 发表于 2026-11-7 20:23</a>
+从第五章开头接着玩，这游戏队里几个角色后面会不会有暂时离开或者强行分队的部分，工匠和大叔想放板凳不管 ...</blockquote>
+这游戏不光板凳，连强行分队走的都可以拿100%经验和MRP，不需要担心这个
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  u2deack  
+##### 626#       发表于 2026-11-7 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481349&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-11-7 20:26</a>
+这游戏不光板凳，连强行分队走的都可以拿100%经验和MRP，不需要担心这个
+
+—— 来自 HUAWEI PLA-AL10, An ...</blockquote>
+要有分队的话不是也得给他们刷一下各种幻兵，虽然也不是很麻烦但是有点懒得管，不过我玩的普通难度应该也无所谓就是了，到时候随便装应该也能打过
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  隔壁老黄  
+##### 627#       发表于 2026-11-7 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481359&amp;ptid=2283081" target="_blank">u2deack 发表于 2026-11-7 20:30</a>
+要有分队的话不是也得给他们刷一下各种幻兵，虽然也不是很麻烦但是有点懒得管，不过我玩的普通难度应该也 ...</blockquote>
+没有，只有黑白女主会短时间交替不在队
+
+
+*****
+
+####  黑暗之眼  
+##### 628#       发表于 2026-11-7 23:58
+
+ 本帖最后由 黑暗之眼 于 2026-11-7 23:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481359&amp;ptid=2283081" target="_blank">u2deack 发表于 2026-11-7 20:30</a>
+
+要有分队的话不是也得给他们刷一下各种幻兵，虽然也不是很麻烦但是有点懒得管，不过我玩的普通难度应该也 ...</blockquote>
+剧情上人不在队里而已，只是不能上场，但你可以随便更换他们的装备、幻兵。菲娜和魔人菲娜在正式入队前数据都是共通的，没有任何需要担心的地方。
+
+
+*****
+
+####  关二爷  
+##### 629#       发表于 2026-11-8 00:52
+
+除了各种被动叠加的机制和迷一样，很爽，50小时全成就，刷共鸣太累了
+
+
+*****
+
+####  关二爷  
+##### 630#       发表于 2026-11-8 01:13
+
+还有就是物理太拉垮了，后期都是守护全队+反射戒指+魔法乱击打伤害
+
+
+*****
+
+####  suzakushi  
+##### 631#       发表于 2026-11-9 22:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">通关了，最后这变水晶的意义在哪，到头来不还是把boss打死门关上才阻止的吗，就为了把我唯一喜欢的角色下线是吧。
+
+
+*****
+
+####  shinnfin  
+##### 632#       发表于 2026-11-11 19:41
+
+塞壬塔里的吉尔伽美什是没法打死的吗  试了几次都是剧情逃跑
+
+
+*****
+
+####  黑暗之眼  
+##### 633#       发表于 2026-11-11 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497045&amp;ptid=2283081" target="_blank">shinnfin 发表于 2026-11-11 19:41</a>
+
+塞壬塔里的吉尔伽美什是没法打死的吗  试了几次都是剧情逃跑</blockquote>
+打不死的，随便打打就行
+
