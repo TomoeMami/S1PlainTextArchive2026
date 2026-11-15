@@ -646,3 +646,270 @@ X上翻到一些
 
 奇特的 xp，好在死亡搁浅给大家先铺垫了一波
 
+*****
+
+####  zzy516232108  
+##### 65#       发表于 2026-11-9 08:27
+
+https://store.steampowered.com/app/3347690/Among_the_Waves/
+
+demo已出，支持简体中文，有朋友试试吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  zero33333  
+##### 66#       发表于 2026-11-9 12:14
+
+能更换婴儿发动不同超能力？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2068A, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  Elevation  
+##### 67#       发表于 2026-11-9 18:09
+
+小岛秀夫都知道做人留一线<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+这群人是真就一把撤下原则不做人啊<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  乔迪奥  
+##### 68#       发表于 2026-11-9 18:14
+
+之前有个法国人拍的东方主义烂片更炸裂
+
+*****
+
+####  乔迪奥  
+##### 69#       发表于 2026-11-9 18:15
+
+之前有个法国人拍的东方主义烂片更炸裂
+
+<img src="https://img.stage1st.com/forum/202611/09/181354bssi88g00c80f5tl.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20261109181350.png</strong> (77.73 KB, 下载次数: )
+
+下载附件
+
+2026-11-9 18:13 上传
+
+
+*****
+
+####  zzy516232108  
+##### 70#       发表于 2026-11-10 22:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">玩了十分钟不知道在玩什么，到提示我安抚婴儿入睡的时候我卡了
+
+我操，我为什么是个男人，我要是个孕妇一定能狠狠代入了
+
+
+*****
+
+####  huahuaanying  
+##### 71#       发表于 2026-11-10 23:15
+
+这不死亡搁浅吗
+
+
+*****
+
+####  哈曼的YY  
+##### 72#       发表于 2026-11-11 02:43
+
+肚子能再变大吗 这不到五个月的大小卡在那了
+
+—— 来自 OnePlus PHP110, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  壶中仙  
+##### 73#       发表于 2026-11-11 05:00
+
+美术大量ai，失望。
+
+
+*****
+
+####  牙狼GARO  
+##### 74#       发表于 2026-11-11 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756610&amp;ptid=2283115" target="_blank">DARK_HGCG 发表于 2026-6-10 23:52</a>
+
+什么是流星锤</blockquote>
+【孕妇参加演唱会，孩子生出生就是天崩开局-哔哩哔哩】 [https://b23.tv/v9k8YEr](https://b23.tv/v9k8YEr)
+
+第一个cut就是
+
+“此事在恶搞之家亦有记载……”
+
+
+*****
+
+####  Onelooker  
+##### 75#       发表于 2026-11-11 11:03
+
+哦，牛批
+
+还有自带双人模式的游戏
+
+
+*****
+
+####  Algie  
+##### 76#       发表于 2026-11-11 11:27
+
+开了个头，有种怒涛东正教要素的预感，有懂行的做解说不
+
+
+*****
+
+####  苏西踩我了  
+##### 77#       发表于 2026-11-11 12:58
+
+玩了demo，东正教科幻朋克，美术还行，设定有意思，女主角好看
+
+不好玩，地图乱糟糟，手感一泡污
+
+
+*****
+
+####  第七日魔人  
+##### 78#       发表于 2026-11-11 13:47
+
+这脑洞太逆天了吧
+
+
+*****
+
+####  耶耶抛的岔  
+##### 79#       发表于 2026-11-11 14:31
+
+这么激进？对魔忍有没有带着孕肚战斗的剧情？
+
+
+*****
+
+####  FBC档案部专员  
+##### 80#       发表于 2026-11-11 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493012&amp;ptid=2283115" target="_blank">zzy516232108 发表于 2026-11-10 22:31</a>
+
+玩了十分钟不知道在玩什么，到提示我安抚婴儿入睡的时候我卡了
+
+我操，我为什么是个男人，我要是个孕妇一定 ...</blockquote>
+一样……堵在那个墙前面不知道要干什么
+
+战斗的方式居然用瞬移过去用身体撞……孕妇不能跳但是高处坠落一点屁事没有
+
+
+*****
+
+####  mai6696  
+##### 81#       发表于 2026-11-11 15:03
+
+有没有一种可能，标题的《在浪中》指的是胎儿在羊水里，孕妇跑动太激烈了。。。
+
+*****
+
+####  lyt777  
+##### 82#       发表于 2026-11-11 15:03
+
+有些坛友需要依名单枪毙了属于是。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zzy516232108  
+##### 83#       发表于 2026-11-11 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495727&amp;ptid=2283115" target="_blank">FBC档案部专员 发表于 2026-11-11 14:59</a>
+
+一样……堵在那个墙前面不知道要干什么
+
+战斗的方式居然用瞬移过去用身体撞……孕妇不能跳但是高处坠落一 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我以我浅薄的处男知识，用鼠标跟着她肚子上的光点抚摸了半分钟，没见到安抚婴儿入睡
+
+我真没招了……
+
+看到主角闪现弹跳到高点然后掉下来一点事没有，我突然有点心疼那个孩子
+
+但是一想到打开游戏说什么不是你选择了他，而是他选择了你（？）我就感觉哈哈，摔两下好像也没啥问题（？？？）
+
+
+*****
+
+####  大十字紅朔  
+##### 84#       发表于 2026-11-11 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757709&amp;ptid=2283115" target="_blank">千秋难诉 发表于 2026-6-11 09:24</a>
+
+Guro看得少，不能把小怪吸入淋逼，搞胎内回归那一套吗</blockquote>
+我很想做一个类似的，但是帅气的吸入动作的真的太难设计了<img src="https://static.stage1st.com/image/smiley/carton2017/503.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zzy516232108  
+##### 85#       发表于 2026-11-11 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496487&amp;ptid=2283115" target="_blank">大十字紅朔 发表于 2026-11-11 17:20</a>
+
+我很想做一个类似的，但是帅气的吸入动作的真的太难设计了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">十年前我看到过一个潜行vore片，但是现在估计找不到了，反正一个很帅的空中刺杀，女主角坐在杂兵头上，就把杂兵吞下去了
+
+
+*****
+
+####  一三五七九  
+##### 86#       发表于 2026-11-12 13:04
+
+<blockquote>耶耶抛的岔 发表于 2026-11-11 14:31
+这么激进？对魔忍有没有带着孕肚战斗的剧情？</blockquote>
+对魔忍大肚子也不一定是怀的
+
+
+*****
+
+####  斯大林的拖拉机  
+##### 87#       发表于 2026-11-12 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495546&amp;ptid=2283115" target="_blank">耶耶抛的岔 发表于 2026-11-11 14:31</a>
+这么激进？对魔忍有没有带着孕肚战斗的剧情？</blockquote>
+每年十月份会固定有怀孕卡池
+
+
+*****
+
+####  膛线  
+##### 88#       发表于 2026-11-12 16:05
+
+咋的，你一个男的带个婴儿都能送快递，带个萝莉都能拯救月球，女的带个胎儿咋就不行呢？
+
+
+*****
+
+####  FBC档案部专员  
+##### 89#       发表于 2026-11-12 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496487&amp;ptid=2283115" target="_blank">大十字紅朔 发表于 2026-11-11 17:20</a>
+
+我很想做一个类似的，但是帅气的吸入动作的真的太难设计了</blockquote>
+参考一下GRIME？
+
+
+*****
+
+####  创始’’’天翔  
+##### 90#       发表于 2026-11-12 19:18
+
+贝托蒂嘉说是
+
