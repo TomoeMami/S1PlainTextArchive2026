@@ -1761,3 +1761,10 @@ https://store.steampowered.com/app/3901760/Crystal_Project_2/
 
 居然要出2了，除了地图希望2内容更丰富一点，1代全靠创意工坊加内容，本体的职业技能装备有点少了
 
+*****
+
+####  三级怪兽  
+##### 146#       发表于 2026-11-16 21:28
+
+更新官中了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
