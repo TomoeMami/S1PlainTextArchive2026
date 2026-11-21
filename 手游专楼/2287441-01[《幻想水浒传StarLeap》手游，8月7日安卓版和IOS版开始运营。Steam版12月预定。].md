@@ -1087,3 +1087,10 @@ steam开服以后是互通吗还是独立的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">官方中文有具体时间消息吗，看到虹的管人在搞PR了
 
+*****
+
+####  ハ－ダリ=クラウド  
+##### 92#       发表于 2026-11-18 14:44
+
+抽UP池歪到了妹妹SSR，身为厨娘居然还是个坦克喷了 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
