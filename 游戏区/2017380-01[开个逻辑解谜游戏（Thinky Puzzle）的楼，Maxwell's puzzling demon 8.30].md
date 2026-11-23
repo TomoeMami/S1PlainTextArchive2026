@@ -4590,3 +4590,377 @@ Artless说中文母语的难度会低2档，日文母语的会低一档hhh
 
 本身是jai的验证项目，本体倒是无所谓了，什么时候把jai放出来玩玩
 
+*****
+
+####  库德里尔  
+##### 340#       发表于 2026-11-13 01:31
+
+MONOMOON
+上佳的大地图探索类脑银
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  库德里尔  
+##### 341#       发表于 2026-11-16 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70503073&amp;ptid=2017380" target="_blank">库德里尔 发表于 2026-11-13 01:31</a>
+MONOMOON
+上佳的大地图探索类脑银</blockquote>
+16h封盘monomoon。
+
+令人联想到tunic、动物井、闰跃之年的作品。键鼠联控给游戏带来了上好的交互性，大连通地图和谜题设计、知识锁与分层次的隐藏非常惊艳。无战斗设计、基本轻度的平台跳跃要求使得游戏操作十分简单，也是贯彻了“脑银”的名号。
+
+游戏的前期会让你在探险中收集书页，基本上采用无文字的方式进行介绍（而游戏流程也不需要对语言字母表进行破译）。你的角色，光标控制的月亮，可都身手不凡，而游戏会用知识锁（几乎没有能力锁）教会你这一点。
+
+无比推荐！价格首发期不到40元，目前好评如潮。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Algie  
+##### 342#       发表于 2026-11-16 03:11
+
+Thinky Awards 2026 提名
+
+年度游戏
+
+- 868-BACK
+
+- Big Walk
+
+- Emuurom
+
+- He Who Watches
+
+- Order of the Sinking Star
+
+- The Artisan of Glimmith
+
+- The Incident at Galley House
+
+- The Message from Deep Space
+
+最佳易上手游戏
+
+- 20 More, Somehow Even Smaller, Mazes
+
+- Big Walk
+
+- Chomp Garden
+
+- Colorbound
+
+- Deductopia
+
+- Rita
+
+- Schrodinger's Cat Burglar
+
+- The Mermaid Mask
+
+最佳挑战性游戏
+
+- Derelict Star
+
+- He Who Watches
+
+- Order of the Sinking Star
+
+- Pull Chain
+
+- The Artisan of Glimmith
+
+- The Message from Deep Space
+
+- Theta and Paralldox on Worldlines
+
+- Where's My Egg?
+
+最佳谜题设计
+
+- A Little Perspective
+
+- Clover's Quadrants
+
+- E9uations
+
+- Hamstermind
+
+- He Who Watches
+
+- Order of the Sinking Star
+
+- The Artisan of Glimmith
+
+- Theta and Paralldox on Worldlines
+
+最具创新游戏
+
+- Big Walk
+
+- Emuurom
+
+- Horse Magnifier: The Full Horse
+
+- Map Map - A Game About Maps
+
+- The Art of Reflection
+
+- The Message from Deep Space
+
+- The Remake of the End of the Greatest RPG of All Time
+
+- TR-49
+
+最佳艺术指导
+
+- Big Walk
+
+- Burn With Me
+
+- Clover's Quadrants
+
+- Emuurom
+
+- Helix: Descent N Ascent
+
+- Phonopolis
+
+- The Mermaid Mask
+
+- Wax Heads
+
+最佳策略游戏
+
+- 868-BACK
+
+- Burn With Me
+
+- Dicevaders
+
+- Mewgenics
+
+- Shroom and Gloom
+
+- Slay the Spire 2
+
+- Titanium Court
+
+最佳纸笔谜题
+
+- Cut Up!
+
+- Herd
+
+- Lost Speech
+
+- Murdoku Vol. 2-3
+
+- Rorschach's River
+
+- The Initiating
+
+最佳移动游戏
+
+- Club Soko
+
+- Humbug 2
+
+- Servant of the Lake
+
+- Titanium Court
+
+- TR-49
+
+- Ultrapool
+
+最佳免费游戏
+
+- 20 More, Somehow Even Smaller, Mazes
+
+- Carrot Kingdom!
+
+- Pull Chain
+
+- Rorschach's River
+
+- Sudokuvania 2: Lineage of Logic
+
+- The Archives of Trevosa (Jam Version)
+
+- The Red Pearls of Borneo
+
+最佳扩展内容
+
+- Gentoo Rescue - Anniversary Update
+
+- Opus Magnum: De Re Metallica
+
+- Portal: Alive &amp; Kicking
+
+- Shape
+
+- The Incident at Galley House
+
+- The Talos Principle 2 - Puzzle Editor
+
+最受期待游戏
+
+- DEG
+
+- Dittori
+
+- Inkblood
+
+- Machinarium 2
+
+- Nonolith
+
+- The Archives of Trevosa
+
+- The Talos Principle 3
+
+- Tiling Town
+
+- Trifolium: The Adventures of Gary Pretzelneck
+
+最佳内容创作者
+
+- Aliensrock
+
+- Cracking the Cryptic
+
+- Draknek &amp; Friends Official Podcast
+
+- GamesWithMorgan
+
+- Icely Puzzles
+
+- NinaStruggles
+
+- Olexa
+
+- That Design Feel
+
+monomoon差一点就能赶上今年的提名了
+
+
+*****
+
+####  酒々井かんづめ  
+##### 343#       发表于 2026-11-18 12:57
+
+看了隔壁tga提名还是不能理解为什么茜塔连个年度最佳的提名都没有，比肩baba和麦妖的游戏就因为承认在写代码和翻译的时候使用了AI就不配拿奖了？
+
+
+*****
+
+####  BRAVADO  
+##### 344#       发表于 2026-11-18 14:31
+
+<blockquote>酒々井かんづめ 发表于 2026-11-18 12:57
+看了隔壁tga提名还是不能理解为什么茜塔连个年度最佳的提名都没有，比肩baba和麦妖的游戏就因为承认在写代 ...</blockquote>
+为什么要在意一个以引流为目的的奖，尤其是这个奖一年比一年更轻度化😊。另外麦妖的翻译真用了ai吗，感觉有的词翻译的就挺，奇怪的。
+
+
+*****
+
+####  酒々井かんづめ  
+##### 345#       发表于 2026-11-18 15:05
+
+<blockquote>BRAVADO 发表于 2026-11-18 14:31
+为什么要在意一个以引流为目的的奖，尤其是这个奖一年比一年更轻度化，似乎要把一切动点脑子的游戏都包括 ...</blockquote>
+是茜塔用了AI，discord群里有人还在提名期间专门把这事提了出来
+
+
+*****
+
+####  库德里尔  
+##### 346#       发表于 2026-11-18 15:09
+
+因为anti AI不只是一种政治正确还是一种无知者无畏式的傲慢与霸凌
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Algie  
+##### 347#       发表于 2026-11-18 17:21
+
+反ai魔怔人已经发展脑死亡状态了，前段时间big walk因为用ai修了10行代码的bug就被差评轰炸
+
+
+*****
+
+####  BRAVADO  
+##### 348#       发表于 2026-11-18 18:37
+
+<blockquote>酒々井かんづめ 发表于 2026-11-18 15:05
+是茜塔用了AI，thinly game的discord群里还有人专门提这事</blockquote>
+抱歉确实是theta，我口误了，这里有点奇怪也指的是theta的英文翻译，有点奇怪我玩完开头就切中文了。
+
+是哪个server啊，thinky-puzzle-games还是ThinkyGames.com？
+
+
+*****
+
+####  酒々井かんづめ  
+##### 349#       发表于 2026-11-18 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524817&amp;ptid=2017380" target="_blank">BRAVADO 发表于 2026-11-18 18:37</a>
+
+抱歉确实是theta，我口误了，这里有点奇怪也指的是theta的英文翻译，有点奇怪我玩完开头就切中文了。
+
+是 ...</blockquote>
+ThinkyGames.com
+
+英文我不太清楚，日语的话当时加之前我记得作者说找麦妖作者看了（？）结果还是有把音叉翻译成叉，猫箱、双缝等原文照搬的情况，说是AI翻译更像是机翻
+
+
+*****
+
+####  BRAVADO  
+##### 350#       发表于 2026-11-21 02:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525058&amp;ptid=2017380" target="_blank">酒々井かんづめ 发表于 2026-11-18 19:32</a>
+
+ThinkyGames.com
+
+英文我不太清楚，日语的话当时加之前我记得作者说找麦妖作者看了（？）结果还是有把音 ...</blockquote>
+看了一下，XXela和Hempuli居然差点吵起来了可还行。
+
+瞅了一眼提名，bigwalk之前因为用ai闹出那么大事的也拿到GOTY提名了，应该和ai use没什么关系吧。就是thinky awards想引流，不过我自第二届开始就不在乎这个奖了，anyway。
+
+
+*****
+
+####  铃森冬  
+##### 351#       发表于 2026-11-21 03:16
+
+去吃了下瓜感觉主办方对AI编程没啥偏见啊，说白了还是被吹哥的沉星之序占了推箱解谜这个品类的位置显得茜塔太糊了
+
+下面是 ThinkyGames 的 Manager, Joseph Mansfield 回复提 AI 问题找茬的人的原话
+ <blockquote>Hey, so my feelings are similar to the folks who responded to you. 
+
+I think we would be better off evaluating this on a case-by-case basis with each game. We already have a good process for the awards by which games go through multiple stages of selection and voting, and I think any concerns regarding AI usage would come up there. Those involved in that process can use any information the developers have disclosed about their AI usage.
+
+Ultimately, I think having a strict no-AI policy would be impossible for us to enforce consistently and it puts the onus of knowing about AI usage on us, even though the developer may not have disclosed it. Also, I think AI tools are likely to stick around and be part of how people work, whether in big ways or small ways, and it won't always be clear in what ways AI has been used. I do think our curation team and jurors are likely to be discerning about AI usage when such information is available though.
+
+Regardless, the vast majority of games that have made heavy use of AI in their development are just garbage anyway, so they won't stand a chance in the awards. We've been getting tons of games submitted to us that have absolutely zero value because they're generic, soulless, and uninteresting and the developer has put almost no effort into actually making something worthwhile. But we don't need a no-AI policy to recognise that.
+
+I appreciate that that means that some games that used AI in more subtle ways will likely be part of the awards, but I'm personally okay with accepting that and trusting the process (and I'll accept the criticism if you think that's not okay).</blockquote>
+
+
+*****
+
+####  铃森冬  
+##### 352#       发表于 2026-11-21 03:20
+
+不过 ThinkyGames 确实一开始就使劲圈地早就搞得 Thinky Puzzle 的品类在里面显得很很闹麻了
+
